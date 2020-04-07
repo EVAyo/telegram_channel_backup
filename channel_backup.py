@@ -15,7 +15,8 @@ def getPosts(name, start):
 	for item in soup.find_all('div', class_='tgme_widget_message'):
 		post_id = int(item['data-post'].split('/')[-1])
 		post_content = item.find('div', class_='tgme_widget_message_text')
-		print(str(post_content))
+		post_content = BeautifulSoup(
+			str(post_content).replace('<br/>', '\n'), features='lxml')
 		yield post_id, post_content.get_text(separator='\n').strip()
 
 def loopImp():
