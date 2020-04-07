@@ -10,6 +10,7 @@ def setup():
 		return 
 	addtional_arg = ' '.join(sys.argv[1:])
 	command = 'python3 -u channel_backup.py %s' % addtional_arg
+	print(addtional_arg)
 	if 'debug' in addtional_arg or 'once' in addtional_arg:
 		os.system(command + ' test')
 	else:
