@@ -10,7 +10,7 @@ import os
 channels = {'daily_read': 27}
 
 def getPosts(name, start):
-	content = cached_url.get('https://t.me/%s/%d' % (name, start))
+	content = cached_url.get('https://t.me/s/%s/%d' % (name, start))
 	soup = BeautifulSoup(content, 'html.parser')
 	for item in soup.find_all('div', class_='tgme_widget_message'):
 		post_id = int(item['data-post'].split('/')[-1])
