@@ -1,0 +1,47 @@
+#!/usr/bin/env python3
+# -*- coding: utf-8 -*-
+
+import cached_url
+import threading
+from bs4 import BeautifulSoup
+
+channels = {'daily_read': 27}
+
+def getPosts(name, start):
+	content = cached_url.get('https://t.me/%s/%d' % (name, start))
+	soup = BeautifulSoup(content, 'html.parser')
+	for item in soup.find_all('div', class_='tgme_widget_message'):
+		post_id = int(item['data-post'].split('/')[-1])
+		post_content = item.find('div', class_='tgme_widget_message_text')
+		yield post_id, post_content.text
+
+def loopImp():
+	for name, start in channels.items():
+		os.system('mkdir %s > /dev/null 2>&1' % name)
+		posts = {}
+		while True:
+			start = next_start
+			for post_id, post_content in getPosts(name, start):
+				next_start = max(start, post_id + 1)
+				if post_id >= start:
+					posts[post_id] = post_content
+			if next_start == start:
+				break
+		posts = sorted([(x, y) for (x, y) in posts.items])
+		# Room of improvement: we can cache the old posts
+		# as posts more than 1 day old are not editable
+
+
+			
+
+
+	os.system('git add . > /dev/null 2>&1 && git commit -m commit > /dev/null 2>&1 && nohup git push -u -f &')
+
+def loop():
+	loopImp()
+	threading.Timer(60 * 60 * 2, loop).start() 
+
+if not 'once' in sys.argv:
+	threading.Timer(1, loop).start()
+else:
+	loop()
