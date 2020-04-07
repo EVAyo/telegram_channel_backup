@@ -33,11 +33,7 @@ def loopImp():
 		# Room of improvement: we can cache the old posts
 		# as posts more than 1 day old are not editable
 
-
-			
-
-
-	os.system('git add . > /dev/null 2>&1 && git commit -m commit > /dev/null 2>&1 && nohup git push -u -f &')
+	os.system('git add . > /dev/null 2>&1 && git commit -m commit > /dev/null 2>&1 && git push -u -f > /dev/null 2>&1')
 
 def loop():
 	loopImp()
