@@ -18,7 +18,11 @@ def getPosts(name, start):
 		post_content = item.find('div', class_='tgme_widget_message_text')
 		post_content = BeautifulSoup(
 			str(post_content).replace('<br/>', '\n'), features='lxml')
-		yield post_id, parseUrl(post_content.text)
+		content = parseUrl(post_content.text)
+		for d in range(10):
+			content = content.replace('\n%s.' % d, '\n%s. ' % d)
+			content = content.replace('\n%s.  ' % d, '\n%s. ' % d)
+		yield post_id, content
 
 def loopImp():
 	for name, start in channels.items():
