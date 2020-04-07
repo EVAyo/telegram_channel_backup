@@ -4,6 +4,8 @@
 import cached_url
 import threading
 from bs4 import BeautifulSoup
+import sys
+import os
 
 channels = {'daily_read': 27}
 
@@ -20,14 +22,14 @@ def loopImp():
 		os.system('mkdir %s > /dev/null 2>&1' % name)
 		posts = {}
 		while True:
-			start = next_start
+			original_start = start
 			for post_id, post_content in getPosts(name, start):
-				next_start = max(start, post_id + 1)
-				if post_id >= start:
+				start = max(start, post_id + 1)
+				if post_id >= original_start:
 					posts[post_id] = post_content
-			if next_start == start:
+			if original_start == start:
 				break
-		posts = sorted([(x, y) for (x, y) in posts.items])
+		posts = sorted([(x, y) for (x, y) in posts.items()])
 		# Room of improvement: we can cache the old posts
 		# as posts more than 1 day old are not editable
 
