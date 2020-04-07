@@ -37,7 +37,7 @@ def loopImp():
 		# as posts more than 1 day old are not editable
 		posts = [y for (x, y) in posts]
 		with open('%s.md' % name, 'w') as f:
-			f.write('\n\n~~~~~~~~~\n\n'.join(posts))
+			f.write('\n\n=======\n\n'.join(posts))
 	os.system('git add . > /dev/null 2>&1 && git commit -m commit > /dev/null 2>&1 && git push -u -f > /dev/null 2>&1')
 
 def loop():

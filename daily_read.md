@@ -23,7 +23,7 @@ https://m.ximalaya.com/share/sound/272762471
 尊重孩子隐私 / 教导无伤害的原则 / 构建家庭平等信赖的关系 / 教导性别平等原则
 https://mp.weixin.qq.com/s/QsHn-lmexDihLWrpwyVAjw
 
-~~~
+=======
 
 每日文章精选 t.me/daily_read
 
@@ -45,7 +45,7 @@ https://mp.weixin.qq.com/s/2jZl0gdmfngLSM3n-alu8Q
 重点：从禁令到规训，文本带来权利，权利的多极化，身体政治（人不能独立于身体存在），对福柯的批判（权利并非只有古代与现代的二元对立）
 https://zhuanlan.zhihu.com/p/51192955
 
-~~~
+=======
 
 每日文章精选 t.me/daily_read
 
@@ -82,7 +82,7 @@ https://mp.weixin.qq.com/s/q6jcVJp4bd_uRmOBFAwGVg
 
 欢迎投稿，欢迎讨论 t.me/b4cxb
 
-~~~~~~~~~
+=======
 
 每日文章精选 t.me/daily_read
 
