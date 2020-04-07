@@ -44,7 +44,6 @@ def loop():
 	loopImp()
 	threading.Timer(60 * 60 * 2, loop).start() 
 
-print(sys.argv)
 if not 'once' in sys.argv:
 	threading.Timer(1, loop).start()
 else:
