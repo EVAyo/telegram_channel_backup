@@ -114,3 +114,14 @@ c. 色情影视作品中物化女性的倾向和具有攻击性的性行为内�
 https://mp.weixin.qq.com/s/lTJu9n1JCh-juRjJLN0EEA
 
 欢迎投稿，欢迎讨论 t.me/b4cxb
+
+=======
+
+每日文章精选 t.me/daily_read
+
+1. 【生理没有性别】
+a. “生理性别”一词将性别错误的本质化，应代之以“被指配性别”
+b. 一个人的生理特征呈现的“性别感”和言行特征呈现的“性别感”，都来自社会文化的构建，前者并没有比后者更本质
+https://mp.weixin.qq.com/s/dD2ikRbqUjYCQMzaN5nqOg
+
+欢迎投稿，欢迎讨论 t.me/b4cxb
