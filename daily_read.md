@@ -124,4 +124,18 @@ a. “生理性别”一词将性别错误的本质化，应代之以“被指�
 b. 一个人的生理特征呈现的“性别感”和言行特征呈现的“性别感”，都来自社会文化的构建，前者并没有比后者更本质
 https://mp.weixin.qq.com/s/dD2ikRbqUjYCQMzaN5nqOg
 
+2. 【性别是建构的，压迫是真实的】
+旧的性别建构是二元压迫式的，将其变为多元不过是新的建构，并非最终解决方案。（但可能是暂时性的方法之一）
+https://mp.weixin.qq.com/s/10zRV_ZfmoFHP7RV_sefLg
+
+3. 【他们在同性交友软件上寻找爱情】
+https://mp.weixin.qq.com/s/LdrXp_o6Wp3CkQdRY4D9eg
+
+4. 【给emoji戴上头巾，究竟是出于谁的想象】
+在第二次西方女性主义思潮中，美国的白人中产阶级呼吁把女性解放出家庭，抵达个体自由。然而，美国黑人女性因其在历史上长期种族奴役的遭遇，实现个体自由的重要部分是家庭的重组。
+https://mp.weixin.qq.com/s/mimOVYasqRNd_Rmb7wUgMQ
+
+5. 【疫情中全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
 欢迎投稿，欢迎讨论 t.me/b4cxb
