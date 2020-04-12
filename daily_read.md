@@ -369,3 +369,37 @@ https://mp.weixin.qq.com/s/hmge0r_CLWYzdsKi4E88Tg
 
 【如何写一首让人看不懂的诗】
 http://www.douban.com/note/381561377
+
+=======
+
+每日文章精选
+
+【不认命的东北女人】
+徐童《算命》里的唐小雁 http://mp.weixin.qq.com/s?__biz=Mzg4OTE2MzU1Ng==&amp;mid=2247486095&amp;idx=1&amp;sn=98a427fc595b42cd804fd6ca8992f673&amp;chksm=cff150c4f886d9d2b120b42379d1e4255d2f6e9bfbac7afc7a9c3fc712540220e6484d48c286&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586605001116&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【我身边的猛男，都在《动森》里穿上了公主裙】
+1. 在各行各业中，男性常常都被视为“标准的人”。 2. 长久以来，女孩们只能通过把自己代入男性角色，才能获得扮演英雄、踏上旅程的体验。 3. 目前市面上热门作品中，女性角色的设计身形相似，并且大部分是年轻化的。这种设计思路进一步强化现实中的偏见，窄化了女性生存环境。 http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504233&amp;idx=1&amp;sn=6ae2a7e06f9488d9486776b0077fd818&amp;chksm=fb7323cacc04aadce86bfd870d5263b8a0969b0ac1c04c1e47f4eb723ea0120b0d61bf28a657&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586589773810&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【我被强奸了以后，社会又轮奸了我。（修改后和谐版）】
+https://www.douban.com/note/709576214
+
+【【技术支援群】社会平等与民主化】
+建了一个技术支援群，欢迎来~ https://telete.in/tech_helpdesk
+
+【目前的年度最高分，拍的是「少女堕胎」】
+https://mp.weixin.qq.com/s/BMpKD5im5ExUf00071LWkQ
+
+【第二波女性主义是新自由主义的共谋吗？】
+小编案：追求经济的同时，也要试图打破“以经济论阶级”的秩序。 https://www.thepaper.cn/newsDetail_forward_1998737
+
+【西方文学史上12位重要的女性作家】
+https://site.douban.com/readinglife/widget/notes/17391682/note/565403578
+
+【李星星有多勇敢，我们就有多羞愧。】
+http://mp.weixin.qq.com/s?__biz=MzI2OTA3MTA5Mg==&amp;mid=2651822366&amp;idx=1&amp;sn=07b0e9f2dcc0e4d731e701759ce1580c&amp;chksm=f11ede85c6695793619a0f3a8cfc4181ddaba311663fa2a767b7087add73013e436a2a7a5acc&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586662552535&amp;sharer_shareid=c5c138e53eaccaabd72c1da8b81477e6#rd
+
+【法律真的拿性侵养女的鲍某没办法吗？】
+http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153211&amp;idx=1&amp;sn=afd4e9610ea1598f5b71b0410f70b9c2&amp;chksm=8c4bcbafbb3c42b90ff0e9a00b5af901d5339b7a08f5cc969a204b80ac8b0c73b96aaa9d5d03&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586676592143&amp;sharer_shareid=4bb28ae42ab45bcd790c82bb323beabe#rd
+
+【他拍下像蝼蚁一样生活的2000个中国人，没人能平静看完】
+https://www.douban.com/note/758334550
