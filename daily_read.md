@@ -534,3 +534,22 @@ http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&am
 
 【Colorism in High Fashion】
 http://pudding.cool/2019/04/vogue
+
+=======
+
+每日文章精选
+
+【Our Pandemic Summer】
+https://t.me/pincongessence ｜ https://www.theatlantic.com/health/archive/2020/04/pandemic-summer-coronavirus-reopening-back-normal/609940
+
+【黑格尔：为什么人类的犯罪念头比天堂的玫瑰更崇高？】
+https://t.me/pincongessence ｜ https://zhuanlan.zhihu.com/p/38768675
+
+【台湾知名导演被控性侵，为何重判？】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&amp;sn=f5bea7709fda83cfd9326f3bc7210fd5&amp;chksm=e89e1cf4dfe995e234d1e1ffaa9312f25b29a7e017a321162c17aa2d54354c8952dddc5cad0a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586879409464&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【微博】
+//@小丸子家的樱友藏: 每当性别公正被强调时，总会看到有人教育，我们应追求更大的社会公正，每当女性权利被主张时，也总有一种指导意见，只要追求人权，就自然会有女权。 而事实上，有太多这样的例子，许多被揭露性骚扰与性侵害的文化名流，广誉记者，明亮公益人士，光鲜知识分子，在画皮落下前，也是满口公平正义的。为他们辩护的男性话语权共同体，往往也持着以上排她的“进步”理念。 性别公正也属社会公正，女权亦即人权。如果你真的在意那些普遍的价值，当有人为性别公正与女性权利而迈出步伐时，应该为公正与人权在这一维度的向好而由衷高兴，而不是用一种面目更模糊，承诺更空泛的居高宣言——“这不是最重要的”——去淡化，轻视，掩盖乃至排斥她们关乎自己生存的切实努力，我以为这是一种虚假慷慨的伪善，一种压制痛苦的傲慢。 http://m.weibo.cn/status/IDg8gePZe
+
+【对于年轻女孩来说，从来就没有所谓的“小小的”伤害】
+http://mp.weixin.qq.com/s?__biz=MjM5ODg1NzcyNQ==&amp;mid=2650743441&amp;idx=1&amp;sn=ab523d1c41d4ade8099242de6ed01560&amp;chksm=becfdc0389b8551541403f9f3a0d6d993ef50e35410392ce792bc690ea234967ed05861aabc5&amp;mpshare=1&amp;scene=1&amp;srcid=0414DXszZHCeCtC9MlSuIi9R&amp;sharer_sharetime=1586837060041&amp;sharer_shareid=b44f8cb7fca4565a37701e08fb4b40bb#rd
