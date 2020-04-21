@@ -592,3 +592,22 @@ http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&am
 
 【疫情中的“亲密恐怖主义”：全球家暴事件激增】
 https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【美中法三国「性同意年龄」背后的文化逻辑】
+https://www.douban.com/note/759025069
+
+【Mikutap】
+http://aidn.jp/mikutap 这也太好玩太解压了
+
+【《美国夫人》：从傲慢的自由派精英，到保守右翼的吊诡话术（美国夫人）剧评】
+https://m.douban.com/movie/review/12517059/?from=timeline&amp;dt_dapp=1&amp;dt_platform=wechat_moments
+
+【毒Sir的局限：女权可以被讽刺吗？】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649744959&amp;idx=1&amp;sn=ecc3f10a9f73d76abe4aa8101088cb81&amp;chksm=f2743e5ec503b7481636d50b3c9e125110c6fa974337fba4157bcaea5b77d5eaf8d35d000597&amp;scene=0&amp;xtrack=1#rd
+
+【男人可以为支持女权主义做到的35件实事】
+http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&amp;sn=99faa16ea45c51ba57aa1f9f23295b93&amp;chksm=fcc2bff5cbb536e30a7d1b3f6740a318131331bea04d7a7cf5e861ad500a56a7257876a47782&amp;mpshare=1&amp;scene=1&amp;srcid=0325gqWd9zPQoVTiBsBUPVto&amp;sharer_sharetime=1587229948041&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
