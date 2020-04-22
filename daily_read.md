@@ -649,3 +649,22 @@ http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485327&amp;idx=1&am
 
 【难道春天都不许开花了？在郑州，如果花瓣落... 来自新周刊 - 微博】
 //难道春天都不许开花了？在郑州，如果花瓣落到地上没有及时打扫，就会被拍照罚款，一次罚100元，环卫只好用扫把拍打墙边蔷薇花，他们一天工作才挣七八十元，交不起这个钱。// http://www.weibo.com/1653689003/IEeTCkXZd
+
+=======
+
+每日文章精选
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
+http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【一呼一吸间都是权利受限，我们期待同性婚姻到来的那一天】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485327&amp;idx=1&amp;sn=ebcf4b4e6b791fdec6eaa80c49f2e011&amp;chksm=fa6ab6bccd1d3faa49ad71d33f74874d5cc5c7de2dfedb74722a704e5a4f4a7abbdea9f12612&amp;scene=0&amp;xtrack=1#rd
+
+【美国华人购枪热背后的保守派力量】
+纽约华文媒体记者荣筱箐 https://nytimes.us12.list-manage.com/track/click?u=4811ca8b8001c18674edf6fad&id=fc78af6376&e=3d1d3795ec ，这种恐惧之下的应激反应，注定是昙花一现。但购枪这个原本在华人社区鲜有谈及的趋势，背后的原因不仅仅是疫情带来的安全隐患那么简单。 它似乎可以被放在华裔移民保守派力量兴起的背景下来看。近年来华人新移民迅速觉醒，很多人坚信，美国保守派的理念是帮助华人保护自身利益的最佳利器。在他们眼中，自由派不分青红皂白地追求种族平衡，使得包括华人在内的中产阶级利益受损。他们甚至会认为，这些做法才是真正的种族主义。
