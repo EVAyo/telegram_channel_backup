@@ -687,3 +687,22 @@ http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&am
 
 【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
 http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+=======
+
+每日文章精选
+
+【悲惨世界：左翼电影中的第三世界幽灵 | 影评】
+我的朋友们，记牢这一点，世界上没有坏草，也没有坏人，只有坏的庄稼人。 http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247497800&amp;idx=1&amp;sn=a5a117ec0cc6ebb9228e1ea03ccd1493&amp;chksm=fd952683cae2af958007cfe37d02cdbc305ba553fa57b528556619f4eff26157be0197d8ca37&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587654028531&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+【记者手记：谁还没收到美国政府发来的纡困金？】
+https://theinitium.com/article/20200423-international-untied-states-stimulus-check
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
