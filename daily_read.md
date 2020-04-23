@@ -668,3 +668,22 @@ http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485327&amp;idx=1&am
 
 【美国华人购枪热背后的保守派力量】
 纽约华文媒体记者荣筱箐 https://nytimes.us12.list-manage.com/track/click?u=4811ca8b8001c18674edf6fad&id=fc78af6376&e=3d1d3795ec ，这种恐惧之下的应激反应，注定是昙花一现。但购枪这个原本在华人社区鲜有谈及的趋势，背后的原因不仅仅是疫情带来的安全隐患那么简单。 它似乎可以被放在华裔移民保守派力量兴起的背景下来看。近年来华人新移民迅速觉醒，很多人坚信，美国保守派的理念是帮助华人保护自身利益的最佳利器。在他们眼中，自由派不分青红皂白地追求种族平衡，使得包括华人在内的中产阶级利益受损。他们甚至会认为，这些做法才是真正的种族主义。
+
+=======
+
+每日文章精选
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+【记者手记：谁还没收到美国政府发来的纡困金？】
+https://theinitium.com/article/20200423-international-untied-states-stimulus-check
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
+http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
