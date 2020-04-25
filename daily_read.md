@@ -744,3 +744,22 @@ https://theinitium.com/article/20200423-international-untied-states-stimulus-che
 
 【微博】
 让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+=======
+
+每日文章精选
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
