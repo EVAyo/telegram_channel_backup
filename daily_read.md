@@ -763,3 +763,22 @@ http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
 
 【被杀死的“神”：大坝和中国力量如何威胁湄公河】
 https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+=======
+
+每日文章精选
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
