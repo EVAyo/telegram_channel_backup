@@ -1189,3 +1189,124 @@ http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&am
 
 【微博】
 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+=======
+
+每日文章精选
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【上MoMA博物馆摄影课的第一周】
+http://www.douban.com/note/760240565
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
+
+【林奕含逝世三周年：我们如何挽救下一个“房思琪”？】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650489538&amp;idx=1&amp;sn=ed052626f2e1a5719ae742cdd866c0cb&amp;chksm=bef8ae8a898f279c09fbb6b1d3feda84eb73e3470831c713656fa37da935beaf4790706af796&amp;mpshare=1&amp;scene=1&amp;srcid=0428zXHtLxyYwGalv3ZcEchf&amp;sharer_sharetime=1588052927935&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+=======
+
+每日文章精选
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【上MoMA博物馆摄影课的第一周】
+http://www.douban.com/note/760240565
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
+
+【林奕含逝世三周年：我们如何挽救下一个“房思琪”？】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650489538&amp;idx=1&amp;sn=ed052626f2e1a5719ae742cdd866c0cb&amp;chksm=bef8ae8a898f279c09fbb6b1d3feda84eb73e3470831c713656fa37da935beaf4790706af796&amp;mpshare=1&amp;scene=1&amp;srcid=0428zXHtLxyYwGalv3ZcEchf&amp;sharer_sharetime=1588052927935&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+=======
+
+每日文章精选
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+【Library Genesis: 中国米兔志编辑组 - 中国米兔志】
+http://libgen.is/book/index.php?md5=D65E91B6371965AD1A5DBBA631BDD915
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【为什么会对KnowYourself感到疑惑和失望丨微思客】
+http://dwz.date/awbb
+
+【带血的“处女情结”：不仅害惨女人，也羞辱了全世界的男人？】
+http://dwz.date/avUn
+
+【别再把给男孩的性教育，全交给色情片了】
+https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504819&amp;idx=1&amp;sn=54fe0cd01dffe8a133249fd6cf0374e8&amp;chksm=fb732110cc04a806c4193d0aa8f6b0750efea0a9c3321adc74c68aeeea10783be7693a387ea9&amp;mpshare=1&amp;scene=1&amp;srcid=0429tGKow264JhW6WPD1COOY&amp;sharer_sharetime=1588155782323&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+【Library Genesis: 中国米兔志编辑组 - 中国米兔志】
+http://libgen.is/book/index.php?md5=D65E91B6371965AD1A5DBBA631BDD915
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
