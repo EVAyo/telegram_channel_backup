@@ -403,3 +403,951 @@ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153211&amp;idx=1&am
 
 【他拍下像蝼蚁一样生活的2000个中国人，没人能平静看完】
 https://www.douban.com/note/758334550
+
+=======
+
+每日文章精选
+
+【他拍下像蝼蚁一样生活的2000个中国人，没人能平静看完】
+https://www.douban.com/note/758334550
+
+【不一定要拼死反抗，才能证明这是强奸】
+http://mp.weixin.qq.com/s?__biz=MjM5NjQzMzcxNA==&amp;mid=2652015378&amp;idx=1&amp;sn=aa5a1fa25fd1af823610af879a56dc5a&amp;chksm=bd0f714f8a78f859e3b4c70e73b81d6c41a0a4adbda5bebef2fb74a2935bcdad9e5e4103ad27&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586688943277&amp;sharer_shareid=18012835aa71a6760c02c27408134de4#rd
+
+【我想，我可能是一个幸运的“房思琪”】
+https://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&mid=2247485297&idx=1&sn=103cb96c089c961ca52ed6bf8006e7c8
+
+【N号房间与鲍毓明的自我洗地：不要再把强奸称为“爱情”了。】
+http://mp.weixin.qq.com/s?__biz=MzA4NjcyMDU1NQ==&amp;mid=2247517867&amp;idx=1&amp;sn=6939dfb5981be8018d8dbb7b386b9923&amp;chksm=9fc6afefa8b126f91ebaca33d8318ff807c53573762ab75a7dac2c36bc91a38c23438522e46d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586700635286&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【法治的细节｜对滥用信任地位性侵绝不能饶恕】
+http://mp.weixin.qq.com/s?__biz=MzU1MzMwMTk5Nw==&amp;mid=2247484828&amp;idx=1&amp;sn=ae3f066aa82b7be46382a4d3766accad&amp;chksm=fbf5a71ecc822e0889744ae87cf32ea17077f9c96125e1cd07445df1af7aa04aaad0e26e637b&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586689628474&amp;sharer_shareid=6432b69ec26a39d824208eab96097a84#rd
+
+=======
+
+每日文章精选
+
+【他拍下像蝼蚁一样生活的2000个中国人，没人能平静看完】
+https://www.douban.com/note/758334550
+
+【《洛丽塔》并不鼓励恋童癖，它讲的是施暴者的巧言令色】
+http://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650190293&amp;idx=1&amp;sn=6b8a9fbd25783d3317e344a4b9b4ad13&amp;chksm=f45a4da7c32dc4b1fa005838b73d2e7fe1d18fc5519b11ee61ecc35623346f2420072e4c3ced&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586731756955&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【鲍毓明，去你的“自由恋爱”！】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504274&amp;idx=1&amp;sn=a31f572d5af7ea0eb74d3c590cef7f04&amp;chksm=fb732331cc04aa27b4f00dbc8c37271c27e02094596ee2a6d7231067fa86838ce3bed5cf4f18&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586769773092&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【从《传染法案》到原谅宝：我们如何摆脱恐惧并爱上监视】
+https://zhuanlan.zhihu.com/p/68047682
+
+【8岁起，她遭遇了家人的长期多次性侵，现在，她想说……】
+http://mp.weixin.qq.com/s?__biz=MzUyNDU0MTIxNw==&amp;mid=2247483994&amp;idx=1&amp;sn=ff2e570bdff6eb5ff74d0bbfc721ecfc&amp;chksm=fa2a8e14cd5d0702c80cc56caa00a4339dd77d7d22aae9b2baa85a942626553b086b2d23e2fb&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586762984933&amp;sharer_shareid=2b217823d2d71bbb622fd9f97baedba0#rd
+
+【法治的细节｜对滥用信任地位性侵绝不能饶恕】
+http://mp.weixin.qq.com/s?__biz=MzU1MzMwMTk5Nw==&amp;mid=2247484828&amp;idx=1&amp;sn=ae3f066aa82b7be46382a4d3766accad&amp;chksm=fbf5a71ecc822e0889744ae87cf32ea17077f9c96125e1cd07445df1af7aa04aaad0e26e637b&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586689628474&amp;sharer_shareid=6432b69ec26a39d824208eab96097a84#rd
+
+【鲍毓明，去你的“自由恋爱”！】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504274&amp;idx=1&amp;sn=a31f572d5af7ea0eb74d3c590cef7f04&amp;chksm=fb732331cc04aa27b4f00dbc8c37271c27e02094596ee2a6d7231067fa86838ce3bed5cf4f18&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586769773092&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【8岁起，她遭遇了家人的长期多次性侵，现在，她想说……】
+http://mp.weixin.qq.com/s?__biz=MzUyNDU0MTIxNw==&amp;mid=2247483994&amp;idx=1&amp;sn=ff2e570bdff6eb5ff74d0bbfc721ecfc&amp;chksm=fa2a8e14cd5d0702c80cc56caa00a4339dd77d7d22aae9b2baa85a942626553b086b2d23e2fb&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586762984933&amp;sharer_shareid=2b217823d2d71bbb622fd9f97baedba0#rd
+
+【有人在寻找汤兰兰，有人却在捍卫媒体人的良知（华盛顿邮报）影评】
+https://movie.douban.com/review/9125317
+
+【豆瓣9.0！网飞神剧拍下世界最大强奸案：有些真相见不了光】
+http://mp.weixin.qq.com/s?__biz=MzUzMDg4NjY0Ng==&amp;mid=2247484875&amp;idx=1&amp;sn=efe73df2ba5b26b989b7ab88d53479ee&amp;chksm=fa4bbf52cd3c3644c49e2f5c85f761f19d0a54158e4a60e9520c462b5132a56d5b2f5cff3efb&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586750960979&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【剧集照进现实！最近这起人神共愤的性侵事件跟这部高分美剧如出一辙】
+http://mp.weixin.qq.com/s?__biz=MzUxMDk4MTQ2OQ==&amp;mid=2247495816&amp;idx=1&amp;sn=88277b99ae72976bfec107191ac54760&amp;chksm=f97814bace0f9dac0e92cadb5d2c713729253700ddbc3a62b101791ece8729bbed1d9698e247&amp;scene=0&amp;xtrack=1#rd
+
+=======
+
+每日文章精选
+
+【娄烨访谈：用电影抵抗空间记忆的消失】
+娄烨访谈：用电影抵抗空间记忆的消失（来自我朋友的娄烨新访谈） http://mp.weixin.qq.com/s?__biz=MjM5ODQxODMyMQ==&mid=2668632416&idx=1&sn=59e8c4f656d09cb264e6f5e1e4d87b21&chksm=bc2fbb9e8b583288358aa688b157e0810c6f6758e5bc47238433f392af90109499244bf2fed2&dt_dapp=1#rd
+
+【有人在寻找汤兰兰，有人却在捍卫媒体人的良知（华盛顿邮报）影评】
+https://movie.douban.com/review/9125317
+
+【《洛丽塔》并不鼓励恋童癖，它讲的是施暴者的巧言令色】
+http://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650190293&amp;idx=1&amp;sn=6b8a9fbd25783d3317e344a4b9b4ad13&amp;chksm=f45a4da7c32dc4b1fa005838b73d2e7fe1d18fc5519b11ee61ecc35623346f2420072e4c3ced&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586731756955&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【剧集照进现实！最近这起人神共愤的性侵事件跟这部高分美剧如出一辙】
+http://mp.weixin.qq.com/s?__biz=MzUxMDk4MTQ2OQ==&amp;mid=2247495816&amp;idx=1&amp;sn=88277b99ae72976bfec107191ac54760&amp;chksm=f97814bace0f9dac0e92cadb5d2c713729253700ddbc3a62b101791ece8729bbed1d9698e247&amp;scene=0&amp;xtrack=1#rd
+
+【豆瓣9.0！网飞神剧拍下世界最大强奸案：有些真相见不了光】
+http://mp.weixin.qq.com/s?__biz=MzUzMDg4NjY0Ng==&amp;mid=2247484875&amp;idx=1&amp;sn=efe73df2ba5b26b989b7ab88d53479ee&amp;chksm=fa4bbf52cd3c3644c49e2f5c85f761f19d0a54158e4a60e9520c462b5132a56d5b2f5cff3efb&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586750960979&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【女性的抗辩：性别平等的前提是反思社会的结构】
+http://mp.weixin.qq.com/s?__biz=MjM5ODA5NTI4Mg==&amp;mid=2656649261&amp;idx=1&amp;sn=2048f45b268c35095f675f428c31c38f&amp;chksm=bd6210f08a1599e6da23cb23a77f36689de1d6f904796848b5198f1a8ef7ad793889ac27c99d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586791990078&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【对于年轻女孩来说，从来就没有所谓的“小小的”伤害】
+http://mp.weixin.qq.com/s?__biz=MjM5ODg1NzcyNQ==&amp;mid=2650743441&amp;idx=1&amp;sn=ab523d1c41d4ade8099242de6ed01560&amp;chksm=becfdc0389b8551541403f9f3a0d6d993ef50e35410392ce792bc690ea234967ed05861aabc5&amp;mpshare=1&amp;scene=1&amp;srcid=0414DXszZHCeCtC9MlSuIi9R&amp;sharer_sharetime=1586837060041&amp;sharer_shareid=b44f8cb7fca4565a37701e08fb4b40bb#rd
+
+=======
+
+每日文章精选
+
+【娄烨访谈：用电影抵抗空间记忆的消失】
+娄烨访谈：用电影抵抗空间记忆的消失（来自我朋友的娄烨新访谈） http://mp.weixin.qq.com/s?__biz=MjM5ODQxODMyMQ==&mid=2668632416&idx=1&sn=59e8c4f656d09cb264e6f5e1e4d87b21&chksm=bc2fbb9e8b583288358aa688b157e0810c6f6758e5bc47238433f392af90109499244bf2fed2&dt_dapp=1#rd
+
+【卷入女儿耽美举报案的武大教授 | 谷雨】
+http://mp.weixin.qq.com/s?__biz=MzU2MDEwMTIwMg==&amp;mid=2247490006&amp;idx=1&amp;sn=e9241f1bfc1d4559eca7a6d9b5381c27&amp;chksm=fc0c7bebcb7bf2fd53de64d2a8f18b7c439873a373127c6b4db2f279a07b1a416003421e5bce&amp;mpshare=1&amp;scene=1&amp;srcid=04145vcmQ3ryddFp3a0pYEwf&amp;sharer_sharetime=1586858069455&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【对于年轻女孩来说，从来就没有所谓的“小小的”伤害】
+http://mp.weixin.qq.com/s?__biz=MjM5ODg1NzcyNQ==&amp;mid=2650743441&amp;idx=1&amp;sn=ab523d1c41d4ade8099242de6ed01560&amp;chksm=becfdc0389b8551541403f9f3a0d6d993ef50e35410392ce792bc690ea234967ed05861aabc5&amp;mpshare=1&amp;scene=1&amp;srcid=0414DXszZHCeCtC9MlSuIi9R&amp;sharer_sharetime=1586837060041&amp;sharer_shareid=b44f8cb7fca4565a37701e08fb4b40bb#rd
+
+【女性的抗辩：性别平等的前提是反思社会的结构】
+http://mp.weixin.qq.com/s?__biz=MjM5ODA5NTI4Mg==&amp;mid=2656649261&amp;idx=1&amp;sn=2048f45b268c35095f675f428c31c38f&amp;chksm=bd6210f08a1599e6da23cb23a77f36689de1d6f904796848b5198f1a8ef7ad793889ac27c99d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586791990078&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【身为女权主义者，可以骂脏话吗？】
+http://mp.weixin.qq.com/s?__biz=MzU1NTQ1MjM3Ng==&amp;mid=2247492301&amp;idx=1&amp;sn=72894a34eb7e8b5dd3120c9ed5c5d9f5&amp;chksm=fbd6b07acca1396c62b2010e484b616e63df4f8b5b076c01496e684c550e23eb6f30f15e269a&amp;mpshare=1&amp;scene=1&amp;srcid=0414BZoHKqsIdEC00rl0bnuB&amp;sharer_sharetime=1586868481768&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【鲍毓明案所谓“反转”，是社会对性侵案认知的狭隘】
+http://mp.weixin.qq.com/s?__biz=MzA3MDM3NjE5NQ==&amp;mid=2650852568&amp;idx=1&amp;sn=41ece2aa2ac29186373b966d9d69734f&amp;chksm=84c9a2b4b3be2ba25024159674cef13855af63b9f441c43f62c03fae6108ddd38f23beb0b911&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586848648673&amp;sharer_shareid=e10eb63a10a36970acbd6d3fc0eb6739#rd
+
+【微博】
+//@小丸子家的樱友藏: 每当性别公正被强调时，总会看到有人教育，我们应追求更大的社会公正，每当女性权利被主张时，也总有一种指导意见，只要追求人权，就自然会有女权。 而事实上，有太多这样的例子，许多被揭露性骚扰与性侵害的文化名流，广誉记者，明亮公益人士，光鲜知识分子，在画皮落下前，也是满口公平正义的。为他们辩护的男性话语权共同体，往往也持着以上排她的“进步”理念。 性别公正也属社会公正，女权亦即人权。如果你真的在意那些普遍的价值，当有人为性别公正与女性权利而迈出步伐时，应该为公正与人权在这一维度的向好而由衷高兴，而不是用一种面目更模糊，承诺更空泛的居高宣言——“这不是最重要的”——去淡化，轻视，掩盖乃至排斥她们关乎自己生存的切实努力，我以为这是一种虚假慷慨的伪善，一种压制痛苦的傲慢。 http://m.weibo.cn/status/IDg8gePZe
+
+【台湾知名导演被控性侵，为何重判？】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&amp;sn=f5bea7709fda83cfd9326f3bc7210fd5&amp;chksm=e89e1cf4dfe995e234d1e1ffaa9312f25b29a7e017a321162c17aa2d54354c8952dddc5cad0a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586879409464&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【黑格尔：为什么人类的犯罪念头比天堂的玫瑰更崇高？】
+https://t.me/pincongessence ｜ https://zhuanlan.zhihu.com/p/38768675
+
+=======
+
+每日文章精选
+
+【防止性侵，我们需要从语言着手——一个存在主义角度的突破】
+http://www.douban.com/note/758797711
+
+【黑格尔：为什么人类的犯罪念头比天堂的玫瑰更崇高？】
+https://t.me/pincongessence ｜ https://zhuanlan.zhihu.com/p/38768675
+
+【台湾知名导演被控性侵，为何重判？】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&amp;sn=f5bea7709fda83cfd9326f3bc7210fd5&amp;chksm=e89e1cf4dfe995e234d1e1ffaa9312f25b29a7e017a321162c17aa2d54354c8952dddc5cad0a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586879409464&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【微博】
+//@小丸子家的樱友藏: 每当性别公正被强调时，总会看到有人教育，我们应追求更大的社会公正，每当女性权利被主张时，也总有一种指导意见，只要追求人权，就自然会有女权。 而事实上，有太多这样的例子，许多被揭露性骚扰与性侵害的文化名流，广誉记者，明亮公益人士，光鲜知识分子，在画皮落下前，也是满口公平正义的。为他们辩护的男性话语权共同体，往往也持着以上排她的“进步”理念。 性别公正也属社会公正，女权亦即人权。如果你真的在意那些普遍的价值，当有人为性别公正与女性权利而迈出步伐时，应该为公正与人权在这一维度的向好而由衷高兴，而不是用一种面目更模糊，承诺更空泛的居高宣言——“这不是最重要的”——去淡化，轻视，掩盖乃至排斥她们关乎自己生存的切实努力，我以为这是一种虚假慷慨的伪善，一种压制痛苦的傲慢。 http://m.weibo.cn/status/IDg8gePZe
+
+【Colorism in High Fashion】
+http://pudding.cool/2019/04/vogue
+
+=======
+
+每日文章精选
+
+【Our Pandemic Summer】
+https://t.me/pincongessence ｜ https://www.theatlantic.com/health/archive/2020/04/pandemic-summer-coronavirus-reopening-back-normal/609940
+
+【黑格尔：为什么人类的犯罪念头比天堂的玫瑰更崇高？】
+https://t.me/pincongessence ｜ https://zhuanlan.zhihu.com/p/38768675
+
+【台湾知名导演被控性侵，为何重判？】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&amp;sn=f5bea7709fda83cfd9326f3bc7210fd5&amp;chksm=e89e1cf4dfe995e234d1e1ffaa9312f25b29a7e017a321162c17aa2d54354c8952dddc5cad0a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586879409464&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【微博】
+//@小丸子家的樱友藏: 每当性别公正被强调时，总会看到有人教育，我们应追求更大的社会公正，每当女性权利被主张时，也总有一种指导意见，只要追求人权，就自然会有女权。 而事实上，有太多这样的例子，许多被揭露性骚扰与性侵害的文化名流，广誉记者，明亮公益人士，光鲜知识分子，在画皮落下前，也是满口公平正义的。为他们辩护的男性话语权共同体，往往也持着以上排她的“进步”理念。 性别公正也属社会公正，女权亦即人权。如果你真的在意那些普遍的价值，当有人为性别公正与女性权利而迈出步伐时，应该为公正与人权在这一维度的向好而由衷高兴，而不是用一种面目更模糊，承诺更空泛的居高宣言——“这不是最重要的”——去淡化，轻视，掩盖乃至排斥她们关乎自己生存的切实努力，我以为这是一种虚假慷慨的伪善，一种压制痛苦的傲慢。 http://m.weibo.cn/status/IDg8gePZe
+
+【对于年轻女孩来说，从来就没有所谓的“小小的”伤害】
+http://mp.weixin.qq.com/s?__biz=MjM5ODg1NzcyNQ==&amp;mid=2650743441&amp;idx=1&amp;sn=ab523d1c41d4ade8099242de6ed01560&amp;chksm=becfdc0389b8551541403f9f3a0d6d993ef50e35410392ce792bc690ea234967ed05861aabc5&amp;mpshare=1&amp;scene=1&amp;srcid=0414DXszZHCeCtC9MlSuIi9R&amp;sharer_sharetime=1586837060041&amp;sharer_shareid=b44f8cb7fca4565a37701e08fb4b40bb#rd
+
+=======
+
+每日文章精选
+
+【从虐猫到杀人：有人早就吹哨，但没人相信】
+https://www.douban.com/note/755064283
+
+【台湾知名导演被控性侵，为何重判？】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247591956&amp;idx=1&amp;sn=f5bea7709fda83cfd9326f3bc7210fd5&amp;chksm=e89e1cf4dfe995e234d1e1ffaa9312f25b29a7e017a321162c17aa2d54354c8952dddc5cad0a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1586879409464&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【男人可以为支持女权主义做到的35件实事】
+http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&amp;sn=99faa16ea45c51ba57aa1f9f23295b93&amp;chksm=fcc2bff5cbb536e30a7d1b3f6740a318131331bea04d7a7cf5e861ad500a56a7257876a47782&amp;mpshare=1&amp;scene=1&amp;srcid=0325gqWd9zPQoVTiBsBUPVto&amp;sharer_sharetime=1587229948041&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【《美国夫人》：从傲慢的自由派精英，到保守右翼的吊诡话术（美国夫人）剧评】
+https://m.douban.com/movie/review/12517059/?from=timeline&amp;dt_dapp=1&amp;dt_platform=wechat_moments
+
+【毒Sir的局限：女权可以被讽刺吗？】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649744959&amp;idx=1&amp;sn=ecc3f10a9f73d76abe4aa8101088cb81&amp;chksm=f2743e5ec503b7481636d50b3c9e125110c6fa974337fba4157bcaea5b77d5eaf8d35d000597&amp;scene=0&amp;xtrack=1#rd
+
+【男人可以为支持女权主义做到的35件实事】
+http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&amp;sn=99faa16ea45c51ba57aa1f9f23295b93&amp;chksm=fcc2bff5cbb536e30a7d1b3f6740a318131331bea04d7a7cf5e861ad500a56a7257876a47782&amp;mpshare=1&amp;scene=1&amp;srcid=0325gqWd9zPQoVTiBsBUPVto&amp;sharer_sharetime=1587229948041&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【美中法三国「性同意年龄」背后的文化逻辑】
+https://www.douban.com/note/759025069
+
+【Mikutap】
+http://aidn.jp/mikutap 这也太好玩太解压了
+
+【《美国夫人》：从傲慢的自由派精英，到保守右翼的吊诡话术（美国夫人）剧评】
+https://m.douban.com/movie/review/12517059/?from=timeline&amp;dt_dapp=1&amp;dt_platform=wechat_moments
+
+【毒Sir的局限：女权可以被讽刺吗？】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649744959&amp;idx=1&amp;sn=ecc3f10a9f73d76abe4aa8101088cb81&amp;chksm=f2743e5ec503b7481636d50b3c9e125110c6fa974337fba4157bcaea5b77d5eaf8d35d000597&amp;scene=0&amp;xtrack=1#rd
+
+【男人可以为支持女权主义做到的35件实事】
+http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&amp;sn=99faa16ea45c51ba57aa1f9f23295b93&amp;chksm=fcc2bff5cbb536e30a7d1b3f6740a318131331bea04d7a7cf5e861ad500a56a7257876a47782&amp;mpshare=1&amp;scene=1&amp;srcid=0325gqWd9zPQoVTiBsBUPVto&amp;sharer_sharetime=1587229948041&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+=======
+
+每日文章精选
+
+【这个世界对女性善良吗？请问问那些冬天穿裙子的日本女高中生】
+日本的女性处在一个什么样的性别环境中呢？东京大学、早稻田大学等名门高校的部分学生社团一直以来有个奇怪的规则：禁止本校女生加入。是的，校内的社团拒绝本校女生加入。社团管理者认为，本校女生心高气傲、难以驾驭。他们更欢迎低于自己大学水平的其他学校女生来参加活动，这些女生性格好、愿意端茶倒水，而且容易搞定。 https://mp.weixin.qq.com/s/1vY09CgcKbbJe9wP92-1PA
+
+【美中法三国「性同意年龄」背后的文化逻辑】
+https://www.douban.com/note/759025069
+
+【毒Sir的局限：女权可以被讽刺吗？】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649744959&amp;idx=1&amp;sn=ecc3f10a9f73d76abe4aa8101088cb81&amp;chksm=f2743e5ec503b7481636d50b3c9e125110c6fa974337fba4157bcaea5b77d5eaf8d35d000597&amp;scene=0&amp;xtrack=1#rd
+
+【男人可以为支持女权主义做到的35件实事】
+http://mp.weixin.qq.com/s?__biz=MzU3MzI4NzIyNw==&amp;mid=2247483809&amp;idx=1&amp;sn=99faa16ea45c51ba57aa1f9f23295b93&amp;chksm=fcc2bff5cbb536e30a7d1b3f6740a318131331bea04d7a7cf5e861ad500a56a7257876a47782&amp;mpshare=1&amp;scene=1&amp;srcid=0325gqWd9zPQoVTiBsBUPVto&amp;sharer_sharetime=1587229948041&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
+http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【一呼一吸间都是权利受限，我们期待同性婚姻到来的那一天】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485327&amp;idx=1&amp;sn=ebcf4b4e6b791fdec6eaa80c49f2e011&amp;chksm=fa6ab6bccd1d3faa49ad71d33f74874d5cc5c7de2dfedb74722a704e5a4f4a7abbdea9f12612&amp;scene=0&amp;xtrack=1#rd
+
+【美国华人购枪热背后的保守派力量】
+纽约华文媒体记者荣筱箐 https://nytimes.us12.list-manage.com/track/click?u=4811ca8b8001c18674edf6fad&id=fc78af6376&e=3d1d3795ec ，这种恐惧之下的应激反应，注定是昙花一现。但购枪这个原本在华人社区鲜有谈及的趋势，背后的原因不仅仅是疫情带来的安全隐患那么简单。 它似乎可以被放在华裔移民保守派力量兴起的背景下来看。近年来华人新移民迅速觉醒，很多人坚信，美国保守派的理念是帮助华人保护自身利益的最佳利器。在他们眼中，自由派不分青红皂白地追求种族平衡，使得包括华人在内的中产阶级利益受损。他们甚至会认为，这些做法才是真正的种族主义。
+
+【难道春天都不许开花了？在郑州，如果花瓣落... 来自新周刊 - 微博】
+//难道春天都不许开花了？在郑州，如果花瓣落到地上没有及时打扫，就会被拍照罚款，一次罚100元，环卫只好用扫把拍打墙边蔷薇花，他们一天工作才挣七八十元，交不起这个钱。// http://www.weibo.com/1653689003/IEeTCkXZd
+
+=======
+
+每日文章精选
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
+http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【一呼一吸间都是权利受限，我们期待同性婚姻到来的那一天】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485327&amp;idx=1&amp;sn=ebcf4b4e6b791fdec6eaa80c49f2e011&amp;chksm=fa6ab6bccd1d3faa49ad71d33f74874d5cc5c7de2dfedb74722a704e5a4f4a7abbdea9f12612&amp;scene=0&amp;xtrack=1#rd
+
+【美国华人购枪热背后的保守派力量】
+纽约华文媒体记者荣筱箐 https://nytimes.us12.list-manage.com/track/click?u=4811ca8b8001c18674edf6fad&id=fc78af6376&e=3d1d3795ec ，这种恐惧之下的应激反应，注定是昙花一现。但购枪这个原本在华人社区鲜有谈及的趋势，背后的原因不仅仅是疫情带来的安全隐患那么简单。 它似乎可以被放在华裔移民保守派力量兴起的背景下来看。近年来华人新移民迅速觉醒，很多人坚信，美国保守派的理念是帮助华人保护自身利益的最佳利器。在他们眼中，自由派不分青红皂白地追求种族平衡，使得包括华人在内的中产阶级利益受损。他们甚至会认为，这些做法才是真正的种族主义。
+
+=======
+
+每日文章精选
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+【记者手记：谁还没收到美国政府发来的纡困金？】
+https://theinitium.com/article/20200423-international-untied-states-stimulus-check
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+【教材“有毒”：妈妈不做家务是冷暴力？同性恋是变态？】
+http://mp.weixin.qq.com/s?__biz=MzA5NDExMjUwOA==&amp;mid=2649915573&amp;idx=1&amp;sn=2dc05c227f77ae93f54cae6ef5064b6c&amp;chksm=8855bf26bf223630fb339d876e738ea7c44172d3baa9bedaa199dcef96e736c57a194f055cc4&amp;mpshare=1&amp;scene=1&amp;srcid=0422ecC3NNKB90nxiW14xYjd&amp;sharer_sharetime=1587531800355&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+=======
+
+每日文章精选
+
+【悲惨世界：左翼电影中的第三世界幽灵 | 影评】
+我的朋友们，记牢这一点，世界上没有坏草，也没有坏人，只有坏的庄稼人。 http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247497800&amp;idx=1&amp;sn=a5a117ec0cc6ebb9228e1ea03ccd1493&amp;chksm=fd952683cae2af958007cfe37d02cdbc305ba553fa57b528556619f4eff26157be0197d8ca37&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587654028531&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+【记者手记：谁还没收到美国政府发来的纡困金？】
+https://theinitium.com/article/20200423-international-untied-states-stimulus-check
+
+【冠毒之年│多国诗辑Ⅰ】
+http://dwz.date/apMp
+
+【30年了，我们从未忘记那个死去的女孩 | 专访中国公益律师】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504588&amp;idx=1&amp;sn=c5df234d6c0fea4269f5b5d0e7650dfd&amp;chksm=fb73206fcc04a97960ab6dbe4c9336770a6f729d9ef506e35a814fc3a4e5b42ccb2144ee91b7&amp;scene=0&amp;xtrack=1#rd
+
+=======
+
+每日文章精选
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+【为什么更年期可能是件好事情？】
+为什么全世界绝大部分动物，都可以一直繁殖到它们的死期。已知的只有三种——虎鲸，短鳍领航鲸，以及人类，有更年期？ 为什么女性在失去生育力后，还有三分之一的人生要过？ 为什么说更年期可能是人类征服地球的关键？ 《月亮缓缓攀登：女性更年期的科学、历史与意义》 http://t.cn/A6wBAEK3
+
+【悲惨世界：左翼电影中的第三世界幽灵 | 影评】
+我的朋友们，记牢这一点，世界上没有坏草，也没有坏人，只有坏的庄稼人。 http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247497800&amp;idx=1&amp;sn=a5a117ec0cc6ebb9228e1ea03ccd1493&amp;chksm=fd952683cae2af958007cfe37d02cdbc305ba553fa57b528556619f4eff26157be0197d8ca37&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587654028531&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+【记者手记：谁还没收到美国政府发来的纡困金？】
+https://theinitium.com/article/20200423-international-untied-states-stimulus-check
+
+=======
+
+每日文章精选
+
+【微博】
+//@勒加索夫:没错，在不对称博弈中最好的方法就是赋权//@颜色很不一样的烟火:其实很好理解，个人受资源信息等局限，很难全部了解;官方既然掌握了大量的资源和信息就应该对自己提高要求。现实却好像刚好相反，不断要求个人全知全能，不允许质疑…… 普法一下：对于民众，只要有合理怀疑的证据就可以发声而不属于谣言。对于官方，如果没有超出合理怀疑的证据，就不得随意辟谣。 http://m.weibo.cn/status/IENjdf5f8
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+【为什么更年期可能是件好事情？】
+为什么全世界绝大部分动物，都可以一直繁殖到它们的死期。已知的只有三种——虎鲸，短鳍领航鲸，以及人类，有更年期？ 为什么女性在失去生育力后，还有三分之一的人生要过？ 为什么说更年期可能是人类征服地球的关键？ 《月亮缓缓攀登：女性更年期的科学、历史与意义》 http://t.cn/A6wBAEK3
+
+【悲惨世界：左翼电影中的第三世界幽灵 | 影评】
+我的朋友们，记牢这一点，世界上没有坏草，也没有坏人，只有坏的庄稼人。 http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247497800&amp;idx=1&amp;sn=a5a117ec0cc6ebb9228e1ea03ccd1493&amp;chksm=fd952683cae2af958007cfe37d02cdbc305ba553fa57b528556619f4eff26157be0197d8ca37&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587654028531&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【微博】
+让你分清调侃和耻笑，要是罗志祥现在开直播，会有一大群男的上去跟他称兄道弟阴阳怪气讨论时间管理，问"我怎么做到能像你一样兄弟？要是换哪个女明星，肯定被这波人问候全家祖宗十八代，你猜猜会有女人说"姐妹牛逼"吗？//@南枝栖Biu:这种调侃不是耻笑吗？谁是抱着开玩笑的心理去调侃的？不都是嘲笑吗？ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23&extparam=%23%E4%B8%AD%E5%9B%BD%E9%A9%B0%E5%90%8D%E5%8F%8C%E6%A0%87%23 女明星被爆出轨，大量针对人身的辱骂且极尽肮脏之能事。 男明星被爆出轨，舆论以调侃“时间管理能力强”居多。 性道德就是男权发明来约束规训女性的。
+
+=======
+
+每日文章精选
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+=======
+
+每日文章精选
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+=======
+
+每日文章精选
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+【圆桌｜揭开“洛丽塔”迷思①：亨伯特·亨伯特必须去死】
+澎湃思想市场的线上圆桌邀请我借着这次鲍毓明的新闻来谈谈未成年人性侵问题，一共请了三位作者，内容太长拆成了三块发出。 第一部分谈《洛丽塔》，我叫上了更专业的malingcat老师： https://mp.weixin.qq.com/s/TJKWvqXO-aK4j5de2wwerg 第二部分聊房思琪，也有我的一小部分： https://mp.weixin.qq.com/s/SWtwaX4txWc7Zrwy8N4usg 第三部分讲恋童癖和儿童保护，基本成了我在讲，之前写儿童色情和强奸文化的文章里有些没展开的争议，刚好有机会谈谈。最后我推荐了一本除了洛丽塔和房思琪之外的书，各位感兴趣可以读一读： https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【她故事征文 | 你与成为一名小说家的距离，只有十天】
+http://mp.weixin.qq.com/s/3qlQNEUKD2pID4gcHzieBg
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
+
+=======
+
+每日文章精选
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+【无尽的那不勒斯 | 天才女友男友的一次协同写作】
+http://dwz.date/arR2
+
+=======
+
+每日文章精选
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+=======
+
+每日文章精选
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+【圆桌｜揭开“洛丽塔”迷思③：恋童癖、强奸文化与未尽的保护】
+- 达了青春期性冲动萌发的时候，可能会把过去的经历重新体验成创伤。 - 性创伤中的二次伤害。 - 很多罪犯选择儿童作为性侵对象，只是因为对方弱势好下手，而不是先天有什么不可遏制的神秘冲动。 https://mp.weixin.qq.com/s/GSMjVISkkkvPE_2Jpg2lOA
+
+=======
+
+每日文章精选
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+=======
+
+每日文章精选
+
+【被杀死的“神”：大坝和中国力量如何威胁湄公河】
+https://cn.nytimes.com/world/20191015/mekong-river-dams-china
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+=======
+
+每日文章精选
+
+=======
+
+每日文章精选
+
+【林奕含逝世三周年：我们如何挽救下一个“房思琪”？】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650489538&amp;idx=1&amp;sn=ed052626f2e1a5719ae742cdd866c0cb&amp;chksm=bef8ae8a898f279c09fbb6b1d3feda84eb73e3470831c713656fa37da935beaf4790706af796&amp;mpshare=1&amp;scene=1&amp;srcid=0428zXHtLxyYwGalv3ZcEchf&amp;sharer_sharetime=1588052927935&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+【女性的地位，并没有因为少数女性的消费力增强而改变丨专访诗人翟永明】
+“一个群体的社会地位从来不会因为消费行为而受到尊重，而只会因为创造的社会价值而受到尊重。可惜女性在后者的空间总是被从源头上就开始扼杀了，社会反而鼓励女性多消费。” 《新京报》记者对@翟永明 进行了一场深入的专访，内容涉及女性主义的当下困境，疫情与诗歌创作和对青年一代文学作品的看法等切中当下的议题。 https://www.weibo.com/ttarticle/p/show?id=2309404497915165933757
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23think+about+it%23 不仅仅是性自由，仔细想想许多自由，都是男本位的，所以才有了女人也有当家庭主妇的自由，代孕的自由，卖淫的自由 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23&extparam=%23%E6%9D%83%E5%8A%9B%E4%B8%8B%E6%B8%B8%E6%97%A0%E8%87%AA%E7%94%B1%23 没有女性解放的性自由就是纯粹的男性性自由。 我不知道台湾女权状况发展的怎么样，但是我明白什么台湾明星会站在性自由这个立场上去为罗志祥发声。 因为他们的性自由是完全男本位的，性自由是女性解放的一部分，但是不代表呼喊性自由的人都是站在女性立场，这是一句在现实中被撕扯的口号。 女性的身上依然背负性道德的束缚，又被驱赶着不顾及自己的感受去满足男性的性自由。 他们觉得周扬青也好，跟罗志祥发生性关系的其他女性也好，都是自主自愿的，所以罗志祥不需要被道德惩罚。反而周将这件事抖落出来，是把私人关系拿到公共舆论里评价，要对罗志祥进行道德封杀。 但是罗志祥跟其他女性真的是自主自愿的发生关系吗？为什么周会说他对女生不尊重，为什么有写真女星会曝光罗志祥性骚扰的对话。 作为娱乐圈的前辈，罗志祥以权谋私的过程中，是否有胁迫威胁，威逼利诱旗下和接触过的女艺人。 这都不是一句性自由可以概括的，但凡站在女性立场上去审视性自由，就会发现，女性一直被引诱强迫着去服从男性的性自由。 追根究底还是两性性关系的不平等，两性性关系的不平等，导致女性无论选择做贞洁烈妇还是人尽可夫，最终服务的都是男性，社会建议女性选某一种角色的目的也都是出自于满足男性。
+
+=======
+
+每日文章精选
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【上MoMA博物馆摄影课的第一周】
+http://www.douban.com/note/760240565
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
+
+【林奕含逝世三周年：我们如何挽救下一个“房思琪”？】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650489538&amp;idx=1&amp;sn=ed052626f2e1a5719ae742cdd866c0cb&amp;chksm=bef8ae8a898f279c09fbb6b1d3feda84eb73e3470831c713656fa37da935beaf4790706af796&amp;mpshare=1&amp;scene=1&amp;srcid=0428zXHtLxyYwGalv3ZcEchf&amp;sharer_sharetime=1588052927935&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+=======
+
+每日文章精选
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【上MoMA博物馆摄影课的第一周】
+http://www.douban.com/note/760240565
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
+
+【林奕含逝世三周年：我们如何挽救下一个“房思琪”？】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650489538&amp;idx=1&amp;sn=ed052626f2e1a5719ae742cdd866c0cb&amp;chksm=bef8ae8a898f279c09fbb6b1d3feda84eb73e3470831c713656fa37da935beaf4790706af796&amp;mpshare=1&amp;scene=1&amp;srcid=0428zXHtLxyYwGalv3ZcEchf&amp;sharer_sharetime=1588052927935&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【房思琪们开口说话，炸毁“反转”和“仙人跳” | 人物·林奕含】
+“在你阅读这篇文章的间隙里，每3分钟就有一个女人被打，每5分钟就有一个女人被强奸，每10分钟就会有一个小女孩被性骚扰/性侵。女性的一生，就是一部暴力史。” https://mp.weixin.qq.com/s/Mf7DDKojUKptChXdNK0O4A
+
+【从娱乐圈到更广阔的世界，厌女的“男性共同体”有可能被打破吗？| 思想界】
+“中国男性在成长过程中如果未能被及时纠正厌女观念，就有可能会因男性共同体的集体快感得到强化激励。” “按照赛吉维克的说法，homosocial desire和homosexual desire并不是可以截然区分的，它可能是一种可以滑动的光谱。”林品认为，“但是异性恋中心主义的父权文化需要给它们做出区分，于是每一个男性其实都有这样一种精神压力，需要一次又一次地自证自己是异性恋，或者避免被其他男性发现你是同性恋或双性恋，于是就需要在男性共同体的社交场合与对话当中，不断地色情化女性，并且表达自己对于这种色情化的认可和参与。” http://t.cn/A6AhlKk8
+
+【星星不孤单 -谈性教育、性侵（上）】
+https://mp.weixin.qq.com/s/lfy89SjcXtyXa6diAAUoqw
+
+【微博】
+我为什么讨厌女性朋友们使用田园女权这个词，是因为这个词本身就是男权主义者们竖起来的靶子，是一个完完全全的口袋罪名，一个根本就不存在、被捏造出来、被完全把持在男权主义者手里的概念……只要他们看不惯的女性论调就是田园女权，而定义谁是田园女权的权力根本不在你我手里，今天你和男权主义者一道指责别人，以为自己已然融入他们的阵营，明天田园女权的标准又变了，你被当成田园女权了，你能证明自己不是吗？为虎作伥还洋洋自得，只不过是头上那把剑还没落下来罢了 当然我也并不是说所有女权主张都是正确、不能指责的，就像白人女权和TERF一样，世界上当然存在错误的女权主义，但你我该做的明明是理性地分辨它们的错误，而不是把它们全装进田园女权的口袋，这个倾向一旦放开，后续被塞进口袋里的就不仅仅是真正有错的那些了 http://m.weibo.cn/status/IF8O3m4VW 评论：见过哪个男人骂别的男人田园男权吗，就男人最团结//@花无信哟://@沉荒-已连琉璃树基站: 我的想法就很简单，你们算老几，也配定义我？//@vv逸大丈夫斯基 :我也不喜欢田园女权一词，此外还有打拳。之前吐槽过，这无非是看到女性没有按照男性沙文主义者想象的样子去优雅地主张权利，急眼了。
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+=======
+
+每日文章精选
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+【Library Genesis: 中国米兔志编辑组 - 中国米兔志】
+http://libgen.is/book/index.php?md5=D65E91B6371965AD1A5DBBA631BDD915
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【为什么会对KnowYourself感到疑惑和失望丨微思客】
+http://dwz.date/awbb
+
+【带血的“处女情结”：不仅害惨女人，也羞辱了全世界的男人？】
+http://dwz.date/avUn
+
+【别再把给男孩的性教育，全交给色情片了】
+https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504819&amp;idx=1&amp;sn=54fe0cd01dffe8a133249fd6cf0374e8&amp;chksm=fb732110cc04a806c4193d0aa8f6b0750efea0a9c3321adc74c68aeeea10783be7693a387ea9&amp;mpshare=1&amp;scene=1&amp;srcid=0429tGKow264JhW6WPD1COOY&amp;sharer_sharetime=1588155782323&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+【Library Genesis: 中国米兔志编辑组 - 中国米兔志】
+http://libgen.is/book/index.php?md5=D65E91B6371965AD1A5DBBA631BDD915
+
+【关于底层和复杂性】
+只拥有体力和身体这样匮乏资源的单个底层人（这里不讨论群体），危害实际远更表层和微弱，而拥有权力、金钱、知识的人，如果获得便利，公共危害可大多了，而且隐蔽。只有理解了这一层，再谈什么“复杂性”才是立得住的，否则，对人性的审视，实在太容易滑入自我优越和想当然了。 https://www.douban.com/note/758581984
+
+【谈谈部分男性对于女权主义者不切实际的恐惧】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485260&amp;idx=1&amp;sn=1d5e25ed560b8d447618e7d10eb28f3c&amp;chksm=fabbf32acdcc7a3ce0fc5afd5f61415ebc248beeff2d144beaae2f6df80fc2701f4e9f680a00&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588069515065&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【“人间炼狱”豫章书院起死回生？当年的举报者遭死亡威胁】
+https://mp.weixin.qq.com/s/1tNOys56NgZ_pegL9_gYEQ
+
+=======
+
+每日文章精选
+
+【疫情中的“亲密恐怖主义”：全球家暴事件激增】
+https://mp.weixin.qq.com/s/OJejCrd__41VMvSeZXMnjA
+
+=======
+
+每日文章精选
+
+【纽约疫情简报会无手语 聋哑人起诉州长科莫】
+http://mp.weixin.qq.com/s?__biz=MzU5ODYxMTI0Ng==&amp;mid=2247487492&amp;idx=8&amp;sn=b7246f569b64ca29137d0fb5fd3d0bc2&amp;chksm=fe40d445c9375d535ad4549bf000232dcdeff14c8457d2b4108fedcadbf408ade7d1eee101a4&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588214559374&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【为什么会对KnowYourself感到疑惑和失望丨微思客】
+http://dwz.date/awbb
+
+【带血的“处女情结”：不仅害惨女人，也羞辱了全世界的男人？】
+http://dwz.date/avUn
+
+【别再把给男孩的性教育，全交给色情片了】
+https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504819&amp;idx=1&amp;sn=54fe0cd01dffe8a133249fd6cf0374e8&amp;chksm=fb732110cc04a806c4193d0aa8f6b0750efea0a9c3321adc74c68aeeea10783be7693a387ea9&amp;mpshare=1&amp;scene=1&amp;srcid=0429tGKow264JhW6WPD1COOY&amp;sharer_sharetime=1588155782323&amp;sharer_shareid=5401da7b73e0380054f66907bbf2d5a2#rd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
