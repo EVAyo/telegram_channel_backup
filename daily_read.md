@@ -1351,3 +1351,37 @@ https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247504819&amp;idx=1&a
 
 【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
 去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+=======
+
+每日文章精选
+
+【“短时工作制”：以劳动者为主体的德国纾困政策 | 疫情评论】
+https://www.douban.com/note/760878094/?dt_dapp=1
+
+【知名演员打女人，天才少年侮辱女性，这就是“优秀男人”】
+“慕强”是男权思维的重要特征。这种价值体系里看不到“尊重”，努力也只是为了“成功”之后有不尊重别人的特权。 https://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247593091&amp;idx=1&amp;sn=574bdd2d8c91756fa2370a42df0412fa&amp;chksm=e89e1863dfe991759334dc739d9dd8af33cae8977dcc787f4fb8697be810b4a83b997dff4ddf&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588263675257&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【越南也要全国大普选了！】
+http://weibo.com/ttarticle/p/show?id=2309404499312133406891
+
+【时代的一粒灰】
+维舟都失业了。昨天认识的一位朋友也失业了。 看到最后这句话笑了： 很多人成年后才读到《北回归线》这种禁书，而让他们怒火倍增的是，读完发现其中并没有什么预料之中的刺激内容。 http://mp.weixin.qq.com/s?__biz=MzA3OTg4MzY1Mg==&mid=2651585489&idx=1&sn=b8d45bc0b7eac008c29b4a4630a16408&chksm=8453e73ab3246e2c19d41d106c7eae7ab31bca9bedff818cf0f5c6e174dc1158b2d2dd7b952e&dt_platform=douban_broadcast&dt_dapp=1#rd
+
+【纽约疫情简报会无手语 聋哑人起诉州长科莫】
+http://mp.weixin.qq.com/s?__biz=MzU5ODYxMTI0Ng==&amp;mid=2247487492&amp;idx=8&amp;sn=b7246f569b64ca29137d0fb5fd3d0bc2&amp;chksm=fe40d445c9375d535ad4549bf000232dcdeff14c8457d2b4108fedcadbf408ade7d1eee101a4&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588214559374&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
