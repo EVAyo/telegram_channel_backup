@@ -1385,3 +1385,37 @@ http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&am
 
 【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
 http://dwz.date/awbd
+
+=======
+
+每日文章精选
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【华裔女作家：让所有性侵受害者，不受侮辱和评判地讲述真相 | 谷雨计划】
+去年年底做的采访，将近5个月终于发出来了。继《黑箱》的作者伊藤诗织、《82年生的金智英》的作者赵南柱，做的第三个女性议题采访。有一分热，发一分光吧。 https://mp.weixin.qq.com/s/_acsiVdDDiiIJR4tkxdpiA
+
+【Library Genesis: 中国米兔志编辑组 - 中国米兔志】
+http://libgen.is/book/index.php?md5=D65E91B6371965AD1A5DBBA631BDD915
+
+【肥胖的东亚人有多危险｜大象公会】
+http://mp.weixin.qq.com/s?__biz=MjM5NzQwNjcyMQ==&amp;mid=2651035820&amp;idx=1&amp;sn=e28cb95c9e0d1cdc20b693242168e62f&amp;chksm=bd2d49c28a5ac0d44300864cf4fa85e6bdcf0081232bb264345d74e4a2c2326acfb0fd60817d&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1587869329623&amp;sharer_shareid=b49621e94a7ac527cfe3819585692a1e#rd
+
+【微博】
+吸烟的年轻人越来越少了 吸烟会增加抑郁症与精神分裂症的风险。 早有研究指出，吸烟更常见于患有精神疾病的人群中，但烟草与精神问题的因果关系却一直没有被证实。通过一种叫做孟德尔随机方法的数据分析法，研究人员发现烟草和精神疾病之间的因果关系： 吸烟会增加抑郁症与精神分裂症的患病风险，同时，抑郁症与精神分裂症也会增加患者吸烟的可能。烟草使用不仅有害心理健康，也增加了心理疾病致死的可能性。 作者：祝晨希 参考资料：Wootton, R. E., Richmond, R. C., Stuijfzand, B. G., Lawn, R. B., Sallis, H. M., Taylor, G. M., ... & Munafò, M. R. (2019). Evidence for causal effects of lifetime smoking on risk for depression and schizophrenia: a Mendelian randomisation study. Psychological Medicine, 1-9. http://m.weibo.cn/status/IEZsNzCrN
+
+【为什么不趁油价下跌大量购入原油并注入油田，以备不时之需？ - 知乎】
+太长知识了。。。 http://www.zhihu.com/question/380154077/answer/1129935045
