@@ -1453,3 +1453,37 @@ https://www.douban.com/note/760878094/?dt_dapp=1
 
 【国产老剧里的禁忌恋，一个比一个浪】
 http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+=======
+
+每日文章精选
+
+【乔木 | 美国疫情日记（26）：公平、公正】
+https://www.weibo.com/ttarticle/p/show?id=2309404499400469643268
+
+【工厂倒闭、只拿底薪，珠三角普工在焦虑中寻找生路】
+http://mp.weixin.qq.com/s?__biz=MjM5NTE0ODc2Nw==&mid=2650467662&idx=1&sn=3de8fbcd0eb4e64f42598595d99e8279&chksm=bef2abfe898522e86d2797d6b6b51d164646068be7997e58189c00cf6042b524adb2fe0998b2&dt_platform=douban_broadcast&dt_dapp=1#rd
+
+【穷人为什么不买药】
+http://book.douban.com/review/6131561
+
+【台湾到底听了谁的新冠警报？】
+https://mp.weixin.qq.com/s/PMCObGQGThY8Tfak-ahplA
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
+
+【国产老剧里的禁忌恋，一个比一个浪】
+http://mp.weixin.qq.com/s?__biz=MjM5NDA5NDcyMA==&amp;mid=2651755756&amp;idx=2&amp;sn=26a2ee9fb61458f57488f222728fd3da&amp;chksm=bd773f038a00b615088e8440092200586e15d44d3209b6e402bd10930166950b0051d576fdd6&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588172573943&amp;sharer_shareid=66577a8c567eb793f1a66d630c7a82d2#rd
+
+【世界读书日丨美国女权运动史入门必读：《女性的崛起》（上）】
+http://dwz.date/awbd
+
+【为什么会对KnowYourself感到疑惑和失望丨微思客】
+http://dwz.date/awbb
