@@ -1521,3 +1521,71 @@ http://mp.weixin.qq.com/s?__biz=MjM5NTE0ODc2Nw==&mid=2650467662&idx=1&sn=3de8fbc
 
 【穷人为什么不买药】
 http://book.douban.com/review/6131561
+
+=======
+
+每日文章精选
+
+【从Gina到吉娜：郎朗太太的反面社会意义】
+那个所谓的“完美样版”，不过是传统的男权评价体系给女人设下的“完美陷阱”。 一个现代社会大肆推崇吉娜这种通过婚姻改变命运的“女性成功”，是危险的，也是倒退。 https://mp.weixin.qq.com/s?__biz=MzUzMjg5NzcwOA==&amp;mid=2247511299&amp;idx=1&amp;sn=647c4d6d1b80af5020a01c0fee150f8a&amp;chksm=faaea7c0cdd92ed6c72919320368d1a3dd0691c3289d2591f23ee2d505b0eb163aee9f5ef2c2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588434801645&amp;sharer_shareid=97aca86801d06286fdcfbde8652954f7#rd
+
+【性侵男性就没事吗？】
+https://mp.weixin.qq.com/s?__biz=MzIyNzQ3ODU3OQ==&amp;mid=2247506800&amp;idx=1&amp;sn=ba01b4097df3314f77bf74bea1913e0a&amp;chksm=e862062cdf158f3a4c2e0444bbd8b2d2ccd5dfd17d9cdee483ff7bf39abd6fc2695da646740f&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588435954975&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【【疫情专题】威权与新时代民族主义】
+“在面对一场全世界共同面对的灾难时，民族主义应该隐退，认为本国的体制是最优秀的念头会因目下的哀鸿遍野而获得更多的反思。” “新时期的网络民族主义更是威权的独特政治环境以及资本引导方向改变合力塑造的事实。” https://matters.news/%40squatting2020/%E7%96%AB%E6%83%85%E5%B0%88%E9%A1%8C-%E5%A8%81%E6%AC%8A%E8%88%87%E6%96%B0%E6%99%82%E4%BB%A3%E6%B0%91%E6%97%8F%E4%B8%BB%E7%BE%A9-bafyreifpoz5ikyffeyoknyw55vajbo4o26qghw4ldyzydsy2ptqfd7j67e?tg_rhash=6382d3f855b181
+
+【林昭之死对我们有什么意义？】
+https://posts.careerengine.us/p/5ea918627c5fc77d933811b5
+
+【六四30周年特辑之三：兵戎相见 戒严之都】
+https://www.bbc.com/zhongwen/simp/chinese-news-48092469
+
+【刘擎：爱国是如何成为一种美德的？ | 微思客】
+一个人可以“以国家真正的品格、历史和渴望的名义来反对其政府”。 http://mp.weixin.qq.com/s?__biz=MzA4Nzc3MDIxMA==&amp;mid=2247490517&amp;idx=1&amp;sn=2eae6e5e6e5ea40bbe8f041f997f6b8a&amp;chksm=90350ed8a74287ce3911507ab511d6bd7308563de5dd6799a8ca560097452400ee426f93b3b2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588421406181&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【海外抗疫 | 疫情之下，透视日本的体制、医疗和社会】
+http://dwz.date/aywz
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
+
+=======
+
+每日文章精选
+
+【从Gina到吉娜：郎朗太太的反面社会意义】
+那个所谓的“完美样版”，不过是传统的男权评价体系给女人设下的“完美陷阱”。 一个现代社会大肆推崇吉娜这种通过婚姻改变命运的“女性成功”，是危险的，也是倒退。 https://mp.weixin.qq.com/s?__biz=MzUzMjg5NzcwOA==&amp;mid=2247511299&amp;idx=1&amp;sn=647c4d6d1b80af5020a01c0fee150f8a&amp;chksm=faaea7c0cdd92ed6c72919320368d1a3dd0691c3289d2591f23ee2d505b0eb163aee9f5ef2c2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588434801645&amp;sharer_shareid=97aca86801d06286fdcfbde8652954f7#rd
+
+【性侵男性就没事吗？】
+https://mp.weixin.qq.com/s?__biz=MzIyNzQ3ODU3OQ==&amp;mid=2247506800&amp;idx=1&amp;sn=ba01b4097df3314f77bf74bea1913e0a&amp;chksm=e862062cdf158f3a4c2e0444bbd8b2d2ccd5dfd17d9cdee483ff7bf39abd6fc2695da646740f&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588435954975&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【【疫情专题】威权与新时代民族主义】
+“在面对一场全世界共同面对的灾难时，民族主义应该隐退，认为本国的体制是最优秀的念头会因目下的哀鸿遍野而获得更多的反思。” “新时期的网络民族主义更是威权的独特政治环境以及资本引导方向改变合力塑造的事实。” https://matters.news/%40squatting2020/%E7%96%AB%E6%83%85%E5%B0%88%E9%A1%8C-%E5%A8%81%E6%AC%8A%E8%88%87%E6%96%B0%E6%99%82%E4%BB%A3%E6%B0%91%E6%97%8F%E4%B8%BB%E7%BE%A9-bafyreifpoz5ikyffeyoknyw55vajbo4o26qghw4ldyzydsy2ptqfd7j67e?tg_rhash=6382d3f855b181
+
+【林昭之死对我们有什么意义？】
+https://posts.careerengine.us/p/5ea918627c5fc77d933811b5
+
+【六四30周年特辑之三：兵戎相见 戒严之都】
+https://www.bbc.com/zhongwen/simp/chinese-news-48092469
+
+【刘擎：爱国是如何成为一种美德的？ | 微思客】
+一个人可以“以国家真正的品格、历史和渴望的名义来反对其政府”。 http://mp.weixin.qq.com/s?__biz=MzA4Nzc3MDIxMA==&amp;mid=2247490517&amp;idx=1&amp;sn=2eae6e5e6e5ea40bbe8f041f997f6b8a&amp;chksm=90350ed8a74287ce3911507ab511d6bd7308563de5dd6799a8ca560097452400ee426f93b3b2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588421406181&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【海外抗疫 | 疫情之下，透视日本的体制、医疗和社会】
+http://dwz.date/aywz
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【Curator Stephanie Kramer on Sports Jerseys - Heroes | Coursera】
+最早只有运动员穿运动衫，球迷都是穿正装去看球赛的。后来运动衫自歌星球迷拓展开来，渐渐变成潮流。 https://www.coursera.org/learn/fashion-design/lecture/FmRar/curator-stephanie-kramer-on-sports-jerseys
+
+【On Site in Los Angeles: Recreating Bruce Lee's Tracksuit - Heroes | Coursera】
+重现李小龙的运动服： https://www.coursera.org/learn/fashion-design/lecture/JO7Zj/on-site-in-los-angeles-recreating-bruce-lees-tracksuit
