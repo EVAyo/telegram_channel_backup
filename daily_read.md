@@ -1754,3 +1754,37 @@ http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651423734&amp;idx=1&am
 
 【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
 皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+=======
+
+每日文章精选
+
+【1957年，六名科学...】
+1957年，六名科学家使用梯子和粉笔大黑板在加利福尼亚的系统实验室研究卫星轨道方程。 这是我见过最直观，最好看的理科(生)美学。 http://www.douban.com/people/1155527/status/2937511523
+
+【#化学题答案像画画#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23&extparam=%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23 【史上最全高中化学方程式】史上最全的高考化学方程式总结，快来看看还有那些没记住的！加油
+
+【如果给你寄一本书，】
+如果给你寄一本书， 我不会寄给你诗歌 ， 我要给你一本关于植物，关于庄稼的， 告诉你稻子和稗子的区别 ， 告诉你一棵稗子提心吊胆的春天。 — 余秀华
+
+【在这欲去未去的夜色里...】
+在这欲去未去的夜色里，努力造几颗小晨星；虽没有多大的光明，也使那早行的人高兴。 —— 胡适·《晨星篇》
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
+
+【振聋发聩，击碎那篇垃...】
+振聋发聩，击碎那篇垃圾后浪文。一边喝着年轻人的血一边给年轻人打毒鸡血，魔鬼无疑了。悄声喝不说话还少添点恶心。 😒 http://www.douban.com/people/81275297/status/2943017434
+
+【source】
+http://www.douban.com/people/1174614/status/2941567728
+
+【R.I.P】
+R.I.P http://www.douban.com/people/167705913/status/2941811662
+
+【值得一看//@橙雨伞...】
+值得一看//@橙雨伞微博:很棒的演讲。 因为#n号房间# #N号房# 事件和后续发展，想到之前看的这个演讲视频。逆向歧视存在吗？女权活动是对男性的逆向歧视吗？韩国作家孙雅兰 (손아람)在演讲中说，男性所感受到的“逆向歧视”，无一例外是他们为歧视女性所付出的代价。原视频无字幕，字幕由我和@zei肉儿 翻译制作。原视频链接请见评论。 http://t.cn/A6zk4P4E
+
+【看见女性劳动者】
+http://m.weibo.cn/p/index?extparam=%E7%9C%8B%E8%A7%81%E5%A5%B3%E6%80%A7%E5%8A%B3%E5%8A%A8%E8%80%85&containerid=1008086b63918d9333f816e116fc5573c73bab “当你画的是有色人种时，为什么要从白色的画布上开始呢？”来自美国的画家Aya Brown只在棕色的画纸上画画，而她的绘画对象也常常是黑人女性，她的创作灵感也多是来自身边的朋友或亲人，同时她也对酷儿文化和相关平权活动很感兴趣。 她的最新作品则描绘了疫情期间不得不继续工作的服务行业人群，如邮递员、护士、公车司机、建筑工人、清洁工、售货员等。Brown通过这种方式表达了对他们的感谢，也提醒着人们不要忘记这群为了救助病人和维持社会秩序而继续服务工作的人。
