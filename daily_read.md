@@ -1723,3 +1723,34 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%8D%
 
 【在这欲去未去的夜色里...】
 在这欲去未去的夜色里，努力造几颗小晨星；虽没有多大的光明，也使那早行的人高兴。 —— 胡适·《晨星篇》
+
+=======
+
+每日文章精选
+
+【读书分享线上讨论】 话题： 父母是否有权决定子女接受哪种教育？ 子话题： 1. 当宗教教育与学校教育有相悖之处时，父母是否有权将子女带出教室？ 2. 父母是否有为子女拒绝义务教育的权利？ 3. 关于未成年人自愿皈依宗教，您怎么看？ 4. 关于向未成年人传教，您怎么看？ 讨论时间： 5/5全天 讨论地点： http://telete.in/dushufenxiang_chat 讨论报名： 请联系 http://telete.in/b4cxb , 请附上自己的见解。
+
+【如果给你寄一本书，】
+如果给你寄一本书， 我不会寄给你诗歌 ， 我要给你一本关于植物，关于庄稼的， 告诉你稻子和稗子的区别 ， 告诉你一棵稗子提心吊胆的春天。 — 余秀华
+
+【推荐几本了解民国北洋...】
+推荐几本了解民国北洋时期（1912—1928）作品。 http://www.douban.com/people/2118980/status/2941316196
+
+【性侵男性就没事吗？】
+https://mp.weixin.qq.com/s?__biz=MzIyNzQ3ODU3OQ==&amp;mid=2247506800&amp;idx=1&amp;sn=ba01b4097df3314f77bf74bea1913e0a&amp;chksm=e862062cdf158f3a4c2e0444bbd8b2d2ccd5dfd17d9cdee483ff7bf39abd6fc2695da646740f&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588435954975&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【不存在的天津】
+不存在的天津 http://www.douban.com/people/10056489/status/2942000780
+
+【R.I.P】
+R.I.P http://www.douban.com/people/167705913/status/2941811662
+
+【值得一看//@橙雨伞...】
+值得一看//@橙雨伞微博:很棒的演讲。 因为#n号房间# #N号房# 事件和后续发展，想到之前看的这个演讲视频。逆向歧视存在吗？女权活动是对男性的逆向歧视吗？韩国作家孙雅兰 (손아람)在演讲中说，男性所感受到的“逆向歧视”，无一例外是他们为歧视女性所付出的代价。原视频无字幕，字幕由我和@zei肉儿 翻译制作。原视频链接请见评论。 http://t.cn/A6zk4P4E
+
+
+【同性恋演化之谜：同性性吸引源自人类自我驯化？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651423734&amp;idx=1&amp;sn=8892e15002edb8e8bb95dd4878b024ec&amp;chksm=f282315ec5f5b84878eee14654f51fba1ad398b6a94a2b86996d07a82da7c6e1daa25e1ab88c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588515835746&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
