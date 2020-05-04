@@ -1655,3 +1655,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%
 
 【1957年，六名科学...】
 1957年，六名科学家使用梯子和粉笔大黑板在加利福尼亚的系统实验室研究卫星轨道方程。 这是我见过最直观，最好看的理科(生)美学。 http://www.douban.com/people/1155527/status/2937511523
+
+=======
+
+每日文章精选
+
+【#化学题答案像画画#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23&extparam=%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23 【史上最全高中化学方程式】史上最全的高考化学方程式总结，快来看看还有那些没记住的！加油
+
+【六四30周年特辑之三：兵戎相见 戒严之都】
+https://www.bbc.com/zhongwen/simp/chinese-news-48092469
+
+【source】
+http://www.douban.com/people/1174614/status/2941567728
+
+【今天看到了这个】
+今天看到了这个 http://www.douban.com/people/54450194/status/2932839363
+
+【张爱玲 《花凋》：】
+张爱玲 《花凋》： 世界对于他人的悲哀并不是缺乏同情：秦雪梅吊孝，小和尚哭灵，小寡妇上坟，川嫦的母亲自伤身世，都不难使人同声一哭。只要是戏剧化的，虚假的悲哀，他们都能接受。可是真遇着一身病痛的人，他们只睁大了眼睛说：“这女人瘦来！怕来！”
+
+【今天必须是王小波！！...】
+今天必须是王小波！！！ http://www.douban.com/people/2152228/status/2941854103
+
+【1957年，六名科学...】
+1957年，六名科学家使用梯子和粉笔大黑板在加利福尼亚的系统实验室研究卫星轨道方程。 这是我见过最直观，最好看的理科(生)美学。 http://www.douban.com/people/1155527/status/2937511523
+
+【推荐几本了解民国北洋...】
+推荐几本了解民国北洋时期（1912—1928）作品。 http://www.douban.com/people/2118980/status/2941316196
+
+【嗯，青年。】
+嗯，青年。 http://www.douban.com/people/1083017/status/2942799559
+
+【Guy Baldwin, International Mr. Leather 1989, on Leather Pants - Heroes | Coursera】
+皮革王子为您诉说，皮革控及其军队来源： https://www.coursera.org/learn/fashion-design/lecture/u0JZs/guy-baldwin-international-mr-leather-1989-on-leather-pants
