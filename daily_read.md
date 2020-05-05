@@ -1822,3 +1822,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%BA%94%
 
 【废弃学校】
 废弃学校 📸 http://www.douban.com/people/21565824/status/2942191560
+
+=======
+
+每日文章精选
+
+【这部离奇又惊险的高分德剧，居然根据真人真事改编。】
+http://mp.weixin.qq.com/s?__biz=MzUxMDk4MTQ2OQ==&amp;mid=2247496320&amp;idx=1&amp;sn=a81c5b07bb8d19e87e7bcb25d7214d5e&amp;chksm=f97816b2ce0f9fa4cdbc9c9e9dbad9a669fe549f6ce7588d5d205239ff6c6661068c8a2cf387&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588678839444&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【同性恋演化之谜：同性性吸引源自人类自我驯化？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651423734&amp;idx=1&amp;sn=8892e15002edb8e8bb95dd4878b024ec&amp;chksm=f282315ec5f5b84878eee14654f51fba1ad398b6a94a2b86996d07a82da7c6e1daa25e1ab88c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588515835746&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【我和选择的权利之间差...】
+我和选择的权利之间差一个APP http://www.douban.com/people/51159028/status/2943417363
+
+【“后浪”风波中，被忽视的“公共言谈真诚”】
+http://mp.weixin.qq.com/s?__biz=MzA3MDM3NjE5NQ==&amp;mid=2650853248&amp;idx=1&amp;sn=9ecc2a5ec9a6da0cc527108e519d03e4&amp;chksm=84c9a1ecb3be28fa2dfd16ced30d22fbe5abc234f81d439526b4c1b7fc714d5855bf20c85ea2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588657058610&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【如果给你寄一本书，】
+如果给你寄一本书， 我不会寄给你诗歌 ， 我要给你一本关于植物，关于庄稼的， 告诉你稻子和稗子的区别 ， 告诉你一棵稗子提心吊胆的春天。 — 余秀华
+
+【27年解救上万被卖女孩，她凭一己之力让尼泊尔再无性奴！】
+http://mp.weixin.qq.com/s?__biz=MzA3MTMzMTMwMQ==&amp;mid=2682640713&amp;idx=1&amp;sn=b9a8df5477209d108d886ceae027afef&amp;chksm=853e45c3b249ccd550bd5bbea88ea383f18c933f7f9b9f5f1a77f55713f9255994a210da1c2e&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588644399152&amp;sharer_shareid=b8b0cad9dadf1cac47beb0a953e3f822#rd
+
+【【读书分享线上讨论】】
+【读书分享线上讨论】 话题： 父母是否有权决定子女接受哪种教育？ 子话题： 1. 当宗教教育与学校教育有相悖之处时，父母是否有权将子女带出教室？ 2. 父母是否有为子女拒绝义务教育的权利？ 3. 关于未成年人自愿皈依宗教，您怎么看？ 4. 关于向未成年人传教，您怎么看？ 讨论时间： 5/5全天 讨论地点： http://telete.in/dushufenxiang_chat 讨论报名： 请联系 http://telete.in/b4cxb , 请附上自己的见解。
+
+【#五四青年节#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%BA%94%E5%9B%9B%E9%9D%92%E5%B9%B4%E8%8A%82%23&isnewpage=1 1919年的中国，女性被封建礼教束缚地几乎喘不过气来，纵使有开明的家庭，愿意送女儿念书，那学校和笼子也没有什么区别，以当时的北京女子师范学校为例，学生连进出学校的权利都没能，必须由家长接送。 纵使在这种条件下，五四运动发生后，依然有近千名女学生想尽办法走上街头，振臂高呼：救国不能后人，爱国不分男女。 她们不仅震惊了当时保守的民众，更是为后来的女性运动打下了契机。 在女学生的带领下，女教员、女职员甚至是官员的太太们都加入队伍中来。 “我二万万女同胞，果尚有心肝血气乎！” “密约不废，青岛不还，国权丧失，万劫不复，吾等虽属女界，同为国民一分子，一致誓死否认！” 她们，为妇女解放运动拉开了序幕。 争取女性受教育的权利，要求大学开放女禁，男女可以同校。 争取女性经济独立的权利，女性可以走出家门自主寻找工作，不必经过家人同意。 争取女性参政议政的权利，为更多女性获取婚姻自由以及人身自由。 在当时那个年代，能够去大学堂读书的女姓，大部分应该是家境极其优渥。 她们，本可以轻轻松松地当她们的大家闺秀，之后嫁个门当户对的人家当太太。 她们没有，她们不仅是为自己发声，更是为当时大部分连人都算不上的女性斗争。 向百年前的新女性们致敬。 妇女能顶半边天。
+
+【冯媛：以女子立场看五四遗产】
+海尔茂：别的不用说,首先你是一个老婆，一个母亲。 娜拉：这些话现在我都不信了。现在我只信，首先我是人，跟你一样的人,至少我要学做人。 http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652152212&amp;idx=1&amp;sn=71a5c90a12dfa6f72939c895d6d7ea2d&amp;chksm=8c4bcf40bb3c4656926d9176912e288bc8a47450beb3029fc59cce0ac007868f7571c9ad5d04&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588582446992&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【#不带穷字但一听就很...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%8D%E5%B8%A6%E7%A9%B7%E5%AD%97%E4%BD%86%E4%B8%80%E5%90%AC%E5%B0%B1%E5%BE%88%E7%A9%B7%E7%9A%84%E8%AF%9D%23&extparam=%23%E4%B8%8D%E5%B8%A6%E7%A9%B7%E5%AD%97%E4%BD%86%E4%B8%80%E5%90%AC%E5%B0%B1%E5%BE%88%E7%A9%B7%E7%9A%84%E8%AF%9D%23 女生为什么容易变穷？ 10条数据说明 1、世界银行：女性占世界人口的50%，女性干着66%的工作，女性只拿到世界总收入的10%，女性仅占有2%的财产。 2、2010年的政府调查显示，只有1/4的被受访者承认儿女享有平等的继承权。2011年，只有17%的房契归女性所有。2004年，中国妇女联合会发现，在没有土地的农村人口中，女性多达70%。失去土地的农业户口女性中有27.7%是因婚姻变动失去土地，男性则是3.7% 3、全国妇联和国家统计局2010年进行的第三期中国妇女社会地位调查数据显示，中国有13.2%的已婚女性在房产证上只登记了自己的名字，而51.7%的已婚男性这样做。不仅如此，对2012年北京、上海等地的调查显示，虽然70%的女性为购买婚房做出了贡献，但只有30%的婚房登记了女性的名字。 4、《2019中国女性职场现状调查报告》揭示，今年男女职员的平均薪酬依然存在23%的差距，女性上升通道依然狭窄，在高层管理人员中，男性比例高达81.3%，女性仅有18.7%。究其原因，生育带给女性的负担依然是企业将女性拒之门外的核心原因。在晋升受阻的归因方面，女性选择“处在婚育阶段，被动失去晋升”的比例是男性的4.6倍，选择“性别歧视”的比例是男性的10.6倍。 5、哈佛商评：职场女性一旦有孩子，她被雇佣的几率比没有孩子的降低79%；其升职率也比没有孩子的低50%；平均收入低1.1万美元。 6、领英数据显示，在生育前后近1/3的女性更换了工...
