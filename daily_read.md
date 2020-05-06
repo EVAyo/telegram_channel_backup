@@ -1860,3 +1860,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%8D%
 =======
 
 每日文章精选
+
+=======
+
+每日文章精选
+
+【传统是延续薪火，而不...】
+传统是延续薪火，而不是崇拜灰烬。——古斯塔夫·马勒 http://www.douban.com/people/7315956/status/2942906680
+
+【昨天想买一本台湾出版...】
+昨天想买一本台湾出版的书 看到了一篇新闻 说的是大陆一个人在网上购买该书籍 送到了之后jc突然找上门要收缴……2016的事了… “我们梦寐以求的，选择的权利。” http://m.weibo.cn/status/J0AxjkLnz
+
+【很多人可能第一次听爱...】
+很多人可能第一次听爱因斯坦的嗓音。他的英语并不很流畅，但是很温柔很慈祥。这是他本人讲狭义相对论中质能方程的视频。最后他抬起头，睁着炯炯有神散发着智慧的大眼睛，看着你的时候。。。 http://video.weibo.com/show?fid=1034:4500626285985839
+
+【#化学题答案像画画#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23&extparam=%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23 【史上最全高中化学方程式】史上最全的高考化学方程式总结，快来看看还有那些没记住的！加油
+
+【well, inte...】
+well, interesting http://www.douban.com/people/148891174/status/2943566942
+
+【性侵男性就没事吗？】
+https://mp.weixin.qq.com/s?__biz=MzIyNzQ3ODU3OQ==&amp;mid=2247506800&amp;idx=1&amp;sn=ba01b4097df3314f77bf74bea1913e0a&amp;chksm=e862062cdf158f3a4c2e0444bbd8b2d2ccd5dfd17d9cdee483ff7bf39abd6fc2695da646740f&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588435954975&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【【狂野之境】壮丽奔放...】
+【狂野之境】壮丽奔放的维多利亚大瀑布，大提顿国家公园静谧的山水美景，马赛马拉无比震撼的角马大迁徙。大家跟随着国家地理摄影师Charlie James的脚步，一起来感受荒野之地的别样之美吧！详戳 http://m.ngchina.com.cn/travel/photo_galleries/4113.html
+
+【以女子立场看五四遗产：我们如何庆祝五四青年节】
+在后来书写的「历史」中，五四交响乐的复杂主题被简单化，五四大合唱中的不同声音消失了，女声部被抹煞了。 http://dwz.date/azGf
+
+【早啊，吃早餐吧！图片...】
+早啊，吃早餐吧！图片来自日本设计师sasaki manami的吐司画作品。 http://www.douban.com/people/168272553/status/2944497555
+
+【为了缓解大家在家办公...】
+为了缓解大家在家办公的无聊，哈利波特官方将邀请众多明星朗读《哈利波特》原著小说！包括：小雀斑、蛋妮、贝克汉姆等等 坐等音频视频上线！！ http://video.weibo.com/show?fid=1034:4501364546666510
