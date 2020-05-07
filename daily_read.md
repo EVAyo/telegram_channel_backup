@@ -1928,3 +1928,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%
 
 【昨天想买一本台湾出版...】
 昨天想买一本台湾出版的书 看到了一篇新闻 说的是大陆一个人在网上购买该书籍 送到了之后jc突然找上门要收缴……2016的事了… “我们梦寐以求的，选择的权利。” http://m.weibo.cn/status/J0AxjkLnz
+
+=======
+
+每日文章精选
+
+【正确处理方式。】
+正确处理方式。 在暗网上鼓励强奸儿童的一个剑桥毕业生在英国被判入狱32年。 http://www.douban.com/people/45290923/status/2947711015
+
+【“历史不可能做到进步...】
+“历史不可能做到进步，只有我们人类个体可以做到。” http://www.douban.com/people/60688052/status/2947630721
+
+【冯媛：以女子立场看五四遗产】
+海尔茂：别的不用说,首先你是一个老婆，一个母亲。 娜拉：这些话现在我都不信了。现在我只信，首先我是人，跟你一样的人,至少我要学做人。 http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652152212&amp;idx=1&amp;sn=71a5c90a12dfa6f72939c895d6d7ea2d&amp;chksm=8c4bcf40bb3c4656926d9176912e288bc8a47450beb3029fc59cce0ac007868f7571c9ad5d04&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588582446992&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【同性恋演化之谜：同性性吸引源自人类自我驯化？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651423734&amp;idx=1&amp;sn=8892e15002edb8e8bb95dd4878b024ec&amp;chksm=f282315ec5f5b84878eee14654f51fba1ad398b6a94a2b86996d07a82da7c6e1daa25e1ab88c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588515835746&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【值得一看//@橙雨伞...】
+值得一看//@橙雨伞微博:很棒的演讲。 因为#n号房间# #N号房# 事件和后续发展，想到之前看的这个演讲视频。逆向歧视存在吗？女权活动是对男性的逆向歧视吗？韩国作家孙雅兰 (손아람)在演讲中说，男性所感受到的“逆向歧视”，无一例外是他们为歧视女性所付出的代价。原视频无字幕，字幕由我和@zei肉儿 翻译制作。原视频链接请见评论。 http://t.cn/A6zk4P4E
+
+【1956年，法国导演...】
+1956年，法国导演克里斯·马克镜头下的北京，一部时长20分钟的大型Vlog《北京的星期天》。 观看地址： http://www.bilibili.com/video/BV1Zs411i7f4?t=1154
+
+【这部离奇又惊险的高分德剧，居然根据真人真事改编。】
+http://mp.weixin.qq.com/s?__biz=MzUxMDk4MTQ2OQ==&amp;mid=2247496320&amp;idx=1&amp;sn=a81c5b07bb8d19e87e7bcb25d7214d5e&amp;chksm=f97816b2ce0f9fa4cdbc9c9e9dbad9a669fe549f6ce7588d5d205239ff6c6661068c8a2cf387&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588678839444&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【私处整形手术，正在侵蚀中国女孩的「外阴审美」丨黑皮手册043】
+http://dwz.date/a38G
+
+【#游戏资讯#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%B8%B8%E6%88%8F%E8%B5%84%E8%AE%AF%23&isnewpage=1 《a new life.》，一款百合视觉小说作品。 游戏讲述了一个经典的爱情故事，伴侣相识、结婚和变老。当你爱的人伤害了你，你会怎么做？爱了又被伤害，会比根本不爱好吗？ 【平台】Steam 5.15 有中文 http://video.weibo.com/show?fid=1034:4501597569613836
