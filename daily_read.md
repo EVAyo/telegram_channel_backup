@@ -1962,3 +1962,37 @@ http://dwz.date/a38G
 
 【#游戏资讯#】
 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%B8%B8%E6%88%8F%E8%B5%84%E8%AE%AF%23&isnewpage=1 《a new life.》，一款百合视觉小说作品。 游戏讲述了一个经典的爱情故事，伴侣相识、结婚和变老。当你爱的人伤害了你，你会怎么做？爱了又被伤害，会比根本不爱好吗？ 【平台】Steam 5.15 有中文 http://video.weibo.com/show?fid=1034:4501597569613836
+
+=======
+
+每日文章精选
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【欢迎大家参加今年的【...】
+欢迎大家参加今年的【中国女权运动】维基百科编写松！不需要有经验，我们会在一开始讲如何成为维基百科编写人。只要你有能上维基百科的电脑就可以加入！ https://docs.google.com/forms/d/e/1FAIpQLSfac01yuHONomvV_ZwBYsErJt4qzxkkBxmr3ncveYkgXvh3tw/viewform
+
+【“后浪”的N种写法。】
+“后浪”的N种写法。 ========================= 图1-9风格分别为：赵孟頫、苏轼、王羲之、欧阳询、董其昌、智永、怀素、文征明、宋徽宗。 http://www.douban.com/people/130560723/status/2947203698
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
+
+【很多人可能第一次听爱...】
+很多人可能第一次听爱因斯坦的嗓音。他的英语并不很流畅，但是很温柔很慈祥。这是他本人讲狭义相对论中质能方程的视频。最后他抬起头，睁着炯炯有神散发着智慧的大眼睛，看着你的时候。。。 http://video.weibo.com/show?fid=1034:4500626285985839
+
+【#游戏资讯#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%B8%B8%E6%88%8F%E8%B5%84%E8%AE%AF%23&isnewpage=1 《a new life.》，一款百合视觉小说作品。 游戏讲述了一个经典的爱情故事，伴侣相识、结婚和变老。当你爱的人伤害了你，你会怎么做？爱了又被伤害，会比根本不爱好吗？ 【平台】Steam 5.15 有中文 http://video.weibo.com/show?fid=1034:4501597569613836
+
+【关于女权主义的11个刻板印象，你以前意识到过吗？_文化_好奇心日报】
+https://www.qdaily.com/articles/43562.html
+
+【1956年，法国导演...】
+1956年，法国导演克里斯·马克镜头下的北京，一部时长20分钟的大型Vlog《北京的星期天》。 观看地址： http://www.bilibili.com/video/BV1Zs411i7f4?t=1154
+
+【如果她要出卖血肉才能...】
+如果她要出卖血肉才能摆脱赤贫，那她应该得到救助，而不是更方便地出卖血肉。 http://www.douban.com/group/topic/174521906/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
