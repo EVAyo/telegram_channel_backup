@@ -2012,3 +2012,37 @@ http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
 
 【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
 https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
+
+=======
+
+每日文章精选
+
+【正确处理方式。】
+正确处理方式。 在暗网上鼓励强奸儿童的一个剑桥毕业生在英国被判入狱32年。 http://www.douban.com/people/45290923/status/2947711015
+
+【看见女性劳动者】
+http://m.weibo.cn/p/index?extparam=%E7%9C%8B%E8%A7%81%E5%A5%B3%E6%80%A7%E5%8A%B3%E5%8A%A8%E8%80%85&containerid=1008086b63918d9333f816e116fc5573c73bab “当你画的是有色人种时，为什么要从白色的画布上开始呢？”来自美国的画家Aya Brown只在棕色的画纸上画画，而她的绘画对象也常常是黑人女性，她的创作灵感也多是来自身边的朋友或亲人，同时她也对酷儿文化和相关平权活动很感兴趣。 她的最新作品则描绘了疫情期间不得不继续工作的服务行业人群，如邮递员、护士、公车司机、建筑工人、清洁工、售货员等。Brown通过这种方式表达了对他们的感谢，也提醒着人们不要忘记这群为了救助病人和维持社会秩序而继续服务工作的人。
+
+【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
+
+【私处整形手术，正在侵蚀中国女孩的「外阴审美」丨黑皮手册043】
+http://dwz.date/a38G
+
+【当代女性是如何遭到"父权制"压迫和剥削的？】
+http://dwz.date/a38J
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【关于女权主义的11个刻板印象，你以前意识到过吗？_文化_好奇心日报】
+https://www.qdaily.com/articles/43562.html
+
+【#摄影教程分享#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%E5%BD%B1%E6%95%99%E7%A8%8B%E5%88%86%E4%BA%AB%23&isnewpage=1 给大家推荐九本价格十分友好的摄影书籍，想要提高摄影技术，看好的摄影作品是免不了的
+
+【欢迎大家参加今年的【...】
+欢迎大家参加今年的【中国女权运动】维基百科编写松！不需要有经验，我们会在一开始讲如何成为维基百科编写人。只要你有能上维基百科的电脑就可以加入！ https://docs.google.com/forms/d/e/1FAIpQLSfac01yuHONomvV_ZwBYsErJt4qzxkkBxmr3ncveYkgXvh3tw/viewform
+
+【一年多了，终于回家了...】
+一年多了，终于回家了，希望回家了也不要被监控，辛苦你们了。为工人发声何罪之有？ http://www.douban.com/doubanapp/dispatch?uri=/status/2949349909/%26dt_dapp%3D1
