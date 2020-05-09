@@ -1996,3 +1996,19 @@ https://www.qdaily.com/articles/43562.html
 
 【如果她要出卖血肉才能...】
 如果她要出卖血肉才能摆脱赤贫，那她应该得到救助，而不是更方便地出卖血肉。 http://www.douban.com/group/topic/174521906/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
+
+=======
+
+每日文章精选
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【“后浪”的N种写法。】
+“后浪”的N种写法。 ========================= 图1-9风格分别为：赵孟頫、苏轼、王羲之、欧阳询、董其昌、智永、怀素、文征明、宋徽宗。 http://www.douban.com/people/130560723/status/2947203698
+
+【1956年，法国导演...】
+1956年，法国导演克里斯·马克镜头下的北京，一部时长20分钟的大型Vlog《北京的星期天》。 观看地址： http://www.bilibili.com/video/BV1Zs411i7f4?t=1154
+
+【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
