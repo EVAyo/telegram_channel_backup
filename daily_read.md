@@ -2046,3 +2046,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%
 
 【一年多了，终于回家了...】
 一年多了，终于回家了，希望回家了也不要被监控，辛苦你们了。为工人发声何罪之有？ http://www.douban.com/doubanapp/dispatch?uri=/status/2949349909/%26dt_dapp%3D1
+
+=======
+
+每日文章精选
+
+【一年多了，终于回家了...】
+一年多了，终于回家了，希望回家了也不要被监控，辛苦你们了。为工人发声何罪之有？ http://www.douban.com/doubanapp/dispatch?uri=/status/2949349909/%26dt_dapp%3D1
+
+【1956年，法国导演...】
+1956年，法国导演克里斯·马克镜头下的北京，一部时长20分钟的大型Vlog《北京的星期天》。 观看地址： http://www.bilibili.com/video/BV1Zs411i7f4?t=1154
+
+【我只知道，当我们未经...】
+我只知道，当我们未经反思地任意使用语言时，我们就有为老大哥创造新话的危险。我们就是是真理部本身，也是真理部的奴役对象。我们既是温斯顿，也是老大哥，自己奴役自己而不自知，因为我们以为语言只是思想的工具，能以方便为由任意篡改。 https://t.me/pincongessence
+
+【Marie Solis | 属于99%人群的女权主义】
+http://mp.weixin.qq.com/s?__biz=MzU3ODA5NDU1MA==&amp;mid=2247490365&amp;idx=2&amp;sn=4dc93e4e99c038c6d28d05021e6c6c43&amp;chksm=fd7bcf84ca0c4692a6aa3b9775e9f7e1fa9afd53155e3965817005e9705f3da3938aaa3e29f3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588921953560&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【用人单位不签劳动合同的法律后果有哪些?】
+https://t.me/laodongfa
+
+【#摄影教程分享#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%E5%BD%B1%E6%95%99%E7%A8%8B%E5%88%86%E4%BA%AB%23&isnewpage=1 给大家推荐九本价格十分友好的摄影书籍，想要提高摄影技术，看好的摄影作品是免不了的
+
+【很多人可能第一次听爱...】
+很多人可能第一次听爱因斯坦的嗓音。他的英语并不很流畅，但是很温柔很慈祥。这是他本人讲狭义相对论中质能方程的视频。最后他抬起头，睁着炯炯有神散发着智慧的大眼睛，看着你的时候。。。 http://video.weibo.com/show?fid=1034:4500626285985839
+
+【1980年代，日本摄...】
+1980年代，日本摄影师秋山亮二用相机记录了温柔纯真的中国童年，并出版影集《你好小朋友》。
+
+【关于女权主义的11个刻板印象，你以前意识到过吗？_文化_好奇心日报】
+https://www.qdaily.com/articles/43562.html
+
+【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
