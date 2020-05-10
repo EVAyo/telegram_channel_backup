@@ -2080,3 +2080,37 @@ https://www.qdaily.com/articles/43562.html
 
 【我们的精神角落——豆瓣首部品牌影片，一起探寻我们的精神角落_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
 https://www.bilibili.com/video/av3852306 影评 http://accompanytech.com/archives/534
+
+=======
+
+每日文章精选
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【关于女权主义的11个刻板印象，你以前意识到过吗？_文化_好奇心日报】
+https://www.qdaily.com/articles/43562.html
+
+【1980年代，日本摄...】
+1980年代，日本摄影师秋山亮二用相机记录了温柔纯真的中国童年，并出版影集《你好小朋友》。
+
+【如果她要出卖血肉才能...】
+如果她要出卖血肉才能摆脱赤贫，那她应该得到救助，而不是更方便地出卖血肉。 http://www.douban.com/group/topic/174521906/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
+
+【#摄影教程分享#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%E5%BD%B1%E6%95%99%E7%A8%8B%E5%88%86%E4%BA%AB%23&isnewpage=1 给大家推荐九本价格十分友好的摄影书籍，想要提高摄影技术，看好的摄影作品是免不了的
+
+【欢迎大家参加今年的【...】
+欢迎大家参加今年的【中国女权运动】维基百科编写松！不需要有经验，我们会在一开始讲如何成为维基百科编写人。只要你有能上维基百科的电脑就可以加入！ https://docs.google.com/forms/d/e/1FAIpQLSfac01yuHONomvV_ZwBYsErJt4qzxkkBxmr3ncveYkgXvh3tw/viewform
+
+【情趣用品市场崛起：女性解放还是新一轮规训？】
+1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+【有两种国家的民众喜欢...】
+有两种国家的民众喜欢跟别的国家比： 一种就是统治阶级经常以民族主义、国家主义来教育国民，比如“有国才有家”这样的口号让国民认为国家强大胜过其他一切的价值。比如中国、朝鲜、俄罗斯。 还有一种是自己的国家曾经强盛过比如苏联，或者可以强盛比如印度，现在暂时处于历史落后阶段，这些国家有些民众会特别怀念当年的时代，总幻想可以回到那个时代。 这两种社会有一个共同特征：不是公民社会 —— 即不关心当下社会议题，只喜欢幻想大而泛的东西，比如GDP要成为世界第一该多好，武器秒杀全球走出国门一定会受到外国人惊呼景仰，载人飞船最牛逼就好像全世界目光都盯着自己一样自豪。 实际上，全世界绝大部分国家的人们只关注自己的生活而已。 https://telegra.ph/%25E9%2599%25A4%25E4%25BA%2586%25E4%25B8%25AD%25E5%259B%25BD%25E8%25BF%2598%25E6%259C%2589%25E5%2593%25AA%25E4%25BA%259B%25E5%259B%25BD%25E5%25AE%25B6%25E7%259A%2584%25E5%259B%25BD%25E6%25B0%2591%25E5%2596%259C%25E6%25AC%25A2%25E5%2592%258C%25E5%25A4%2596%25E5%259B%25BD%25E6%25AF%2594-%25E5%258D%2595%25E6%258C%2591%25E5%2585%25A8%25E4%25B8%2596%25E7%2595%258C-05-02
+
+【当代女性是如何遭到"父权制"压迫和剥削的？】
+http://dwz.date/a38J
+
+【杭州女程序员自述：疫情之下被迫离职，仲裁说理被公司索赔百万】
+“2020年4月10日，... (我)礼貌地向负责工资的人事询问当日是否发工资，对方没回复，再问时，发现她把我加黑了。 于是我发了条朋友圈，讨伐人事的职业素养。两个多小时后，他们在公司内部发布了对我的通告，栽赃说因为我广告接入处理不当导致他们海外版的app下架 ... 让我赔偿100万多 ....” http://mp.weixin.qq.com/s?__biz=MzIzNjc1NzUzMw==&amp;mid=2247541248&amp;idx=1&amp;sn=d9c3c9fe4bfd1041d15b03eff212e35f&amp;chksm=e8d09572dfa71c649ddc1f0e7c3356962ade018f23abb75ad0b899fb62fd0da5130894965be4&amp;mpshare=1&amp;scene=1&amp;srcid=0509iOoqhFYmfntvwv7f0pF4&amp;sharer_sharetime=1588999822418&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
