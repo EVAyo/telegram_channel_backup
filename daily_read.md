@@ -2216,3 +2216,37 @@ https://www.bbc.com/zhongwen/trad/chinese-news-52614586
 
 【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
 当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+=======
+
+每日文章精选
+
+【中國「兩會」前致公開信籲啟動國民制憲，知名學者張雪忠被警方帶走】
+https://www.bbc.com/zhongwen/trad/chinese-news-52614586
+
+【网传中传硕士导师薛燕平刁难学生不予毕业致其跳楼离世，如何看待这件事?】
+https://www.zhihu.com/question/393763985/answer/1214545950
+
+【在为人母的温馨表象下，无处释放的生育之痛】
+http://dwz.date/a6Dm
+
+【情趣用品市场崛起：女性解放还是新一轮规训？】
+1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+【当妈妈的这些年】
+我在生孩子之前也算是职场一颗闪亮的新星（人们甩甩手说，还好啦），存了一些钱（人们撇撇嘴，凑合吧），还出过一本书（人们翻翻白眼，也就那样）。然而这一切，在“她生了一对龙凤胎”面前都渺小如尘埃。 https://www.douban.com/note/762016050
+
+【#摄影教程分享#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%E5%BD%B1%E6%95%99%E7%A8%8B%E5%88%86%E4%BA%AB%23&isnewpage=1 给大家推荐九本价格十分友好的摄影书籍，想要提高摄影技术，看好的摄影作品是免不了的
+
+【有的选，才能说结果是...】
+有的选，才能说结果是自由选择。没得选，那是被迫顺从。先看大数据，我国随母姓比例不足10%。“随母姓”搜索联想负面词居多。再看个体论文姐，老公宁可离婚都不同意孩子随母姓，还要被说要孩子随母姓是极端，遭受网暴辱骂。这种环境下让孩子随父姓不是自由选择，是没得选的屈从。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%86%A0%E5%A7%93%E6%9D%83%23&extparam=%23%E5%86%A0%E5%A7%93%E6%9D%83%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%81%A9%E5%92%8C%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23papi%E9%85%B1%23&isnewpage=1
+
+【关于女权主义的11个刻板印象，你以前意识到过吗？_文化_好奇心日报】
+https://www.qdaily.com/articles/43562.html
+
+【#化学题答案像画画#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23&extparam=%23%E5%8C%96%E5%AD%A6%E9%A2%98%E7%AD%94%E6%A1%88%E5%83%8F%E7%94%BB%E7%94%BB%23 【史上最全高中化学方程式】史上最全的高考化学方程式总结，快来看看还有那些没记住的！加油
+
+【#历史影像#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8E%86%E5%8F%B2%E5%BD%B1%E5%83%8F%23&isnewpage=1 江苏无锡，1978年。摄影：赫伯特
