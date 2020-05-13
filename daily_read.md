@@ -2318,3 +2318,37 @@ http://theinitium.com/article/20180505-mainland-earthquake-ten-years-trailer
 
 【Confessions of a bad feminist】
 http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+=======
+
+每日文章精选
+
+【有的选，才能说结果是...】
+有的选，才能说结果是自由选择。没得选，那是被迫顺从。先看大数据，我国随母姓比例不足10%。“随母姓”搜索联想负面词居多。再看个体论文姐，老公宁可离婚都不同意孩子随母姓，还要被说要孩子随母姓是极端，遭受网暴辱骂。这种环境下让孩子随父姓不是自由选择，是没得选的屈从。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%86%A0%E5%A7%93%E6%9D%83%23&extparam=%23%E5%86%A0%E5%A7%93%E6%9D%83%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%81%A9%E5%92%8C%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23papi%E9%85%B1%23&isnewpage=1
+
+【想为在今天这个网络时...】
+想为在今天这个网络时代不完全被数字和符号代表来做一个小斗争, 走出舒适圈打开一个直接交流的窗口 。 Episode 0, 概述我的职业教育经历, 以及F1车队的整体构架和分工。 http://video.weibo.com/show?fid=1034:4503165421420546
+
+【我不喜欢一些明显美化...】
+我不喜欢一些明显美化古代女性处境的作品，也是这个原因，创作者可能觉得自己政治正确，其实是在抹杀悲惨历史=消解抗争正义。 https://m.weibo.cn/status/J1kbIFc7T
+
+【Marie Solis | 属于99%人群的女权主义】
+http://mp.weixin.qq.com/s?__biz=MzU3ODA5NDU1MA==&amp;mid=2247490365&amp;idx=2&amp;sn=4dc93e4e99c038c6d28d05021e6c6c43&amp;chksm=fd7bcf84ca0c4692a6aa3b9775e9f7e1fa9afd53155e3965817005e9705f3da3938aaa3e29f3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588921953560&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【五十五种日本火锅】
+五十五种日本火锅 http://www.douban.com/photos/album/61833713
+
+【中间一度看得我很压抑...】
+中间一度看得我很压抑，二十五分钟看完一集得歇半小时，说实话有些剧情我真不太能理解，可能还是因为一直很空白吧，刷了豆瓣准备有机会读一读原著了，其实我有考虑要不要在Eason把书买回来看完之后今年圣诞的时候送给Anna哈哈哈 http://wx1.sinaimg.cn/large/9176c349gy1geqfrbn88fj20gp16f0wx.jpg 色调与构图 ｜ 普通人 Normal People (2020)
+
+【同性恋演化之谜：同性性吸引源自人类自我驯化？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651423734&amp;idx=1&amp;sn=8892e15002edb8e8bb95dd4878b024ec&amp;chksm=f282315ec5f5b84878eee14654f51fba1ad398b6a94a2b86996d07a82da7c6e1daa25e1ab88c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1588515835746&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【怎样“助推”能最好地...】
+怎样“助推”能最好地让人们珍惜婚姻、并保护婚姻里的弱势方呢？理查德·泰勒（诺贝尔奖得主）提了两个办法，①法律应该默认，离婚时，那些承担孩子主要照看义务的一方得到特殊照顾——这样的话，人们为了在离婚时更有利，在婚姻里就会更积极主动地照顾孩子。双方都多多照顾孩子，矛盾也会比较少，也会更不愿意失去这个家庭。②法律应该默认，离婚后，婚前承担主要照看义务的一方继续承担这一义务，并且受到资助。换句话说，孩子应该判给平常主要带娃的一方，而平常不太带娃的一方需要给钱。理查德·泰勒认为，这样的话，弱势群体的利益才能保证不被侵害。 http://m.weibo.cn/status/J1sy1EZG
+
+【当代女性是如何遭到"父权制"压迫和剥削的？】
+http://dwz.date/a38J
+
+【如果她要出卖血肉才能...】
+如果她要出卖血肉才能摆脱赤贫，那她应该得到救助，而不是更方便地出卖血肉。 http://www.douban.com/group/topic/174521906/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
