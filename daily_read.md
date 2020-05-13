@@ -2250,3 +2250,71 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8C%96%
 
 【#历史影像#】
 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%8E%86%E5%8F%B2%E5%BD%B1%E5%83%8F%23&isnewpage=1 江苏无锡，1978年。摄影：赫伯特
+
+=======
+
+每日文章精选
+
+【大家好，时隔三个月，...】
+大家好，时隔三个月，我们再次开了一个微信讨论小群，名字沿用之前的【围炉夜话】。 我们这个小群对于“友善交流”与“积极参与”的要求比较高，进群请看群规。欢迎大家~
+
+【私处整形手术，正在侵蚀中国女孩的「外阴审美」丨黑皮手册043】
+http://dwz.date/a38G
+
+【情趣用品市场崛起：女性解放还是新一轮规训？】
+1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+【有的选，才能说结果是...】
+有的选，才能说结果是自由选择。没得选，那是被迫顺从。先看大数据，我国随母姓比例不足10%。“随母姓”搜索联想负面词居多。再看个体论文姐，老公宁可离婚都不同意孩子随母姓，还要被说要孩子随母姓是极端，遭受网暴辱骂。这种环境下让孩子随父姓不是自由选择，是没得选的屈从。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%86%A0%E5%A7%93%E6%9D%83%23&extparam=%23%E5%86%A0%E5%A7%93%E6%9D%83%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%81%A9%E5%92%8C%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23papi%E9%85%B1%23&isnewpage=1
+
+【值得一看//@橙雨伞...】
+值得一看//@橙雨伞微博:很棒的演讲。 因为#n号房间# #N号房# 事件和后续发展，想到之前看的这个演讲视频。逆向歧视存在吗？女权活动是对男性的逆向歧视吗？韩国作家孙雅兰 (손아람)在演讲中说，男性所感受到的“逆向歧视”，无一例外是他们为歧视女性所付出的代价。原视频无字幕，字幕由我和@zei肉儿 翻译制作。原视频链接请见评论。 http://t.cn/A6zk4P4E
+
+【乖乖……】
+乖乖…… http://www.douban.com/people/zhaoxun69/status/2952860377
+
+【87版《红楼梦》的几...】
+87版《红楼梦》的几千条字幕都是由李纯博手写的，当时他才二十出头。#冷知识# http://www.douban.com/people/1939857/status/2953449046
+
+【他山之石|资本主义与同性恋身份】
+1. 我们必须直捣黄龙，向那隐含在其下的“同性恋是坏的”观念挑战。我们得避免流入那投机式的防卫方式：只有同性恋者才会成为同性恋者，因此社会大众不应对我们太过担心。 2. 当我们脱离家庭制度的同时，我们也应为自己在社会中开创一种新的、以自由／平等而非剥削／压迫为基础的人际关系。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651200691&amp;idx=1&amp;sn=9b90436d538e9e65dfd5e9a07a300ee6&amp;chksm=f3e6f0afc49179b9470d0667975bdfd762530b9b4197f1e74ec40210589e2f9c53389515a0d3&amp;mpshare=1&amp;scene=1&amp;srcid=0226wRUzbUwMHnl8iOPb0mHu&amp;sharer_sharetime=1587881846175&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【#摄影教程分享#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%91%84%E5%BD%B1%E6%95%99%E7%A8%8B%E5%88%86%E4%BA%AB%23&isnewpage=1 给大家推荐九本价格十分友好的摄影书籍，想要提高摄影技术，看好的摄影作品是免不了的
+
+【买买买正在毁掉中国女性？ | “当消费主义遇见女权”活动文字版 - Matters】
+当我越是了解这个社会，就越是感觉到，没有任何国度是属于女性的。诉诸于任何人类已有的系统构架——无论它是什么，社会体制、政治、经济、文化、各种主义也好——都没有女性主体存在的空间（至少远远不够）。女性长期在人类中缺位，在人类解释世界的经验中失语，这就是为什么我们需要独立的女权主义。 所以当你发现资本和技术都在为男权张目，却还有人试图说服你这就是“理性”，而你不要“感情用事”时，请大胆地嗤之以鼻。 http://bit.ly/2S8bp2S
+
+=======
+
+每日文章精选
+
+【五十五种日本火锅】
+五十五种日本火锅 http://www.douban.com/photos/album/61833713
+
+【中间一度看得我很压抑...】
+中间一度看得我很压抑，二十五分钟看完一集得歇半小时，说实话有些剧情我真不太能理解，可能还是因为一直很空白吧，刷了豆瓣准备有机会读一读原著了，其实我有考虑要不要在Eason把书买回来看完之后今年圣诞的时候送给Anna哈哈哈 http://wx1.sinaimg.cn/large/9176c349gy1geqfrbn88fj20gp16f0wx.jpg 色调与构图 ｜ 普通人 Normal People (2020)
+
+【87版《红楼梦》的几...】
+87版《红楼梦》的几千条字幕都是由李纯博手写的，当时他才二十出头。#冷知识# http://www.douban.com/people/1939857/status/2953449046
+
+【可参考】
+可参考 http://www.douban.com/people/1453301/status/2954223535
+
+【想为在今天这个网络时...】
+想为在今天这个网络时代不完全被数字和符号代表来做一个小斗争, 走出舒适圈打开一个直接交流的窗口 。 Episode 0, 概述我的职业教育经历, 以及F1车队的整体构架和分工。 http://video.weibo.com/show?fid=1034:4503165421420546
+
+【即使是在最黑暗的时代...】
+即使是在最黑暗的时代，人们还是有期望光明的权利，而光明与其说来自于理论与观念，不如说是来自于凡夫俗子所发出的莹莹微光。当众星火看见彼此，每一朵火焰便更为明亮，因为它们看见对方，并期待相互辉映。 http://m.weibo.cn/status/J1zXddH4p
+
+【情趣用品市场崛起：女性解放还是新一轮规训？】
+1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+【当代女性是如何遭到"父权制"压迫和剥削的？】
+http://dwz.date/a38J
+
+【四川地震十年，回到人事已非的現場】
+http://theinitium.com/article/20180505-mainland-earthquake-ten-years-trailer
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
