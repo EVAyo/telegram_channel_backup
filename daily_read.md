@@ -2590,3 +2590,37 @@ We found that seahorse pregnancy is incredibly complex: more than 3,000 differen
 
 【中午办公室给这个月生...】
 中午办公室给这个月生日的同事庆生，有个同事自己选的礼物是Trevor Noah的Born A Crime，她拿到书后随便翻了一下，发现了一行被修改液涂掉的文字。在好奇心驱动下，我们刮开了一部分，并从反面对着阳光看，最终破译了这行文字：The only place she would have less value woule be China. http://www.douban.com/doubanapp/dispatch?uri=/status/2957431139/%26dt_dapp%3D1
+
+=======
+
+每日文章精选
+
+【情趣用品市场崛起：女性解放还是新一轮规训？】
+1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+【The secret sex life and pregnancy of a seahorse dad】
+We found that seahorse pregnancy is incredibly complex: more than 3,000 different genes are involved. When we examined them in detail, we found genes involved in many different processes. We even discovered genes allowing seahorse fathers to provide nutrients to their developing embryos. https://theconversation.com/the-secret-sex-life-and-pregnancy-of-a-seahorse-dad-46599
+
+【#在此见字如面#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%9C%A8%E6%AD%A4%E8%A7%81%E5%AD%97%E5%A6%82%E9%9D%A2%23&isnewpage=1 纯享版：董勇《易胜华写给友人》 @腾讯视频 http://m.v.qq.com/play/play.html?coverid=22d2cnyzozxycs6&vid=y0030jul3xm&vuid24=ZHVfhcb3RAaYg%2F7Qg%2B0pYQ%3D%3D&url_from=share&second_share=0&share_from=sina 相关： http://zh.wikipedia.org/wiki/%25E8%258B%258F%25E4%25BA%25AB%25E8%258C%2582%25E8%2587%25AA%25E6%259D%2580%25E4%25BA%258B%25E4%25BB%25B6
+
+【我不喜欢一些明显美化...】
+我不喜欢一些明显美化古代女性处境的作品，也是这个原因，创作者可能觉得自己政治正确，其实是在抹杀悲惨历史=消解抗争正义。 https://m.weibo.cn/status/J1kbIFc7T
+
+【将女性束缚于母性，是父权制的圈套丨单读】
+http://mp.weixin.qq.com/s?__biz=MzA3MzYzNjMyMA==&amp;mid=2650194690&amp;idx=1&amp;sn=5bde7e2eacbf6fcca546375b17dbc676&amp;chksm=870e638db079ea9b4ebf228fea8c0aa9d495625ab24a10c2919f5a06dfba14735da7b80d5c82&amp;mpshare=1&amp;scene=1&amp;srcid=0510dpykHVnn8xZu5qXllY22&amp;sharer_sharetime=1589119597574&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【作为女性，我想去女性化地生活着】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485383&amp;idx=1&amp;sn=e35020e17ebe71d471e1c8c22e66c211&amp;chksm=fa6ab6f4cd1d3fe2ce0df3f54518434945b8f6ca2664c951414e9cf3ea5799b5ca751ca3c0b8&amp;mpshare=1&amp;scene=1&amp;srcid=0513sOVp5HqhG1fog0zpn95p&amp;sharer_sharetime=1589344540821&amp;sharer_shareid=fdefb30d495101640be1fc9f48f1af41#rd
+
+【“有毒的男性气质”是怎样伤害所有性别和所有人的？】
+“性别文化的能量就是这么强大，它迫使男性将自己很大一部分人生意义，放在了持续不断地证明自己的“男性气质”上面。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505162&amp;idx=1&amp;sn=4adc34ed269e2a56c76574b0501be624&amp;chksm=fb7327a9cc04aebfc0d6ccd015f7a99556f20960bf2fec1ae003096d6d83d2a598d7fbb48301&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589184434243&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【救救孩子，他已经被网...】
+救救孩子，他已经被网暴了，一个初中生，遭遇这些，压力有多大啊，天哪@白驹青烟 小朋友，首先感谢你的曝光，你要相信这事一定能过去，实在不行就转学，有经济压力可以直说，我们都可以帮忙 #227历史时刻超话#本山东人告诉你们学生、教师这件事越闹大越好。说实话山东官僚思想挺重的，再加上孔孟。一些领导第一时间会把这件事往下压，只有压不了才管允悲允悲这事要往省里捅，如果这事被压下去，那个录屏的学生后果很不好，不仅要向老师道歉还要进档案，甚至在学校里老师会找各种理由报复学生。这事越大越好。给你们推荐俺们推荐一齐鲁台节目和热线电话 大爷大妈们忠爱(齐鲁台):么哥拉呱热线电话:0531－88881234 热心生活帮:96005900 1818黄金眼:0571-88001818 山东教育厅办公室(综合):0531－81916615(工作日)、0531－81916500(非工作日) http://m.weibo.cn/status/J1VSFiCcc
+
+【想为在今天这个网络时...】
+想为在今天这个网络时代不完全被数字和符号代表来做一个小斗争, 走出舒适圈打开一个直接交流的窗口 。 Episode 0, 概述我的职业教育经历, 以及F1车队的整体构架和分工。 http://video.weibo.com/show?fid=1034:4503165421420546
+
+【福建厦门莲花中学初二...】
+福建厦门莲花中学初二某班主任(庄姓)微笑花了整整两节课的时间向全班学生演讲：为何自己要拖家带口粉肖战？为何肖战可以成为学生的榜样 【评论】上课不讲课的老师真的很D区，前几天英语课的一男老师也是，不讲英语公然发表“男女根本不需要平权”的恶臭言论，还从冠夫姓谈到了“中国女性结婚不用随夫姓应该感恩戴德”，从头到尾一直在说“中国女性地位已经很高了”。 http://m.weibo.cn/status/J233CtbWx
