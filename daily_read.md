@@ -2556,3 +2556,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%9C%A8%
 
 【情趣用品市场崛起：女性解放还是新一轮规训？】
 1. 将女性性羞耻转化为贩卖性焦虑：高潮之于女性生活的重要性被过分夸大。 2. 将性观念与技术连同性别刻板印象打包发售，比如”新时代女性需要观念开放，技术过关，才能留住另一半。“ http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153255&amp;idx=1&amp;sn=c9d772a67468f724140186d115868ac4&amp;chksm=8c4bcb73bb3c4265aea5d513c9563943ebb3506d75433972744659e2471a9adea47fabe93993&amp;mpshare=1&amp;scene=1&amp;srcid=0510ryT3OFmbsvA6KI6FIIgg&amp;sharer_sharetime=1589047401679&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432#rd
+
+=======
+
+每日文章精选
+
+【当妈妈的这些年】
+我在生孩子之前也算是职场一颗闪亮的新星（人们甩甩手说，还好啦），存了一些钱（人们撇撇嘴，凑合吧），还出过一本书（人们翻翻白眼，也就那样）。然而这一切，在“她生了一对龙凤胎”面前都渺小如尘埃。 https://www.douban.com/note/762016050
+
+【有的选，才能说结果是...】
+有的选，才能说结果是自由选择。没得选，那是被迫顺从。先看大数据，我国随母姓比例不足10%。“随母姓”搜索联想负面词居多。再看个体论文姐，老公宁可离婚都不同意孩子随母姓，还要被说要孩子随母姓是极端，遭受网暴辱骂。这种环境下让孩子随父姓不是自由选择，是没得选的屈从。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%86%A0%E5%A7%93%E6%9D%83%23&extparam=%23%E5%86%A0%E5%A7%93%E6%9D%83%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%81%A9%E5%92%8C%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23papi%E9%85%B1%23&isnewpage=1
+
+【橙志学术∣中国山村的小学生为什么会辍学？】
+http://mp.weixin.qq.com/s?src=11&timestamp=1589403682&ver=2336&signature=HXNmhf6aE--HXW3XOkwKrTk6iOZGVcWiZl5rk3ZA3Zqjy03tx-vZjLl3llcrJYzCoSihdYme-QKNCiG-6CblgBlQ7om1A6YrxJ9exqWb0oJdum-jkbt0mIyB08d0FTzk&new=1 ?q=%23ChangeMakers%E6%A9%99%E5%BF%97%E6%80%A7%E5%88%AB%E5%B9%B3%E7%AD%89 ?q=%23%E6%95%99%E8%82%B2 ?q=%23%E5%AD%A9%E5%AD%90 ?q=%23%E5%AD%A6%E6%A0%A1 ?q=%23%E7%A0%94%E7%A9%B6 ?q=%23%E8%AF%BB%E4%B9%A6
+
+【在母亲节到来前的一个...】
+在母亲节到来前的一个雨天，我们和作家辽京（@喵一声飞走的辽京）——一位已经和孩子“困在”家中近半年时间的妈妈，进行了一次愉快又感人的聊天。这便是我们#随机波动#的第7期节目，主题为「母子之间：自由后的哀伤，分离中的承继」，阅读及收听为 http://t.cn/A6A3MNC6 。 这次聊天对辽京而言是一次难得的喘息机会，她得以将母亲身份短暂搁置，获得片刻的休息与自由。对冷建国和适野而言，这番对话让我们重新审视自己作为女儿的身份，并反思当我们认为母亲难以与子女完成真正的分离时，是否存在着下意识的对于母亲的脆弱化想象。 正如辽京所言，成为母亲是一场从痛苦走向失控的冒险，是一次从孕育走向分离的必然，是一番从失去自我到挣扎着发现自我的反抗异化的斗争。当孩子第一次向母亲说No，当母亲成为他辨识世界的最便利的起点与标准，当孩子渐渐发现母亲的缺点和谎言，当母子之爱变为无边无际的对抗，母亲自我的回归伴随着沉重的失落，而孩子自我的壮大或许也在走向新的为人父为人母的枷锁。 这一期从阅读观剧感受最终回归自身生命经验的节目，让我们不断重新审视自我，也让一系列关于母亲的思考沉重丰厚、永无止境——除了爱与怨，我们还能以何种视角审视母亲？除了母亲的身份，女性的自我还有哪些可能？除了父亲母亲，我们如何在世间与他人建立爱的联结？除了孩子，我们还能为这个世界留下些什么？ #剩余价值超话#
+
+【敲锣救母当事人微博号...】
+敲锣救母当事人微博号疑被宣传组织代管。 http://www.douban.com/people/1102609/status/2957591764
+
+【平平凡凡的日常就很治...】
+平平凡凡的日常就很治愈，这是我经常来的一个小公园，坐在长椅上，看一些爸爸们带着小孩在这里踢足球玩棒球，只是看着就很开心 http://wx2.sinaimg.cn/large/755ce8eegy1ger4kqjuw0j20u01hd1kx.jpg //@得得乐乐烊:普普通通的每天，虽然偶尔也有点点波澜，但没关系的，不经意的那些美好也会温暖你，带给我们或多或少的温暖和鼓励，谢谢生活里的每一个人 -收集这世间的阳光，让内心多一分明亮 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23kelvin%E6%9D%8E%23&extparam=%23kelvin%E6%9D%8E%23 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%B0%B1%E8%A6%81%E8%BF%99young%E6%8B%8D%23&extparam=%23%E5%B0%B1%E8%A6%81%E8%BF%99young%E6%8B%8D%23
+
+【将女性束缚于母性，是父权制的圈套丨单读】
+http://mp.weixin.qq.com/s?__biz=MzA3MzYzNjMyMA==&amp;mid=2650194690&amp;idx=1&amp;sn=5bde7e2eacbf6fcca546375b17dbc676&amp;chksm=870e638db079ea9b4ebf228fea8c0aa9d495625ab24a10c2919f5a06dfba14735da7b80d5c82&amp;mpshare=1&amp;scene=1&amp;srcid=0510dpykHVnn8xZu5qXllY22&amp;sharer_sharetime=1589119597574&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【很多人可能第一次听爱...】
+很多人可能第一次听爱因斯坦的嗓音。他的英语并不很流畅，但是很温柔很慈祥。这是他本人讲狭义相对论中质能方程的视频。最后他抬起头，睁着炯炯有神散发着智慧的大眼睛，看着你的时候。。。 http://video.weibo.com/show?fid=1034:4500626285985839
+
+【The secret sex life and pregnancy of a seahorse dad】
+We found that seahorse pregnancy is incredibly complex: more than 3,000 different genes are involved. When we examined them in detail, we found genes involved in many different processes. We even discovered genes allowing seahorse fathers to provide nutrients to their developing embryos. https://theconversation.com/the-secret-sex-life-and-pregnancy-of-a-seahorse-dad-46599
+
+【中午办公室给这个月生...】
+中午办公室给这个月生日的同事庆生，有个同事自己选的礼物是Trevor Noah的Born A Crime，她拿到书后随便翻了一下，发现了一行被修改液涂掉的文字。在好奇心驱动下，我们刮开了一部分，并从反面对着阳光看，最终破译了这行文字：The only place she would have less value woule be China. http://www.douban.com/doubanapp/dispatch?uri=/status/2957431139/%26dt_dapp%3D1
