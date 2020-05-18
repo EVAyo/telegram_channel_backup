@@ -2760,3 +2760,37 @@ http://m.weibo.cn/status/J2geDfUlX
 
 【漢字紋樣】
 漢字紋樣 http://www.douban.com/note/762871233
+
+=======
+
+每日文章精选
+
+【每次都想把这段话重新...】
+每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
+
+【加州大学的学生劳工，应从何处获得力量？｜马各庄国际】
+https://www.douban.com/note/762069867
+
+【她们的母亲节，无法申领生育保险】
+我们迫切希望联结更多的单妈群体，为她们发声， 我们希望在这个母亲节，帮助更多的单妈拿到属于她原有的那部分生育保险。 http://dwz.date/aDav
+
+【5月14号，“一兆韦...】
+5月14号，“一兆韦德健身”会员小宋，被健身房教练暴打11个巴掌。当事教练已被拘留，“一兆韦德”至今未道歉。 http://m.weibo.cn/detail/4505341469769242
+
+【数学动画：勾股定理】
+数学动画：勾股定理 背景音乐：光辉岁月 一生要走多远的路程 经过多少年 才能走到终点…… http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23&extparam=%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23 http://video.weibo.com/show?fid=1034:4505711917596684
+
+【清湖学堂正式关闭的声...】
+清湖学堂正式关闭的声明，来源自微博@五金利达2019，原链接： http://weibo.com/7135524435/HwBkkeWCD
+
+【还是那个问题，在被非...】
+还是那个问题，在被非正当“执法”的情况下，公民如何自保，何以能够以“公共安全”的名义剥夺个人正当的抗争？ http://video.weibo.com/show?fid=1034:4505357158907915
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【敲锣救母当事人微博号...】
+敲锣救母当事人微博号疑被宣传组织代管。 http://www.douban.com/people/1102609/status/2957591764
+
+【中午办公室给这个月生...】
+中午办公室给这个月生日的同事庆生，有个同事自己选的礼物是Trevor Noah的Born A Crime，她拿到书后随便翻了一下，发现了一行被修改液涂掉的文字。在好奇心驱动下，我们刮开了一部分，并从反面对着阳光看，最终破译了这行文字：The only place she would have less value woule be China. http://www.douban.com/doubanapp/dispatch?uri=/status/2957431139/%26dt_dapp%3D1
