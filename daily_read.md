@@ -2828,3 +2828,37 @@ http://dwz.date/aD6n
 
 【祝福韩国】
 祝福韩国 http://m.weibo.cn/status/J2yel1qdl
+
+=======
+
+每日文章精选
+
+【每次都想把这段话重新...】
+每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
+
+【source】
+http://m.weibo.cn/status/J2geDfUlX
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
+
+【歧视，打拳和批判性武器】
+「打拳」惹到了处在优势地位的人，让他们看到了等级秩序被拉平、利益被均分、甚至是被追究责任的可能。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651202224&amp;idx=1&amp;sn=9ec4e1d2568257a7585694d476f57ecf&amp;chksm=f3e6ceacc49147ba699ad32f59dd3aa08c994ad6f1b819dac50d293f906093d9372d83ccbadc&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589624506678&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【四面望青山，浑如蓬莱...】
+四面望青山，浑如蓬莱间（西湖•云海2020） http://www.douban.com/people/47029943/status/2962299643
+
+【《夜巡》荷兰国立博物...】
+《夜巡》荷兰国立博物馆刚刚公布了史上最最最最高清的图像-448亿像素（44804687500 pixels），每个像素间距0.02毫米——高清到可以看到画作上每一个微小的痕迹！ 前年在国立博物馆走马观花没有细细端详这幅巨作，现在存在手机随时看，科技真真是美化生活呀！ http://www.douban.com/people/1227291/status/2961796530
+
+【加州大学的学生劳工，应从何处获得力量？｜马各庄国际】
+https://www.douban.com/note/762069867
+
+【卡夫卡發明了安全帽】
+卡夫卡發明了安全帽 http://www.douban.com/people/78612569/status/2960071133
+
+【祝福韩国】
+祝福韩国 http://m.weibo.cn/status/J2yel1qdl
+
+【土耳其左翼音乐人为反...】
+土耳其左翼音乐人为反抗土耳其当局，绝食离世。 http://mp.weixin.qq.com/s?__biz=MzI0MDEyMzkzMg==&mid=2650468455&idx=2&sn=60fe87566e9d347c5276f5a05684167f&chksm=f111f914c6667002d20fe6b29895d046088b96cbd42f9b2855e6c897127997b6c51720f7f016&mpshare=1&scene=1&srcid=&sharer_sharetime=1589841198581&sharer_shareid=8a5226078dfff2e4b31ed1a756e9a4c8#rd
