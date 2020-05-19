@@ -2862,3 +2862,37 @@ https://www.douban.com/note/762069867
 
 【土耳其左翼音乐人为反...】
 土耳其左翼音乐人为反抗土耳其当局，绝食离世。 http://mp.weixin.qq.com/s?__biz=MzI0MDEyMzkzMg==&mid=2650468455&idx=2&sn=60fe87566e9d347c5276f5a05684167f&chksm=f111f914c6667002d20fe6b29895d046088b96cbd42f9b2855e6c897127997b6c51720f7f016&mpshare=1&scene=1&srcid=&sharer_sharetime=1589841198581&sharer_shareid=8a5226078dfff2e4b31ed1a756e9a4c8#rd
+
+=======
+
+每日文章精选
+
+【土耳其左翼音乐人为反...】
+土耳其左翼音乐人为反抗土耳其当局，绝食离世。 http://mp.weixin.qq.com/s?__biz=MzI0MDEyMzkzMg==&mid=2650468455&idx=2&sn=60fe87566e9d347c5276f5a05684167f&chksm=f111f914c6667002d20fe6b29895d046088b96cbd42f9b2855e6c897127997b6c51720f7f016&mpshare=1&scene=1&srcid=&sharer_sharetime=1589841198581&sharer_shareid=8a5226078dfff2e4b31ed1a756e9a4c8#rd
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【517国际不再恐同日...】
+517国际不再恐同日。网络世界里年轻人声量大，对LGBT接受度与上一代人相比已明显提高，这一直给我们幻觉，以为挂挂彩虹旗、喊喊口号就可以表达支持。然而仅就影视作品和文学作品而言，LGBT相关内容已在相当长的一段时间里遭遇审查、删减、下架、封禁。LGBT需要被看见，需要被表达，需要被听到。 http://m.weibo.cn/status/J2mAf2MN3
+
+【加州大学的学生劳工，应从何处获得力量？｜马各庄国际】
+https://www.douban.com/note/762069867
+
+【同性婚姻、性少数权益与「道德滑坡」论】
+http://dwz.date/aD6n
+
+【www...】
+http://www.yhcqw.com/13/9022.html 档案记载的苏联饥荒（1929－1934）
+
+【每次都想把这段话重新...】
+每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
+
+【祝福韩国】
+祝福韩国 http://m.weibo.cn/status/J2yel1qdl
+
+【歧视，打拳和批判性武器】
+「打拳」惹到了处在优势地位的人，让他们看到了等级秩序被拉平、利益被均分、甚至是被追究责任的可能。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651202224&amp;idx=1&amp;sn=9ec4e1d2568257a7585694d476f57ecf&amp;chksm=f3e6ceacc49147ba699ad32f59dd3aa08c994ad6f1b819dac50d293f906093d9372d83ccbadc&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589624506678&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
