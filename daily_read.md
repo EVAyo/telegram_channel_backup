@@ -2896,3 +2896,37 @@ http://www.yhcqw.com/13/9022.html 档案记载的苏联饥荒（1929－1934）
 
 【歧视，打拳和批判性武器】
 「打拳」惹到了处在优势地位的人，让他们看到了等级秩序被拉平、利益被均分、甚至是被追究责任的可能。 http://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&amp;mid=2651202224&amp;idx=1&amp;sn=9ec4e1d2568257a7585694d476f57ecf&amp;chksm=f3e6ceacc49147ba699ad32f59dd3aa08c994ad6f1b819dac50d293f906093d9372d83ccbadc&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589624506678&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+=======
+
+每日文章精选
+
+【每次都想把这段话重新...】
+每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
+
+【从强制剃头到网络喷子，集体羞辱是如何常态化的？】
+http://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247497218&amp;idx=1&amp;sn=bbdc018181a721e4da023f9dac4830c7&amp;chksm=eb66407bdc11c96de471b9579789803f02aaf9f6ff6434a7cd96f87e6f58633a124959da8756&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589940126564&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【www...】
+http://www.yhcqw.com/13/9022.html 档案记载的苏联饥荒（1929－1934）
+
+【这是已停播的节目《看...】
+这是已停播的节目《看见》记录的一个故事，新疆人阿里木的侠骨丹心令人感动。事隔经年，阿里木的故事早已被大众淡忘，而如今江湖上的侠骨也恐怕不多了…… 　　我敬佩他，敬佩一切对众生含一念之仁者，敬佩一切为众生而甘舍己者，是这些人在长夜里提灯而行，让我们看到了人性的光辉。 http://www.douban.com/people/175242698/status/2884877984
+
+【【科普：如何科学地给...】
+【科普：如何科学地给化石和文物定年？】 1. 木年轮 2. 氨基酸外消旋 3. 热释光 4. 放射半衰 每种方法都有适用范围与误差。碳14在空气中的浓度并不恒定，外消旋与热释光受温度与光照影响大，遗迹里也常无可定年树木。综合多种方法，可获取更精准的定年。#国际博物馆日# http://m.weibo.cn/status/J2loarZYl 【注】热释光效应：晶体被加热时，晶格缺陷中的电磁辐射以光子的形式释放出来。
+
+【《夜巡》荷兰国立博物...】
+《夜巡》荷兰国立博物馆刚刚公布了史上最最最最高清的图像-448亿像素（44804687500 pixels），每个像素间距0.02毫米——高清到可以看到画作上每一个微小的痕迹！ 前年在国立博物馆走马观花没有细细端详这幅巨作，现在存在手机随时看，科技真真是美化生活呀！ http://www.douban.com/people/1227291/status/2961796530
+
+【Andy Warho...】
+Andy Warhol 变成了吉露果冻，Jeff Koons变成了镀金杯里的热白巧克力，Cindy Sherman则变成了一个漂浮的撒着亮片儿的粉色冰激凌。 这些都是由Caitlin Freeman创造的可以食用的艺术。她从SFMOMA（旧金山现代艺术博物馆）的艺术作品中获得灵感来制作甜点。 同时她也写了一本书《Modern Art Desserts》来记录自己作品的制作方法和故事，以及自己的理想工作：用食物反映艺术。 http://m.weibo.cn/status/J2wpHi8R8
+
+【Graduate Student Solves Decades-Old Conway Knot Problem】
+https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-problem-20200519
+
+【如何才能逃离精英主义陷阱？】
+那些我们通常认为的精英品质，其实只是一种意识形态的牵强附会，被创造出来用来给一种不公平的利益分配进行洗白。 https://mp.weixin.qq.com/s/84kBdF1qrZRAFBmvJQBfFA
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
