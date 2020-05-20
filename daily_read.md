@@ -2930,3 +2930,37 @@ https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-p
 
 【#男权口中的田园女权...】
 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+=======
+
+每日文章精选
+
+【卡夫卡發明了安全帽】
+卡夫卡發明了安全帽 http://www.douban.com/people/78612569/status/2960071133
+
+【这是已停播的节目《看...】
+这是已停播的节目《看见》记录的一个故事，新疆人阿里木的侠骨丹心令人感动。事隔经年，阿里木的故事早已被大众淡忘，而如今江湖上的侠骨也恐怕不多了…… 　　我敬佩他，敬佩一切对众生含一念之仁者，敬佩一切为众生而甘舍己者，是这些人在长夜里提灯而行，让我们看到了人性的光辉。 http://www.douban.com/people/175242698/status/2884877984
+
+【《夜巡》荷兰国立博物...】
+《夜巡》荷兰国立博物馆刚刚公布了史上最最最最高清的图像-448亿像素（44804687500 pixels），每个像素间距0.02毫米——高清到可以看到画作上每一个微小的痕迹！ 前年在国立博物馆走马观花没有细细端详这幅巨作，现在存在手机随时看，科技真真是美化生活呀！ http://www.douban.com/people/1227291/status/2961796530
+
+【追查300天，我终于抓住了制造“真人充气娃娃”恶魔的尾巴】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489856&amp;idx=1&amp;sn=503b04ec909485e38fc1a91bb50ab2cc&amp;chksm=fade5ad2cda9d3c441cb9caa68c2b14aa8d999a4b4ace69e715612e0cfb015671b97972452c9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589962246120&amp;sharer_shareid=ae1b8bc9bb872a6571f5641923edbdb8#rd
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【「996」周年祭：中国劳动者依旧在忍受全球最严苛的时间剥削】
+http://mp.weixin.qq.com/s?__biz=MzA3Njg1MTkwNg==&amp;mid=2247484597&amp;idx=1&amp;sn=7e71b1b8a566c6a71dfd6279c5855f56&amp;chksm=9f5bbb18a82c320e17f680c7edb7d39a920c640f2ab14352fbb5e3fb5c5973bbaf71897b45ff&amp;mpshare=1&amp;scene=1&amp;srcid=0518l5l5i1kqqWMTSBC8aIZd&amp;sharer_sharetime=1589956352461&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【Graduate Student Solves Decades-Old Conway Knot Problem】
+https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-problem-20200519
+
+【Small Worl...】
+Small Worlds IV, Wassily Kandinsky 暴君的墓志铭 他所追求的，是某种完美典范， 而他杜撰出的诗篇也不难领会； 他了解人类的愚蠢如熟悉自己的手背， 对军队和战舰也抱有莫大的兴趣； 当他大笑，可敬的参议员们笑成一片； 当他大叫，小孩子们就会在街头死去。 (W • H • 奧登）
+
+【【三吉彩花主演百合片...】
+【三吉彩花主演百合片《女儿们》定档9月18日】三吉彩花、阿部纯子、黑谷友香、大方斐纱子、鹤见辰吾、大塚宁宁主演，聚焦在东京过着合租生活的两位女性的爱情。三吉彩花饰演活动策划小春，阿部纯子饰演时尚公关彩乃。彩乃发现自己怀孕了，决定成为一名单亲妈妈，小春在照顾彩乃的过程中逐渐产生了暧昧的情愫。津田肇编剧执导，9月18日日本上映！ http://m.weibo.cn/status/J2OZxy8o7
