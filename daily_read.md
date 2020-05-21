@@ -2964,3 +2964,37 @@ Small Worlds IV, Wassily Kandinsky 暴君的墓志铭 他所追求的，是某�
 
 【【三吉彩花主演百合片...】
 【三吉彩花主演百合片《女儿们》定档9月18日】三吉彩花、阿部纯子、黑谷友香、大方斐纱子、鹤见辰吾、大塚宁宁主演，聚焦在东京过着合租生活的两位女性的爱情。三吉彩花饰演活动策划小春，阿部纯子饰演时尚公关彩乃。彩乃发现自己怀孕了，决定成为一名单亲妈妈，小春在照顾彩乃的过程中逐渐产生了暧昧的情愫。津田肇编剧执导，9月18日日本上映！ http://m.weibo.cn/status/J2OZxy8o7
+
+=======
+
+每日文章精选
+
+【卡夫卡發明了安全帽】
+卡夫卡發明了安全帽 http://www.douban.com/people/78612569/status/2960071133
+
+【四面望青山，浑如蓬莱...】
+四面望青山，浑如蓬莱间（西湖•云海2020） http://www.douban.com/people/47029943/status/2962299643
+
+【同性婚姻、性少数权益与「道德滑坡」论】
+http://dwz.date/aD6n
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【James Turr...】
+James Turrell Spend time facing light in nature. 当时间遇上光芒，天空是大自然的创想。 詹姆斯·特瑞尔1943年出生于美国洛杉矶，是南加州光与空间运动的代表艺术家之一。他善于使用“光与空间”作为媒介，表现与探索人们对于感知、感官刺激、空间转换的视觉与心理反应。光的创作能从看似非物质中唤起参观者对物质的感知。 http://m.weibo.cn/status/J2CT3DJIM
+
+【520放映 | 一部伟大的女性史诗 · 幕后故事】
+http://mp.weixin.qq.com/s?__biz=MzIwNDc3MDY0OA==&amp;mid=2247487160&amp;idx=1&amp;sn=e633037237b2a359516a92a3cf8670e4&amp;chksm=973a528fa04ddb99691a505c508ad8c475353fbbc17b13e3b98aceaaa447f871dc668dad8a2c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589956254097&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【Small Worl...】
+Small Worlds IV, Wassily Kandinsky 暴君的墓志铭 他所追求的，是某种完美典范， 而他杜撰出的诗篇也不难领会； 他了解人类的愚蠢如熟悉自己的手背， 对军队和战舰也抱有莫大的兴趣； 当他大笑，可敬的参议员们笑成一片； 当他大叫，小孩子们就会在街头死去。 (W • H • 奧登）
+
+【「996」周年祭：中国劳动者依旧在忍受全球最严苛的时间剥削】
+http://mp.weixin.qq.com/s?__biz=MzA3Njg1MTkwNg==&amp;mid=2247484597&amp;idx=1&amp;sn=7e71b1b8a566c6a71dfd6279c5855f56&amp;chksm=9f5bbb18a82c320e17f680c7edb7d39a920c640f2ab14352fbb5e3fb5c5973bbaf71897b45ff&amp;mpshare=1&amp;scene=1&amp;srcid=0518l5l5i1kqqWMTSBC8aIZd&amp;sharer_sharetime=1589956352461&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【李永乐老师刚刚在油管...】
+李永乐老师刚刚在油管上上传了一支关于自闭谱系障碍的视频，概括简单明了。转一下视频的最后一分钟，希望会有更多的专业的自闭症干预机构。 http://video.weibo.com/show?fid=1034:4506758799097890
+
+【每次都想把这段话重新...】
+每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
