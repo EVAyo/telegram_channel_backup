@@ -3032,3 +3032,20 @@ http://m.weibo.cn/status/J2STMiaqh
 
 【Confessions of a bad feminist】
 http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+=======
+
+======= 频道推荐 =======
+
+读书讨论 @dushufenxiang_chat
+豆瓣精选 @douban_read
+程序员之家 @useless_project_ideas
+写作交流 @writing_discuss
+读书分享 @dushufenxiang
+微博精选 @weibo_read
+平权观察 @equality_and_rights
+政治观察 @freedom_watch
+
+=======================
+频道/群组合集: https://bit.ly/35UdTaE
+投稿请联系: @b4cxb
