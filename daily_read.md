@@ -2998,3 +2998,37 @@ http://mp.weixin.qq.com/s?__biz=MzA3Njg1MTkwNg==&amp;mid=2247484597&amp;idx=1&am
 
 【每次都想把这段话重新...】
 每次都想把这段话重新发出来让“平权仙子”们少发点疯，现在看来不切实际，人要是不疯到一定程度，能说得出她们那么无耻又恶毒的话来？ http://m.weibo.cn/status/J2jmfALks
+
+=======
+
+每日文章精选
+
+【「996」周年祭：中国劳动者依旧在忍受全球最严苛的时间剥削】
+http://mp.weixin.qq.com/s?__biz=MzA3Njg1MTkwNg==&amp;mid=2247484597&amp;idx=1&amp;sn=7e71b1b8a566c6a71dfd6279c5855f56&amp;chksm=9f5bbb18a82c320e17f680c7edb7d39a920c640f2ab14352fbb5e3fb5c5973bbaf71897b45ff&amp;mpshare=1&amp;scene=1&amp;srcid=0518l5l5i1kqqWMTSBC8aIZd&amp;sharer_sharetime=1589956352461&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【汪曾祺《露水》】
+http://telegra.ph/%25E6%25B1%25AA%25E6%259B%25BE%25E7%25A5%25BA%25E9%259C%25B2%25E6%25B0%25B4-05-21
+
+【我国强制报告制度的演变历程】
+http://mp.weixin.qq.com/s?src=11&timestamp=1590019097&ver=2351&signature=xkxKeuWMo9muPGGbxKexxuxa53g9ST8GLQtjov1Ir-mY1pJtLPiMK2WNX7DV0l*6EHDWtvTyTaULvLu1bjayPThWLXQHDXSnr3l1xDoDW-syrybVgiW2LddmClwIExpX&new=1 ?q=%23%E5%8C%97%E4%BA%AC%E5%B8%82%E5%8D%83%E5%8D%83%E5%BE%8B%E5%B8%88%E4%BA%8B%E5%8A%A1%E6%89%80 ?q=%23%E5%BC%BA%E5%88%B6%E6%8A%A5%E5%91%8A ?q=%23%E5%88%B6%E5%BA%A6 ?q=%23%E6%9C%AA%E6%88%90%E5%B9%B4%E4%BA%BA ?q=%23%E7%9B%91%E6%8A%A4
+
+【我手写我心。】
+我手写我心。 http://www.douban.com/people/67709637/status/2963649309
+
+【四面望青山，浑如蓬莱...】
+四面望青山，浑如蓬莱间（西湖•云海2020） http://www.douban.com/people/47029943/status/2962299643
+
+【从南非到中国：半工半农、半无产化、和土地问题再讨论】
+http://dwz.date/aG8j
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【source】
+http://m.weibo.cn/status/J2STMiaqh
+
+【数学动画：勾股定理】
+数学动画：勾股定理 背景音乐：光辉岁月 一生要走多远的路程 经过多少年 才能走到终点…… http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23&extparam=%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23 http://video.weibo.com/show?fid=1034:4505711917596684
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
