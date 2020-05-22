@@ -3083,3 +3083,37 @@ http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-0
 
 【“真人充气娃娃”事件引起热议后，“林夕”把我给投诉了？？】
 http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489931&amp;idx=1&amp;sn=49fb2aceee864b23559ac8722de98f53&amp;chksm=fade5a19cda9d30f877ded68561183b15cfc416c6c8aa689c91e77b18380449d661788e7b3e3&amp;mpshare=1&amp;scene=1&amp;srcid=05214a5IltuoSnU3MWDw0gEU&amp;sharer_sharetime=1590049443207&amp;sharer_shareid=38a70db9f33a3c296d36dac74a66ee76#rd
+
+=======
+
+每日文章精选
+
+【【疑因仇视女性捅死无...】
+【疑因仇视女性捅死无辜 #加拿大首将厌女犯罪升级为恐怖主义#】5月19日，据媒体报道，加拿大多伦多一少年疑受厌女思想煽动杀人，获恐怖主义罪名指控成加拿大首例。2月，该男子在一按摩院刺死一名24岁的女性，起初嫌犯被控一级谋杀，调查发现此次袭击与厌女团体“incel”有关，随后指控升级为恐怖主义活动。 http://m.weibo.cn/status/J39HVbg94
+
+【80部豆瓣高分电影推...】
+80部豆瓣高分电影推荐~ http://m.weibo.cn/status/J2Weo51Cb
+
+【Graduate Student Solves Decades-Old Conway Knot Problem】
+https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-problem-20200519
+
+【“真人充气娃娃”事件引起热议后，“林夕”把我给投诉了？？】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489931&amp;idx=1&amp;sn=49fb2aceee864b23559ac8722de98f53&amp;chksm=fade5a19cda9d30f877ded68561183b15cfc416c6c8aa689c91e77b18380449d661788e7b3e3&amp;mpshare=1&amp;scene=1&amp;srcid=05214a5IltuoSnU3MWDw0gEU&amp;sharer_sharetime=1590049443207&amp;sharer_shareid=38a70db9f33a3c296d36dac74a66ee76#rd
+
+【pinned «»】
+pinned «»
+
+【C-36 相关法律背...】
+C-36 相关法律背景补充 http://wx3.sinaimg.cn/large/0072znMBly1gf04njqs2rj30rs6ome81.jpg #加拿大警方将仇女引发的暴力定性为恐怖主义袭击# 因为厌恶女性，而对按摩女郎发动袭击，被定为恐怖主义，这是全球首次。也值得我们关注和跟进。
+
+【当雅思分数成为嫁妆，是女性的机遇还是枷锁？】
+https://www.douban.com/note/763647383
+
+【从南非到中国：半工半农、半无产化、和土地问题再讨论】
+http://dwz.date/aG8j
+
+【讀者來函：前浪與後浪，鐮刀與韭菜】
+https://theinitium.com/article/20200509-notes-wave-after-wave-shaves-and-tuberosum
+
+【数学动画：勾股定理】
+数学动画：勾股定理 背景音乐：光辉岁月 一生要走多远的路程 经过多少年 才能走到终点…… http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23&extparam=%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23 http://video.weibo.com/show?fid=1034:4505711917596684
