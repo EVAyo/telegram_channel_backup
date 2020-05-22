@@ -3049,3 +3049,37 @@ http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
 =======================
 频道/群组合集: https://bit.ly/35UdTaE
 投稿请联系: @b4cxb
+
+=======
+
+每日文章精选
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【讀者來函：前浪與後浪，鐮刀與韭菜】
+https://theinitium.com/article/20200509-notes-wave-after-wave-shaves-and-tuberosum
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【槽点多多没法吐】
+槽点多多没法吐 这种《学生防止性侵害安全知识》怎么写的和一样 性教育要搞就好好搞，好好选教材培训老师，不要又变成女德pua课堂好吧 不止是愚蠢，底下的措施条条送命，真有傻孩子看了照做，这都要命啊，这都是什么垃圾东西啊 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23&extparam=%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23
+
+【四面望青山，浑如蓬莱...】
+四面望青山，浑如蓬莱间（西湖•云海2020） http://www.douban.com/people/47029943/status/2962299643
+
+【pinned «»】
+pinned «»
+
+【source】
+http://m.weibo.cn/status/J2STMiaqh
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【“真人充气娃娃”事件引起热议后，“林夕”把我给投诉了？？】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489931&amp;idx=1&amp;sn=49fb2aceee864b23559ac8722de98f53&amp;chksm=fade5a19cda9d30f877ded68561183b15cfc416c6c8aa689c91e77b18380449d661788e7b3e3&amp;mpshare=1&amp;scene=1&amp;srcid=05214a5IltuoSnU3MWDw0gEU&amp;sharer_sharetime=1590049443207&amp;sharer_shareid=38a70db9f33a3c296d36dac74a66ee76#rd
