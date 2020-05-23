@@ -3117,3 +3117,37 @@ https://theinitium.com/article/20200509-notes-wave-after-wave-shaves-and-tuberos
 
 【数学动画：勾股定理】
 数学动画：勾股定理 背景音乐：光辉岁月 一生要走多远的路程 经过多少年 才能走到终点…… http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23&extparam=%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23 http://video.weibo.com/show?fid=1034:4505711917596684
+
+=======
+
+每日文章精选
+
+【从南非到中国：半工半农、半无产化、和土地问题再讨论】
+http://dwz.date/aG8j
+
+【追查300天，我终于抓住了制造“真人充气娃娃”恶魔的尾巴】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489856&amp;idx=1&amp;sn=503b04ec909485e38fc1a91bb50ab2cc&amp;chksm=fade5ad2cda9d3c441cb9caa68c2b14aa8d999a4b4ace69e715612e0cfb015671b97972452c9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589962246120&amp;sharer_shareid=ae1b8bc9bb872a6571f5641923edbdb8#rd
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【李永乐老师刚刚在油管...】
+李永乐老师刚刚在油管上上传了一支关于自闭谱系障碍的视频，概括简单明了。转一下视频的最后一分钟，希望会有更多的专业的自闭症干预机构。 http://video.weibo.com/show?fid=1034:4506758799097890
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【讀者來函：前浪與後浪，鐮刀與韭菜】
+https://theinitium.com/article/20200509-notes-wave-after-wave-shaves-and-tuberosum
+
+【我手写我心。】
+我手写我心。 http://www.douban.com/people/67709637/status/2963649309
+
+【pinned «»】
+pinned «»
+
+【那个#新入职员工聚會...】
+那个#新入职员工聚會遭強奸# 的话题已经撤掉两个了。 这个21岁的男性，他能有什么了不起的背景，他都不是鲍毓明。这样一个可以说是屌丝的人，社会照样会包庇他，有其他男性自然跟他共情，洗地公司聚会喝醉了就是同意发生关系，在中国可以说是最现代化的城市之一——深圳，警察的素质也这么低下，证据确凿也难以得到公正的处分，中国不愧是强奸犯天堂。 如果说有什么让人不爱国，那也不是个人的错了。男人女人一样工作纳（这么高的）税，税也不会因为你是女人就少交，然后待遇这个狗样子，刷个微博说几句话就极端就拳师了，我真是不明白凭什么。 对女性的围剿，对女性的侵犯，是全社会共同完成的。他们团结在一起，维护他们的“利益共同体”，打击试图动摇男性霸权的所有言论和行动。 http://m.weibo.cn/status/J35zd6g1w
