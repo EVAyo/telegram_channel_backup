@@ -3151,3 +3151,37 @@ pinned «»
 
 【那个#新入职员工聚會...】
 那个#新入职员工聚會遭強奸# 的话题已经撤掉两个了。 这个21岁的男性，他能有什么了不起的背景，他都不是鲍毓明。这样一个可以说是屌丝的人，社会照样会包庇他，有其他男性自然跟他共情，洗地公司聚会喝醉了就是同意发生关系，在中国可以说是最现代化的城市之一——深圳，警察的素质也这么低下，证据确凿也难以得到公正的处分，中国不愧是强奸犯天堂。 如果说有什么让人不爱国，那也不是个人的错了。男人女人一样工作纳（这么高的）税，税也不会因为你是女人就少交，然后待遇这个狗样子，刷个微博说几句话就极端就拳师了，我真是不明白凭什么。 对女性的围剿，对女性的侵犯，是全社会共同完成的。他们团结在一起，维护他们的“利益共同体”，打击试图动摇男性霸权的所有言论和行动。 http://m.weibo.cn/status/J35zd6g1w
+
+=======
+
+每日文章精选
+
+【李永乐老师刚刚在油管...】
+李永乐老师刚刚在油管上上传了一支关于自闭谱系障碍的视频，概括简单明了。转一下视频的最后一分钟，希望会有更多的专业的自闭症干预机构。 http://video.weibo.com/show?fid=1034:4506758799097890
+
+【四面望青山，浑如蓬莱...】
+四面望青山，浑如蓬莱间（西湖•云海2020） http://www.douban.com/people/47029943/status/2962299643
+
+【“真人充气娃娃”事件引起热议后，“林夕”把我给投诉了？？】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489931&amp;idx=1&amp;sn=49fb2aceee864b23559ac8722de98f53&amp;chksm=fade5a19cda9d30f877ded68561183b15cfc416c6c8aa689c91e77b18380449d661788e7b3e3&amp;mpshare=1&amp;scene=1&amp;srcid=05214a5IltuoSnU3MWDw0gEU&amp;sharer_sharetime=1590049443207&amp;sharer_shareid=38a70db9f33a3c296d36dac74a66ee76#rd
+
+【武汉抗疫一线医生超强...】
+武汉抗疫一线医生超强度过劳去世，人社局：抢救超48小时不算工伤 http://www.douban.com/group/topic/176504169
+
+【当雅思分数成为嫁妆，是女性的机遇还是枷锁？】
+https://www.douban.com/note/763647383
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【Graduate Student Solves Decades-Old Conway Knot Problem】
+https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-problem-20200519
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【source】
+http://m.weibo.cn/status/J2STMiaqh
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
