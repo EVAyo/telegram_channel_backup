@@ -3151,3 +3151,37 @@ http://m.weibo.cn/status/J2STMiaqh
 
 【【日本国立科学博物馆...】
 【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+=======
+
+每日文章精选
+
+【【疑因仇视女性捅死无...】
+【疑因仇视女性捅死无辜 #加拿大首将厌女犯罪升级为恐怖主义#】5月19日，据媒体报道，加拿大多伦多一少年疑受厌女思想煽动杀人，获恐怖主义罪名指控成加拿大首例。2月，该男子在一按摩院刺死一名24岁的女性，起初嫌犯被控一级谋杀，调查发现此次袭击与厌女团体“incel”有关，随后指控升级为恐怖主义活动。 http://m.weibo.cn/status/J39HVbg94
+
+【「996」周年祭：中国劳动者依旧在忍受全球最严苛的时间剥削】
+http://mp.weixin.qq.com/s?__biz=MzA3Njg1MTkwNg==&amp;mid=2247484597&amp;idx=1&amp;sn=7e71b1b8a566c6a71dfd6279c5855f56&amp;chksm=9f5bbb18a82c320e17f680c7edb7d39a920c640f2ab14352fbb5e3fb5c5973bbaf71897b45ff&amp;mpshare=1&amp;scene=1&amp;srcid=0518l5l5i1kqqWMTSBC8aIZd&amp;sharer_sharetime=1589956352461&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【pinned «»】
+pinned «»
+
+【C-36 相关法律背...】
+C-36 相关法律背景补充 http://wx3.sinaimg.cn/large/0072znMBly1gf04njqs2rj30rs6ome81.jpg #加拿大警方将仇女引发的暴力定性为恐怖主义袭击# 因为厌恶女性，而对按摩女郎发动袭击，被定为恐怖主义，这是全球首次。也值得我们关注和跟进。
+
+【“女人说话，男人插什么嘴？”】
+在一些情况下，女性想要获得话语权，还需要“抛弃”自己本身的性别。 “虽然我是一个女生，但是……”这句话暗藏着对讨论标准小心翼翼的试探，对男性发言方式的模仿，以及对一个特定讨论环境的讨好。 “在这个世界上，只是身为女孩，就会妨碍你相信你自己。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505607&amp;idx=1&amp;sn=22a0049aa9927588deba3d52deb83110&amp;chksm=fb732464cc04ad72c0cb29087830576ea82730f250c3872829b7598f05a82c7a71f03010c424&amp;scene=126&amp;sessionid=1590053184#rd
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【城市建筑】
+城市建筑 http://m.weibo.cn/status/J2Y1pDF8f
+
+【数学动画：勾股定理】
+数学动画：勾股定理 背景音乐：光辉岁月 一生要走多远的路程 经过多少年 才能走到终点…… http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23&extparam=%23%E7%9F%A5%E8%AF%86%E8%A7%86%E9%A2%91%E5%92%96%23 http://video.weibo.com/show?fid=1034:4505711917596684
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
