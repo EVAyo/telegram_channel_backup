@@ -3219,3 +3219,37 @@ http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-0
 
 【陈纯: 举报与正义】
 政治当然是现实的，也可能是肮脏的，有时也需要斗争，但斗争的过程中，要是把自己拉到像对方一样的水平，泯灭了自己和对方的区别，只是为了赢，那斗争的结局，即使是我方获胜，从政治后果来说，只不过是对方以另一种面目胜利了而已。 https://10.via0.com/ipfs/QmW2zP77sFQPFTgVNKvnGhL5hwZVzhtGk5V7okte8297hS
+
+=======
+
+每日文章精选
+
+【当雅思分数成为嫁妆，是女性的机遇还是枷锁？】
+https://www.douban.com/note/763647383
+
+【80部豆瓣高分电影推...】
+80部豆瓣高分电影推荐~ http://m.weibo.cn/status/J2Weo51Cb
+
+【【三吉彩花主演百合片...】
+【三吉彩花主演百合片《女儿们》定档9月18日】三吉彩花、阿部纯子、黑谷友香、大方斐纱子、鹤见辰吾、大塚宁宁主演，聚焦在东京过着合租生活的两位女性的爱情。三吉彩花饰演活动策划小春，阿部纯子饰演时尚公关彩乃。彩乃发现自己怀孕了，决定成为一名单亲妈妈，小春在照顾彩乃的过程中逐渐产生了暧昧的情愫。津田肇编剧执导，9月18日日本上映！ http://m.weibo.cn/status/J2OZxy8o7
+
+【“真人充气娃娃”事件引起热议后，“林夕”把我给投诉了？？】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489931&amp;idx=1&amp;sn=49fb2aceee864b23559ac8722de98f53&amp;chksm=fade5a19cda9d30f877ded68561183b15cfc416c6c8aa689c91e77b18380449d661788e7b3e3&amp;mpshare=1&amp;scene=1&amp;srcid=05214a5IltuoSnU3MWDw0gEU&amp;sharer_sharetime=1590049443207&amp;sharer_shareid=38a70db9f33a3c296d36dac74a66ee76#rd
+
+【从南非到中国：半工半农、半无产化、和土地问题再讨论】
+http://dwz.date/aG8j
+
+【追查300天，我终于抓住了制造“真人充气娃娃”恶魔的尾巴】
+http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489856&amp;idx=1&amp;sn=503b04ec909485e38fc1a91bb50ab2cc&amp;chksm=fade5ad2cda9d3c441cb9caa68c2b14aa8d999a4b4ace69e715612e0cfb015671b97972452c9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589962246120&amp;sharer_shareid=ae1b8bc9bb872a6571f5641923edbdb8#rd
+
+【武汉抗疫一线医生超强...】
+武汉抗疫一线医生超强度过劳去世，人社局：抢救超48小时不算工伤 http://www.douban.com/group/topic/176504169
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【“女人说话，男人插什么嘴？”】
+在一些情况下，女性想要获得话语权，还需要“抛弃”自己本身的性别。 “虽然我是一个女生，但是……”这句话暗藏着对讨论标准小心翼翼的试探，对男性发言方式的模仿，以及对一个特定讨论环境的讨好。 “在这个世界上，只是身为女孩，就会妨碍你相信你自己。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505607&amp;idx=1&amp;sn=22a0049aa9927588deba3d52deb83110&amp;chksm=fb732464cc04ad72c0cb29087830576ea82730f250c3872829b7598f05a82c7a71f03010c424&amp;scene=126&amp;sessionid=1590053184#rd
+
+【pinned «»】
+pinned «»
