@@ -3287,3 +3287,37 @@ C-36 相关法律背景补充 http://wx3.sinaimg.cn/large/0072znMBly1gf04njqs2rj
 
 【520放映 | 一部伟大的女性史诗 · 幕后故事】
 http://mp.weixin.qq.com/s?__biz=MzIwNDc3MDY0OA==&amp;mid=2247487160&amp;idx=1&amp;sn=e633037237b2a359516a92a3cf8670e4&amp;chksm=973a528fa04ddb99691a505c508ad8c475353fbbc17b13e3b98aceaaa447f871dc668dad8a2c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589956254097&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+=======
+
+每日文章精选
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【“女人说话，男人插什么嘴？”】
+在一些情况下，女性想要获得话语权，还需要“抛弃”自己本身的性别。 “虽然我是一个女生，但是……”这句话暗藏着对讨论标准小心翼翼的试探，对男性发言方式的模仿，以及对一个特定讨论环境的讨好。 “在这个世界上，只是身为女孩，就会妨碍你相信你自己。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505607&amp;idx=1&amp;sn=22a0049aa9927588deba3d52deb83110&amp;chksm=fb732464cc04ad72c0cb29087830576ea82730f250c3872829b7598f05a82c7a71f03010c424&amp;scene=126&amp;sessionid=1590053184#rd
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【pinned «»】
+pinned «»
+
+【城市建筑】
+城市建筑 http://m.weibo.cn/status/J2Y1pDF8f
+
+【80部豆瓣高分电影推...】
+80部豆瓣高分电影推荐~ http://m.weibo.cn/status/J2Weo51Cb
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【汪曾祺《露水》】
+http://telegra.ph/%25E6%25B1%25AA%25E6%259B%25BE%25E7%25A5%25BA%25E9%259C%25B2%25E6%25B0%25B4-05-21
