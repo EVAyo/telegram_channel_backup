@@ -3253,3 +3253,37 @@ http://mp.weixin.qq.com/s?__biz=MzUzNzk1ODE0MQ==&amp;mid=2247489856&amp;idx=1&am
 
 【pinned «»】
 pinned «»
+
+=======
+
+每日文章精选
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【关于五个一政策早已经...】
+关于五个一政策早已经吵翻天了，我忍不住还是想说一句，无论如何能不能行行好，让滞留在海外的老年人先回去。他们很多人只是过年旅游或探亲，语言不通，出行不便，没有常居住所和医疗保险，可能出国时携带的资金也消耗差不多了，一次次高价抢票又被取消，身心受煎熬，很容易健康出大问题。有朋友住在南部小城市，只是靠奖学金生活的普通学生，想方设法把妈妈护送到有五个一航线的城市已经多有不易，结果再次被取消，老人家当场就崩溃了，我听着都不忍心。这些滞留老年人在国内家中可能还上有老，多种牵挂，在异国他乡的求生能力不比年轻人，请帮帮他们吧。 http://m.weibo.cn/status/J3iBK5A3l
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【讨论：#MeToo运动让调情变得更难了吗？】
+http://mp.weixin.qq.com/s?__biz=MzU4NTI4MzA5MQ==&amp;mid=2247484177&amp;idx=1&amp;sn=f2792826a7403c2412b5719db711fbb9&amp;chksm=fd8da06dcafa297b244a775409ea78ab9306a3c2ce5b5953883c4272aecc3b29218951359aa2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590148208983&amp;sharer_shareid=61d202246c7d4eb44c398b02de4c9435#rd
+
+【C-36 相关法律背...】
+C-36 相关法律背景补充 http://wx3.sinaimg.cn/large/0072znMBly1gf04njqs2rj30rs6ome81.jpg #加拿大警方将仇女引发的暴力定性为恐怖主义袭击# 因为厌恶女性，而对按摩女郎发动袭击，被定为恐怖主义，这是全球首次。也值得我们关注和跟进。
+
+【520放映 | 一部伟大的女性史诗 · 幕后故事】
+http://mp.weixin.qq.com/s?__biz=MzIwNDc3MDY0OA==&amp;mid=2247487160&amp;idx=1&amp;sn=e633037237b2a359516a92a3cf8670e4&amp;chksm=973a528fa04ddb99691a505c508ad8c475353fbbc17b13e3b98aceaaa447f871dc668dad8a2c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589956254097&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
