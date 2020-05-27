@@ -3355,3 +3355,37 @@ https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-p
 
 【冬去春来，午朝门一年...】
 冬去春来，午朝门一年一度的绣球开好了，依旧喜欢爬上城墙看看这个角度的御道街。 http://www.douban.com/people/1299702/status/2967110000
+
+=======
+
+每日文章精选
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【【疑因仇视女性捅死无...】
+【疑因仇视女性捅死无辜 #加拿大首将厌女犯罪升级为恐怖主义#】5月19日，据媒体报道，加拿大多伦多一少年疑受厌女思想煽动杀人，获恐怖主义罪名指控成加拿大首例。2月，该男子在一按摩院刺死一名24岁的女性，起初嫌犯被控一级谋杀，调查发现此次袭击与厌女团体“incel”有关，随后指控升级为恐怖主义活动。 http://m.weibo.cn/status/J39HVbg94
+
+【槽点多多没法吐】
+槽点多多没法吐 这种《学生防止性侵害安全知识》怎么写的和一样 性教育要搞就好好搞，好好选教材培训老师，不要又变成女德pua课堂好吧 不止是愚蠢，底下的措施条条送命，真有傻孩子看了照做，这都要命啊，这都是什么垃圾东西啊 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23&extparam=%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23
+
+【肿瘤学的诊断治疗水平...】
+肿瘤学的诊断治疗水平日新月异，硕果累累。简单举例： 1. 肺癌：如早期发现，特别是原位癌时，微创手术切除，治愈率100%。 2. 胃癌：如早期发现特别是在黏膜内层，可在内镜下微创环切，不需开腹手术。治愈率100%。 3. 急性白血病特别是M3型，不治疗大概生存期不到3个月。如今给予维甲酸联合亚砷酸治疗，5年生存率 95%，且90%以上可长期生存。 4. 慢性粒细胞白血病，过去中位生存期不到 5年。而现在口服靶向药伊马替尼或尼洛替尼或达沙替尼，不需要移植，不影响工作，10年生存率 90%，预期寿命 19年。最近统计其寿命与正常人寿命一样。 5. 多发性骨髓瘤：硼替佐米联合来那度胺和地塞米松治疗，有效率70- 80%，中位生存期明显延长。 6. 弥漫大B细胞淋巴瘤（NOS）：呈侵袭性进展，占到淋巴瘤的一半。目前，给予 R-CHOP免疫化疗，约一半病人可治愈。还有20%可生存2-3年或以上。 这就是科学进步的威力。 http://m.weibo.cn/status/J2O9puD14
+
+【pinned «»】
+pinned «»
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【80部豆瓣高分电影推...】
+80部豆瓣高分电影推荐~ http://m.weibo.cn/status/J2Weo51Cb
