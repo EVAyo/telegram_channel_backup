@@ -3321,3 +3321,37 @@ http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
 
 【汪曾祺《露水》】
 http://telegra.ph/%25E6%25B1%25AA%25E6%259B%25BE%25E7%25A5%25BA%25E9%259C%25B2%25E6%25B0%25B4-05-21
+
+=======
+
+每日文章精选
+
+【“女人说话，男人插什么嘴？”】
+在一些情况下，女性想要获得话语权，还需要“抛弃”自己本身的性别。 “虽然我是一个女生，但是……”这句话暗藏着对讨论标准小心翼翼的试探，对男性发言方式的模仿，以及对一个特定讨论环境的讨好。 “在这个世界上，只是身为女孩，就会妨碍你相信你自己。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505607&amp;idx=1&amp;sn=22a0049aa9927588deba3d52deb83110&amp;chksm=fb732464cc04ad72c0cb29087830576ea82730f250c3872829b7598f05a82c7a71f03010c424&amp;scene=126&amp;sessionid=1590053184#rd
+
+【城市建筑】
+城市建筑 http://m.weibo.cn/status/J2Y1pDF8f
+
+【更正：1 分 07 ...】
+更正：1 分 07 秒右边反应式第二行应为Si + HCl → SiHCl3 + H2 http://wx1.sinaimg.cn/large/006jenFIly1gf09vlqpi9j30oz0dywi3.jpg 【科普：为什么你的电脑还没用上国产 CPU？】
+
+【关于五个一政策早已经...】
+关于五个一政策早已经吵翻天了，我忍不住还是想说一句，无论如何能不能行行好，让滞留在海外的老年人先回去。他们很多人只是过年旅游或探亲，语言不通，出行不便，没有常居住所和医疗保险，可能出国时携带的资金也消耗差不多了，一次次高价抢票又被取消，身心受煎熬，很容易健康出大问题。有朋友住在南部小城市，只是靠奖学金生活的普通学生，想方设法把妈妈护送到有五个一航线的城市已经多有不易，结果再次被取消，老人家当场就崩溃了，我听着都不忍心。这些滞留老年人在国内家中可能还上有老，多种牵挂，在异国他乡的求生能力不比年轻人，请帮帮他们吧。 http://m.weibo.cn/status/J3iBK5A3l
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【恋童癖猥亵男童，并没...】
+恋童癖猥亵男童，并没有人叫男童不要出门；校园霸凌，没有人要求孩子们不要上学；高楼抛物砸死路人，并没有人叫路人不要出门。女人被偷拍，突然要求女人穿某种质地的衣服，女人被强奸，要求女人不要出门……请问这个世界不是特地针对女性，仇视女性，是什么？ 这一套“心有灵犀”的思维方式看得令人作呕。女性受害，第一反应永远是规范、限制女性的行为和自由。 我实在懒得再重复一遍“犯罪发生是因为犯罪者存在”之类的车轱辘话了，就想问一句，“why？what have women done？” http://m.weibo.cn/status/J2Egvd5ln
+
+【pinned «»】
+pinned «»
+
+【520放映 | 一部伟大的女性史诗 · 幕后故事】
+http://mp.weixin.qq.com/s?__biz=MzIwNDc3MDY0OA==&amp;mid=2247487160&amp;idx=1&amp;sn=e633037237b2a359516a92a3cf8670e4&amp;chksm=973a528fa04ddb99691a505c508ad8c475353fbbc17b13e3b98aceaaa447f871dc668dad8a2c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589956254097&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【Graduate Student Solves Decades-Old Conway Knot Problem】
+https://www.quantamagazine.org/graduate-student-solves-decades-old-conway-knot-problem-20200519
+
+【冬去春来，午朝门一年...】
+冬去春来，午朝门一年一度的绣球开好了，依旧喜欢爬上城墙看看这个角度的御道街。 http://www.douban.com/people/1299702/status/2967110000
