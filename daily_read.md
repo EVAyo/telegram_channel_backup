@@ -3423,3 +3423,37 @@ http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-0
 
 【槽点多多没法吐】
 槽点多多没法吐 这种《学生防止性侵害安全知识》怎么写的和一样 性教育要搞就好好搞，好好选教材培训老师，不要又变成女德pua课堂好吧 不止是愚蠢，底下的措施条条送命，真有傻孩子看了照做，这都要命啊，这都是什么垃圾东西啊 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23&extparam=%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23
+
+=======
+
+每日文章精选
+
+【《绿皮书》艺术海报。】
+《绿皮书》艺术海报。 http://www.douban.com/people/134916477/status/2969135667
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【讨论：#MeToo运动让调情变得更难了吗？】
+http://mp.weixin.qq.com/s?__biz=MzU4NTI4MzA5MQ==&amp;mid=2247484177&amp;idx=1&amp;sn=f2792826a7403c2412b5719db711fbb9&amp;chksm=fd8da06dcafa297b244a775409ea78ab9306a3c2ce5b5953883c4272aecc3b29218951359aa2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590148208983&amp;sharer_shareid=61d202246c7d4eb44c398b02de4c9435#rd
+
+【为什么说《普通人》是今年最佳青春剧？】
+http://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&amp;mid=2650723537&amp;idx=1&amp;sn=768b67545a2d2f578c3bb5c57ced1741&amp;chksm=5afcc5fb6d8b4cedf796b9be406bf62fb8a4d6534490e5e33d83ff8d054c102664b63da33ca9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590551424634&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【槽点多多没法吐】
+槽点多多没法吐 这种《学生防止性侵害安全知识》怎么写的和一样 性教育要搞就好好搞，好好选教材培训老师，不要又变成女德pua课堂好吧 不止是愚蠢，底下的措施条条送命，真有傻孩子看了照做，这都要命啊，这都是什么垃圾东西啊 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23&extparam=%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23
+
+【“女人说话，男人插什么嘴？”】
+在一些情况下，女性想要获得话语权，还需要“抛弃”自己本身的性别。 “虽然我是一个女生，但是……”这句话暗藏着对讨论标准小心翼翼的试探，对男性发言方式的模仿，以及对一个特定讨论环境的讨好。 “在这个世界上，只是身为女孩，就会妨碍你相信你自己。” http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247505607&amp;idx=1&amp;sn=22a0049aa9927588deba3d52deb83110&amp;chksm=fb732464cc04ad72c0cb29087830576ea82730f250c3872829b7598f05a82c7a71f03010c424&amp;scene=126&amp;sessionid=1590053184#rd
+
+【source】
+http://www.douban.com/people/1359032/status/2972986540
+
+【#男权口中的田园女权...】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23&extparam=%23%E7%94%B7%E6%9D%83%E5%8F%A3%E4%B8%AD%E7%9A%84%E7%94%B0%E5%9B%AD%E5%A5%B3%E6%9D%83%23 《美国四岁小女孩因为具有独立意识被部份中国男性打成田园女权》
+
+【【疑因仇视女性捅死无...】
+【疑因仇视女性捅死无辜 #加拿大首将厌女犯罪升级为恐怖主义#】5月19日，据媒体报道，加拿大多伦多一少年疑受厌女思想煽动杀人，获恐怖主义罪名指控成加拿大首例。2月，该男子在一按摩院刺死一名24岁的女性，起初嫌犯被控一级谋杀，调查发现此次袭击与厌女团体“incel”有关，随后指控升级为恐怖主义活动。 http://m.weibo.cn/status/J39HVbg94
