@@ -3389,3 +3389,37 @@ http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
 
 【80部豆瓣高分电影推...】
 80部豆瓣高分电影推荐~ http://m.weibo.cn/status/J2Weo51Cb
+
+=======
+
+每日文章精选
+
+【冬去春来，午朝门一年...】
+冬去春来，午朝门一年一度的绣球开好了，依旧喜欢爬上城墙看看这个角度的御道街。 http://www.douban.com/people/1299702/status/2967110000
+
+【讨论：#MeToo运动让调情变得更难了吗？】
+http://mp.weixin.qq.com/s?__biz=MzU4NTI4MzA5MQ==&amp;mid=2247484177&amp;idx=1&amp;sn=f2792826a7403c2412b5719db711fbb9&amp;chksm=fd8da06dcafa297b244a775409ea78ab9306a3c2ce5b5953883c4272aecc3b29218951359aa2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590148208983&amp;sharer_shareid=61d202246c7d4eb44c398b02de4c9435#rd
+
+【为什么说《普通人》是今年最佳青春剧？】
+http://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&amp;mid=2650723537&amp;idx=1&amp;sn=768b67545a2d2f578c3bb5c57ced1741&amp;chksm=5afcc5fb6d8b4cedf796b9be406bf62fb8a4d6534490e5e33d83ff8d054c102664b63da33ca9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590551424634&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【Confessions of a bad feminist】
+http://www.ted.com/talks/roxane_gay_confessions_of_a_bad_feminist
+
+【李永乐老师刚刚在油管...】
+李永乐老师刚刚在油管上上传了一支关于自闭谱系障碍的视频，概括简单明了。转一下视频的最后一分钟，希望会有更多的专业的自闭症干预机构。 http://video.weibo.com/show?fid=1034:4506758799097890
+
+【C-36 相关法律背...】
+C-36 相关法律背景补充 http://wx3.sinaimg.cn/large/0072znMBly1gf04njqs2rj30rs6ome81.jpg #加拿大警方将仇女引发的暴力定性为恐怖主义袭击# 因为厌恶女性，而对按摩女郎发动袭击，被定为恐怖主义，这是全球首次。也值得我们关注和跟进。
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【槽点多多没法吐】
+槽点多多没法吐 这种《学生防止性侵害安全知识》怎么写的和一样 性教育要搞就好好搞，好好选教材培训老师，不要又变成女德pua课堂好吧 不止是愚蠢，底下的措施条条送命，真有傻孩子看了照做，这都要命啊，这都是什么垃圾东西啊 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23&extparam=%23%E8%AF%B7%E6%B3%95%E5%BE%8B%E4%BF%9D%E6%8A%A4%E5%A5%B3%E6%80%A7%23
