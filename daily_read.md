@@ -3491,3 +3491,37 @@ pinned «»
 
 【One Hongkonger One Letter to Save Hong Kong  #TrumpSavesHK | We the People: Your Voice in Our Government】
 【签名已满】 http://petitions.whitehouse.gov/petition/one-hongkonger-one-letter-save-hong-kong-trumpsaveshk
+
+=======
+
+每日文章精选
+
+【更正：1 分 07 ...】
+更正：1 分 07 秒右边反应式第二行应为Si + HCl → SiHCl3 + H2 http://wx1.sinaimg.cn/large/006jenFIly1gf09vlqpi9j30oz0dywi3.jpg 【科普：为什么你的电脑还没用上国产 CPU？】
+
+【冬去春来，午朝门一年...】
+冬去春来，午朝门一年一度的绣球开好了，依旧喜欢爬上城墙看看这个角度的御道街。 http://www.douban.com/people/1299702/status/2967110000
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【讨论：#MeToo运动让调情变得更难了吗？】
+http://mp.weixin.qq.com/s?__biz=MzU4NTI4MzA5MQ==&amp;mid=2247484177&amp;idx=1&amp;sn=f2792826a7403c2412b5719db711fbb9&amp;chksm=fd8da06dcafa297b244a775409ea78ab9306a3c2ce5b5953883c4272aecc3b29218951359aa2&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590148208983&amp;sharer_shareid=61d202246c7d4eb44c398b02de4c9435#rd
+
+【pinned «»】
+pinned «»
+
+【520放映 | 一部伟大的女性史诗 · 幕后故事】
+http://mp.weixin.qq.com/s?__biz=MzIwNDc3MDY0OA==&amp;mid=2247487160&amp;idx=1&amp;sn=e633037237b2a359516a92a3cf8670e4&amp;chksm=973a528fa04ddb99691a505c508ad8c475353fbbc17b13e3b98aceaaa447f871dc668dad8a2c&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1589956254097&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【《临时爱情》】
+http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-05-21
+
+【One Hongkonger One Letter to Save Hong Kong  #TrumpSavesHK | We the People: Your Voice in Our Government】
+【签名已满】 http://petitions.whitehouse.gov/petition/one-hongkonger-one-letter-save-hong-kong-trumpsaveshk
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【【20180820】...】
+【20180820】当年的百日无孩运动发起人，现在是关心下一代工作委员会 http://www.douban.com/group/topic/122547295
