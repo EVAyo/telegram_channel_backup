@@ -3525,3 +3525,37 @@ http://telegra.ph/%25E4%25B8%25B4%25E6%2597%25B6%25E7%2588%25B1%25E6%2583%2585-0
 
 【【20180820】...】
 【20180820】当年的百日无孩运动发起人，现在是关心下一代工作委员会 http://www.douban.com/group/topic/122547295
+
+=======
+
+每日文章精选
+
+【《绿皮书》艺术海报。】
+《绿皮书》艺术海报。 http://www.douban.com/people/134916477/status/2969135667
+
+【香港电力是由内地供应的吗？】
+香港人享受着大陆输送的低价电”的论调，远非事实，可以休矣！ https://mp.weixin.qq.com/s?__biz=MzA5NzE0MzAwNA==&mid=2247485076&idx=2&sn=cbb8904b5ca302220aa03d6118c35d9d&chksm=90a41727a7d39e3179600166f59dcc49cc1eb2fb723f5fdb9efc4a364d83eb0e7786d3b52605&mpshare=1&scene=1&srcid=05260ghRUEFF7y3j9GSoRKD3&sharer_sharetime=1590626902706&sharer_shareid=81cadb1cb517e608ae85b8f6a24f95d1&exportkey=AXqRYJa%2BO0eXiyszDwDBWiA%3D&pass_ticket=kx477qGJylnQ%2Fx6B4FZoAAI9shlJ9GXpYB1oVaDgXspxl2sdqcfVX%2BuyEawQF3i1#rd
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【和资方斗争，法国人民...】
+和资方斗争，法国人民那是太有经验了。奖金不能要。也不能分一线/非一线。涨了普遍的基本工资，这样以后谈判的起点都不一样了，以后一个行业起薪都不一样了，以后再搞任何“改革”开任何倒车难度都加大了。大家一起努力，打造全民铁饭碗。 http://www.douban.com/people/1059959/status/2973790804
+
+【美国华人女子自杀未成 却被控告谋杀腹中胎儿】
+https://www.theguardian.com/world/2012/may/31/indiana-prosecuting-chinese-woman-suicide-foetus-china
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【西安环卫工的“以克论净”，广州环卫工的“以罚代管”，从来都不是新奇事】
+http://www.douban.com/note/764259737
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【美国右翼崛起前夕：“反平权修正案”的主妇们是如何拉开文化战争序幕的？】
+上野千鹤子在《父权制与资本主义》一书中对此有详细阐述。上野千鹤子指出，“市场”与“家庭”的割裂是近代工业社会歧视女性的根源：在由资本主义统摄的整个政治、经济和文化制度中，家庭被置于市场之外，即女性从事的生育、家务劳动等“人的再生产”劳动未被商品化，也得不到认可。女性付出的劳动在法律和经济层面没有任何补偿，父权制和资本主义都因此获益——男性霸占了女性在家庭内部的劳动成果，资本主义市场则免于承担“人的再生产”的高昂成本。 https://www.douban.com/note/764111437
+
+【#晃剪报#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%83%E5%89%AA%E6%8A%A5%23&isnewpage=1 照片是乔治·弗洛德，周一在美国明尼阿波利斯被一名白人警察讲膝盖压在他脖子上致死。至今白人警察没有被起诉，引起大面积的抗议游行。
