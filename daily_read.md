@@ -3559,3 +3559,37 @@ http://www.douban.com/note/764259737
 
 【#晃剪报#】
 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%83%E5%89%AA%E6%8A%A5%23&isnewpage=1 照片是乔治·弗洛德，周一在美国明尼阿波利斯被一名白人警察讲膝盖压在他脖子上致死。至今白人警察没有被起诉，引起大面积的抗议游行。
+
+=======
+
+每日文章精选
+
+【在古代做女性，读不了...】
+在古代做女性，读不了书，走不出一射之地，这些诗歌、景色和美学和我有啥关系呢？大漠孤烟直，长河落日圆，我能见吗？大家闺秀的尿盆都是丫鬟端走的，自己家里都不能随便走，精神士大夫个什么劲儿啊，人肉体上的士大夫同意了吗？ 如果这是个开放文化，一直去伪存真，与时俱进，那热爱热爱也没关系——以前这个文化系统里没有我，以后可以有啊。但现在的情况是，从上到下，从顶层开始，主流的“种花”“传统”和操持着“经典”话语权的人，根本没觉得女人是人吧？干嘛还要自作多情的改良，到底算哪根葱。 这么一想，我觉得我自己是没有全盘西化的诉求，也不可能了。但假设有女儿，她想全盘西化，我肯定不反对。我认真观察过，觉得西方长大的亚裔女性精神面貌真的和东亚不一样，我希望孩子有一张没被系统性挤压过的脸，希望她不要长得跟我一样“懂事”。 至于“没有传统文化的人是没有根的”。呵呵，就真的没有啊，没有几把的人有根吗？你同意她有，皇汉同意吗？ http://m.weibo.cn/status/J48HaAOEW
+
+【之前大家都在关注「多...】
+之前大家都在关注「多人运动」的八卦，只不过，当中的健康问题才是老棉裤在意的…… 严格来讲发生多人运动的人只是少数，但是「不洁性（啊）接触」才是普遍存在的问题，有很多人在发生的时候并不觉得有什么问题，你侬我侬水乳（啊）交融……直到结束后才惊觉当中的各种风险。 所以这一期的 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%87%E5%8D%83%E5%B0%91%E5%A5%B3%E7%9A%84%E5%B0%8F%E9%97%AE%E5%8F%B7%23&extparam=%23%E4%B8%87%E5%8D%83%E5%B0%91%E5%A5%B3%E7%9A%84%E5%B0%8F%E9%97%AE%E5%8F%B7%23 就来认真讲讲这个问题。 不仅涵盖需要检查的项目，甚至连费用都告诉大家。 总之，都在视频里了，赶快来看吧！ 我是六层楼，我爱这个世界。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%88%91%E6%98%AF%E5%85%AD%E5%B1%82%E6%A5%BC%2C%E6%88%91%E7%88%B1%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C%23&extparam=%23%E6%88%91%E6%98%AF%E5%85%AD%E5%B1%82%E6%A5%BC%2C%E6%88%91%E7%88%B1%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C%23 http://video.weibo.com/show?fid=1034:4509930544365578
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【如何帮助你身边的抑郁症患者？】
+http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&amp;sn=25a1f57c57d79e301ae47b5b21cd99a9&amp;chksm=e86a3bb3df1db2a5df80722168e042d89cd6d9e16c5efe8bce3901543af8ee976c777235293a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590762218777&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【【疑因仇视女性捅死无...】
+【疑因仇视女性捅死无辜 #加拿大首将厌女犯罪升级为恐怖主义#】5月19日，据媒体报道，加拿大多伦多一少年疑受厌女思想煽动杀人，获恐怖主义罪名指控成加拿大首例。2月，该男子在一按摩院刺死一名24岁的女性，起初嫌犯被控一级谋杀，调查发现此次袭击与厌女团体“incel”有关，随后指控升级为恐怖主义活动。 http://m.weibo.cn/status/J39HVbg94
+
+【【小学生作业未完成被...】
+【小学生作业未完成被打得浑身淤青 涉事老师被停职】5月28日晚上，淮安市涟水县某小学一位家长在女儿班级群里发了两张照片，画面是孩子被打后留下的淤青。29日，记者联系了受伤女孩的家长朱先生。他说，孩子只因作业没有完成，一名女老师就用PVC塑料水管抽打，致孩子两条胳膊和腰部全是淤青。朱先生透露，还有另外两名同学也被打了。该小学秦校长表示，学校和老师已经上门给这些学生和家长道歉，目前对该老师进行停职处理。涟水县公安局淮浦路派出所称，案件正在进一步调查当中，也正在等待验伤报告。 http://video.weibo.com/show?fid=1034:4509979252817938
+
+【#晃剪报#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%83%E5%89%AA%E6%8A%A5%23&isnewpage=1 照片是乔治·弗洛德，周一在美国明尼阿波利斯被一名白人警察讲膝盖压在他脖子上致死。至今白人警察没有被起诉，引起大面积的抗议游行。
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【8篇文章，不同作者，...】
+8篇文章，不同作者，不同医院，不同癌症种类，不同蛋白表达，愣是完全一样的结果，发了8篇论文！！！如此丧心病狂的造假，简直让人看得窒息。。。我看到这个爆料第一时间心里就默念，不要是中国作者，不要是中国作者。。。结果。。。心里又一万匹神兽跑过。。。这没人管吗？如果有人管，请相关机构严惩，要不然中国科研的声誉还要不要了？！ http://m.weibo.cn/status/J4bMKuMkz
+
+【为什么维吾尔族的朋友...】
+为什么维吾尔族的朋友看完“绿皮书”感触很深甚至想哭，其实把下面视频里面的黑人换成维吾尔族就能知道了， 崔娃前几个月刚聊过一次对美国警察拦截盘查政策的看法，认为这项在执行中专门针对黑人和拉丁裔年轻人的政策，导致黑人孩子陷入从无辜被盘查到最终入狱的恶性循环。结合最近的事件，理解为什么没有案底的黑人看到警察也会想跑了。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%B4%94%E5%A8%83%23&extparam=%23%E5%B4%94%E5%A8%83%23 http://video.weibo.com/show?fid=1034:4509616873340932
