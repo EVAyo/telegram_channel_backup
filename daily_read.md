@@ -3627,3 +3627,37 @@ http://mp.weixin.qq.com/s?__biz=MjM5OTUzNDA4Mg==&amp;mid=2650425806&amp;idx=1&am
 
 【当雅思分数成为嫁妆，是女性的机遇还是枷锁？】
 https://www.douban.com/note/763647383
+
+=======
+
+每日文章精选
+
+【如何帮助你身边的抑郁症患者？】
+http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&amp;sn=25a1f57c57d79e301ae47b5b21cd99a9&amp;chksm=e86a3bb3df1db2a5df80722168e042d89cd6d9e16c5efe8bce3901543af8ee976c777235293a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590762218777&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第五期 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%BE%AE%E5%8D%9A%E5%85%AC%E5%BC%80%E8%AF%BE%23 http://video.weibo.com/show?fid=1034:4509971962855447
+
+【【日本国立科学博物馆...】
+【日本国立科学博物馆借动森科普：傅达可能要过劳死！】日本国立科学博物馆的研究人员对《集合啦！动物森友会》化石展馆进行了一些简单的趣味科普： 国立科学博物馆有约60名研究者，而傅达只有一猫头鹰，会过劳死的。 以古代生物为中心的走廊展区为什么有一些没有说明的标本？因为这些玻璃罩下的标本其实是存续至今的物种。 走廊区域左边为无脊椎动物、右手边为脊椎动物，前后排列也按照物种出现的顺序。邓氏鱼和新翼鱼化石都能在国立科学博物馆看到，但棘螈只在格陵兰岛发现过，所以没有收藏并非常羡慕。 第二展厅的展品分为三部分，左侧的水中生物和翼龙、最右侧的哺乳类、其余的是恐龙，几乎选择的都是最具代表性的化石。 第二展厅地面的演化树步行导览基本正确，但风神翼龙属的分歧点应该再往前一点，可能因为馆长是猫头鹰，鸟类认为的进化假设可能与我们不同，才这样设计的…… 展厅里除了三角龙前肢外，其他化石的姿态都遵循最新的学术研究进行设计的，让人惊讶。比如棘龙的姿态就取自2016年的最新学说。 三角龙和霸王龙互相对视的摆放位置，在国立科学博物馆也有类似的展示。 http://m.weibo.cn/status/J2mC4ulKQ
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【索奁焚妻——残忍的女性自焚史】
+http://www.douban.com/note/764339154
+
+【城市建筑】
+城市建筑 http://m.weibo.cn/status/J2Y1pDF8f
+
+【美国右翼崛起前夕：“反平权修正案”的主妇们是如何拉开文化战争序幕的？】
+上野千鹤子在《父权制与资本主义》一书中对此有详细阐述。上野千鹤子指出，“市场”与“家庭”的割裂是近代工业社会歧视女性的根源：在由资本主义统摄的整个政治、经济和文化制度中，家庭被置于市场之外，即女性从事的生育、家务劳动等“人的再生产”劳动未被商品化，也得不到认可。女性付出的劳动在法律和经济层面没有任何补偿，父权制和资本主义都因此获益——男性霸占了女性在家庭内部的劳动成果，资本主义市场则免于承担“人的再生产”的高昂成本。 https://www.douban.com/note/764111437
+
+【在受害人和志愿者的努...】
+在受害人和志愿者的努力下，豫章书院的校长吴军豹现在以非法拘禁罪被批捕了！但是还没有开庭审判，希望更多的受害人可以报案，以便交叉取证！ 豫章书院现在被改名为堂渊文文化有限公司，这个公司本质和豫章书院都是一样的，大家要提醒身边的朋友注意 ⚠️ http://m.weibo.cn/status/J4uP5dU37
+
+【更正：1 分 07 ...】
+更正：1 分 07 秒右边反应式第二行应为Si + HCl → SiHCl3 + H2 http://wx1.sinaimg.cn/large/006jenFIly1gf09vlqpi9j30oz0dywi3.jpg 【科普：为什么你的电脑还没用上国产 CPU？】
+
+【#晃剪报#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%83%E5%89%AA%E6%8A%A5%23&isnewpage=1 摘自NYT，图1中红点城市是美国有大型抗议游行的城市，图2-图5是各城市抗议示威者。川普推特上公开威胁搞打砸抢的示威者：你开抢，我开枪。when the looting starts, the shooting starts. 这话不是川普原创，是一个迈阿密白种人至上主义警察局长多年前说的。川普被推特警告他的言论煽动暴力，不符合推特的网络规则。川普会被封号吗？是推特需要川普还是川普需要推特？
