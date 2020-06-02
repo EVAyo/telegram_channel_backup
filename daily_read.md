@@ -3763,3 +3763,37 @@ http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&am
 
 【她们在一起整整70年才结婚，这是什么神仙爱情？】
 http://mp.weixin.qq.com/s?__biz=MjM5OTUzNDA4Mg==&amp;mid=2650425806&amp;idx=1&amp;sn=5bd217fb0952435eb878c5fd23324904&amp;chksm=bf34e2a388436bb5d80e878957be89301d10e1ae2699d79128671c825e4eee9f8926adc2f184&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590593490262&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+=======
+
+每日文章精选
+
+【她们在一起整整70年才结婚，这是什么神仙爱情？】
+http://mp.weixin.qq.com/s?__biz=MjM5OTUzNDA4Mg==&amp;mid=2650425806&amp;idx=1&amp;sn=5bd217fb0952435eb878c5fd23324904&amp;chksm=bf34e2a388436bb5d80e878957be89301d10e1ae2699d79128671c825e4eee9f8926adc2f184&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590593490262&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【这是一份中国版的疫情...】
+这是一份中国版的疫情讣告。与《纽约时报》版不同的是，名单中的逝者都没有被统计在官方疫情通报的死亡病例中，Ta们有着新冠病毒感染症状，却因医疗资源紧张等原因，其死亡证只能以“重度肺炎”、“病毒性肺炎”、“呼吸衰竭”等死因归档。Ta们不在官方的哀悼话语内，因此更需要我们去记录、书写。铭记，是为了不重蹈覆辙。 http://m.weibo.cn/status/J4C0M66Dt
+
+【不要说66岁还在抗议...】
+不要说66岁还在抗议一样的破事觉得心累，我活了不到她一半都觉得心累。小时候是认真把美国当灯塔好多年，要不然也不会来这里。美国这两天的事真是戳中我G点了，比当年川普当选还要幻灭。还有什么岁月静好，到死都不一定能等到你想要的公正，不抗争就是做奴隶，后面的路会越来越难。霉霉前几天视频里说，“I NEED TO BE ON THE RIGHT SIDE OF HISTORY!” 看看人家做偶像的觉悟。这么看，历史还真不一定是往前走的，时间还真不一定站在我们这边，越不争车倒得越快。 http://www.douban.com/people/42719293/status/2979140082
+
+【一个本身有理想有天赋...】
+一个本身有理想有天赋的女性，忽然恋爱结婚怀孕，一直浑浑噩噩忙到孩子勉强独立，中年时忽然有了闲暇，回想自己年轻时的梦想和天赋以及曾经在专业领域上受的肯定，再对照自己目前大相径庭的人生，完全改变的人生轨道，是怎样的迷茫和失望 http://m.weibo.cn/status/J4ClKy0h7
+
+【Telegram: Contact @williamnee】
+国际特赦组织中文 | 中国近年积极在非洲投资，为中非关系提倡一种新的 ?q=%23%E5%8F%8C%E8%B5%A2 模式。当 ?q=%23%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF 被包装成“人类开辟新的历史进程”，在非洲又有怎样的声音？ ?q=%23AmnestyLive 第一讲，由 https://telete.in/williamnee 分享疫情中爆发的广州中非人权风波给我们带来的启示。赶快报名吧！
+
+【装睡的人的广播】
+装睡的人的广播 http://www.douban.com/people/48669611/status/2978757218
+
+【1.明尼阿波利斯妇女...】
+1. 明尼阿波利斯妇女游行联合主席 Tamika Mallory 的一番讲话 2.未知名街头分属三个年代的黑人男性的争论 3.密歇根州 Genesee 县的白人警长 Chris Swanson 带领警队加入黑人群众主导的抗议 http://m.weibo.cn/status/J4wAD3Pv8
+
+【我微博有评论曰，要是...】
+我微博有评论曰，要是美国结构性歧视黑人他们上街打砸就该被同情，那中国那么多农民，制度上一个户口就明明白白的歧视你，难道说农民就有理由上街了吗？！我说：是啊 http://m.weibo.cn/status/J4HjDnAS0
+
+【更正：1 分 07 ...】
+更正：1 分 07 秒右边反应式第二行应为Si + HCl → SiHCl3 + H2 http://wx1.sinaimg.cn/large/006jenFIly1gf09vlqpi9j30oz0dywi3.jpg 【科普：为什么你的电脑还没用上国产 CPU？】
+
+【如何帮助你身边的抑郁症患者？】
+http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&amp;sn=25a1f57c57d79e301ae47b5b21cd99a9&amp;chksm=e86a3bb3df1db2a5df80722168e042d89cd6d9e16c5efe8bce3901543af8ee976c777235293a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590762218777&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
