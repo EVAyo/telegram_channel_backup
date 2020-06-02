@@ -3729,3 +3729,37 @@ http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%83%
 
 【她们在一起整整70年才结婚，这是什么神仙爱情？】
 http://mp.weixin.qq.com/s?__biz=MjM5OTUzNDA4Mg==&amp;mid=2650425806&amp;idx=1&amp;sn=5bd217fb0952435eb878c5fd23324904&amp;chksm=bf34e2a388436bb5d80e878957be89301d10e1ae2699d79128671c825e4eee9f8926adc2f184&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590593490262&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+=======
+
+每日文章精选
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+【“这里住着一个自闭症...】
+“这里住着一个自闭症患者。他不知道警察是什么，也不知道枪是什么。他会大声吵闹。他不会伤害你！他听不懂语言和命令。哦对了，他还是个黑人。” 内华达州一位母亲为保护儿子所作出的努力。她患自闭症的儿子曾被警察跪压过。由于缺乏相关训练和知识，警察对待精神障碍者的方式经常会造成伤害。 http://m.weibo.cn/status/4510962563106262
+
+【之前大家都在关注「多...】
+之前大家都在关注「多人运动」的八卦，只不过，当中的健康问题才是老棉裤在意的…… 严格来讲发生多人运动的人只是少数，但是「不洁性（啊）接触」才是普遍存在的问题，有很多人在发生的时候并不觉得有什么问题，你侬我侬水乳（啊）交融……直到结束后才惊觉当中的各种风险。 所以这一期的 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E4%B8%87%E5%8D%83%E5%B0%91%E5%A5%B3%E7%9A%84%E5%B0%8F%E9%97%AE%E5%8F%B7%23&extparam=%23%E4%B8%87%E5%8D%83%E5%B0%91%E5%A5%B3%E7%9A%84%E5%B0%8F%E9%97%AE%E5%8F%B7%23 就来认真讲讲这个问题。 不仅涵盖需要检查的项目，甚至连费用都告诉大家。 总之，都在视频里了，赶快来看吧！ 我是六层楼，我爱这个世界。 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%88%91%E6%98%AF%E5%85%AD%E5%B1%82%E6%A5%BC%2C%E6%88%91%E7%88%B1%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C%23&extparam=%23%E6%88%91%E6%98%AF%E5%85%AD%E5%B1%82%E6%A5%BC%2C%E6%88%91%E7%88%B1%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C%23 http://video.weibo.com/show?fid=1034:4509930544365578
+
+【李永乐老师刚刚在油管...】
+李永乐老师刚刚在油管上上传了一支关于自闭谱系障碍的视频，概括简单明了。转一下视频的最后一分钟，希望会有更多的专业的自闭症干预机构。 http://video.weibo.com/show?fid=1034:4506758799097890
+
+【如实，自然会呈现残酷...】
+如实，自然会呈现残酷的现实。最令我震惊的是，谷崎在《苏州纪行》中写道，当时妇女要靠抬游客上山来谋生，为时年32尚在壮年的谷崎抬轿（滑杆）的“瘦弱”女性分别是五十多岁老妇、十七八岁小姑娘。然而以此为生的远不止这两位，“村姑们”赚取的仅仅是“一个劲儿讲价”后的“五十文钱”。说好的男耕女织呢？事实却是，中国妇女不仅要生养孩子、伺候一家老小、下田种地、缫丝纺织、还得干重体力活抬轿子等等，对了，战时也不得不保家卫国。正史记录，古典诗歌，名作家游记等等，或多或少都曾提及中国妇女生活之艰辛繁重，但这些记录极少被自古以来掌握话语权的男性研究者、男性读者真正重视起来，在他们的视而不见or选择性无视下，普通女性在历史中集体隐身了，于是现代人活在对古代“男耕女织”的遐想中难以正视真实。所以，历史资料有待以女性视角重新阅读，从而重新“发现”女性的存在，这有助于更好地认识历史，展现社会全貌，那可不止是属于男性的世界。 http://www.douban.com/people/45366922/status/2977905966
+
+【不要说66岁还在抗议...】
+不要说66岁还在抗议一样的破事觉得心累，我活了不到她一半都觉得心累。小时候是认真把美国当灯塔好多年，要不然也不会来这里。美国这两天的事真是戳中我G点了，比当年川普当选还要幻灭。还有什么岁月静好，到死都不一定能等到你想要的公正，不抗争就是做奴隶，后面的路会越来越难。霉霉前几天视频里说，“I NEED TO BE ON THE RIGHT SIDE OF HISTORY!” 看看人家做偶像的觉悟。这么看，历史还真不一定是往前走的，时间还真不一定站在我们这边，越不争车倒得越快。 http://www.douban.com/people/42719293/status/2979140082
+
+【走六小时寂寞的长途，】
+走六小时寂寞的长途， 到你头边放一束红山茶， 我等待着，长夜漫漫， 你却卧听着海涛闲话。
+
+【如何帮助你身边的抑郁症患者？】
+http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&amp;sn=25a1f57c57d79e301ae47b5b21cd99a9&amp;chksm=e86a3bb3df1db2a5df80722168e042d89cd6d9e16c5efe8bce3901543af8ee976c777235293a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590762218777&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【奇遇电影字幕组五周年...】
+奇遇电影字幕组五周年了！ 五年前的今天，我们发布了第一部电影《黑色池塘》，转眼就到了现在的是367部《国家葬礼》。 我们想把一些艺术价值比较高的冷门电影挑出来，用心制作好字幕，推荐给那些观影口味跟我们相投的人。 对于很多刚刚热爱上迷影的新朋友来说，你看到的每一部电影，都会潜移默化地影响并塑造你以后的观影品位。 我们希望奇遇组翻的这些片子，可以让大家拥有不一样的观影体验，可以在主流的娱乐片之外，看到电影更多的可能性，认识更多有才华的导演。 最后附上奇遇电影字幕组的豆列： http://m.douban.com/doulist/110975229
+
+【她们在一起整整70年才结婚，这是什么神仙爱情？】
+http://mp.weixin.qq.com/s?__biz=MjM5OTUzNDA4Mg==&amp;mid=2650425806&amp;idx=1&amp;sn=5bd217fb0952435eb878c5fd23324904&amp;chksm=bf34e2a388436bb5d80e878957be89301d10e1ae2699d79128671c825e4eee9f8926adc2f184&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590593490262&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
