@@ -3831,3 +3831,37 @@ http://mp.weixin.qq.com/s?__biz=MzIzMDU2ODM1NQ==&amp;mid=2247484825&amp;idx=1&am
 
 【举报：鲁迅已经违法了】
 https://mp.weixin.qq.com/s/ADgubSByitO74MakLSs8lw
+
+=======
+
+每日文章精选
+
+【疫情中的劳动者权益：回顾“一线人员”认定标准及工伤制度】
+https://www.douban.com/doubanapp/dispatch?uri=/note/760563405/%26dt_dapp%3D1
+
+【黑人homie正在暴动中捍卫美国中餐馆】
+http://mp.weixin.qq.com/s?__biz=MzAxOTMxNTUxNw==&amp;mid=2651213589&amp;idx=1&amp;sn=39d8824113f415377912643e443b4fd5&amp;chksm=803a0147b74d8851fbde8e008995e10f8dc1aeaf95b06886dca70a2f866d4ff4e3e052a43b1f&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591168148051&amp;sharer_shareid=ea722641b3ed38dc7891bf9629dddbe1#rd
+
+【#早读】
+?q=%23%E6%97%A9%E8%AF%BB 端： https://theinitium.com/article/20200528-mainland-national-security-law-system 「“国家安全”系列法律，几乎都被批评条文表述过于模糊：法律中对具体威胁的定义并未按照国际法的要求进行狭义的界定，并且缺乏保障公民权利的制衡手段。」
+
+【前天刚看到杨丽萍旗下...】
+前天刚看到杨丽萍旗下的美女拉拉婚事，还在想社会进步了，今天又看到一个惨剧，重庆天才高中生徐誉舒疑似因跨性别心理而面临压力自杀。 现在学校家庭各执一词，家长说孩子是因为校园霸凌与性侵而死，但学校不承认，真相为何暂不知道。但是徐爸爸对儿子的描绘很成问题，他说儿子“骄傲自大”，“懦弱胆小”，需要阳刚的老师来引导他，另外还说自己一直教导孩子宽容忍让。 从这种表述来看，我直觉这个孩子可能两方面的压力都有。在学校别人会因为他女装而嘲笑霸凌，而回到家里，父亲不见得理解，还会觉得孩子“不成熟”，“懦弱无阳刚气”。 由此可见，咱们这个社会，全面的性教育太需要了，不光是要教育一般男女的性知识，还要教导大家尊重性少数群体，尊重不同的人。 ps，另外有些父母的通病是自我感动，比如“校园霸凌”这事儿，你要做的不是让孩子宽容忍让，而是给他提供心理支柱的作用，宽容忍让个毛线啊。 http://m.weibo.cn/status/J4ViH1YHS
+
+【90后医学生蹦床摔成“完全性截瘫”，这个游戏太可怕了！】
+http://mp.weixin.qq.com/s?__biz=MzUzNjY3NTY1NA==&amp;mid=2247501023&amp;idx=4&amp;sn=d21ccde6ae90cd891b13c83a2678f7d9&amp;chksm=faf010f6cd8799e0afd924832148e69b06094f86ed99965aaec4ef117b8907fc342a404578b3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591155570903&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【如何帮助你身边的抑郁症患者？】
+http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&amp;sn=25a1f57c57d79e301ae47b5b21cd99a9&amp;chksm=e86a3bb3df1db2a5df80722168e042d89cd6d9e16c5efe8bce3901543af8ee976c777235293a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1590762218777&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【如实，自然会呈现残酷...】
+如实，自然会呈现残酷的现实。最令我震惊的是，谷崎在《苏州纪行》中写道，当时妇女要靠抬游客上山来谋生，为时年32尚在壮年的谷崎抬轿（滑杆）的“瘦弱”女性分别是五十多岁老妇、十七八岁小姑娘。然而以此为生的远不止这两位，“村姑们”赚取的仅仅是“一个劲儿讲价”后的“五十文钱”。说好的男耕女织呢？事实却是，中国妇女不仅要生养孩子、伺候一家老小、下田种地、缫丝纺织、还得干重体力活抬轿子等等，对了，战时也不得不保家卫国。正史记录，古典诗歌，名作家游记等等，或多或少都曾提及中国妇女生活之艰辛繁重，但这些记录极少被自古以来掌握话语权的男性研究者、男性读者真正重视起来，在他们的视而不见or选择性无视下，普通女性在历史中集体隐身了，于是现代人活在对古代“男耕女织”的遐想中难以正视真实。所以，历史资料有待以女性视角重新阅读，从而重新“发现”女性的存在，这有助于更好地认识历史，展现社会全貌，那可不止是属于男性的世界。 http://www.douban.com/people/45366922/status/2977905966
+
+【Telegram: Contact @williamnee】
+国际特赦组织中文 | 中国近年积极在非洲投资，为中非关系提倡一种新的 ?q=%23%E5%8F%8C%E8%B5%A2 模式。当 ?q=%23%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF 被包装成“人类开辟新的历史进程”，在非洲又有怎样的声音？ ?q=%23AmnestyLive 第一讲，由 https://telete.in/williamnee 分享疫情中爆发的广州中非人权风波给我们带来的启示。赶快报名吧！
+
+【是時候重新出發了】
+是時候重新出發了 http://www.douban.com/people/139130442/status/2980689868
+
+【======= 频道...】
+======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
