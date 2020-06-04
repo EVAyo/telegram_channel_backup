@@ -3865,3 +3865,37 @@ http://mp.weixin.qq.com/s?__biz=MzIyNjk1MjAwNQ==&amp;mid=2247495065&amp;idx=1&am
 
 【======= 频道...】
 ======= 频道推荐 ======= 读书讨论 https://telete.in/dushufenxiang_chat 豆瓣精选 https://telete.in/douban_read 程序员之家 https://telete.in/useless_project_ideas 写作交流 https://telete.in/writing_discuss 读书分享 https://telete.in/dushufenxiang 微博精选 https://telete.in/weibo_read 平权观察 https://telete.in/equality_and_rights 政治观察 https://telete.in/freedom_watch ======================= 频道/群组合集: https://bit.ly/35UdTaE 投稿请联系: https://telete.in/b4cxb
+
+=======
+
+每日文章精选
+
+【有趣的创意影像 | ...】
+有趣的创意影像 | 摄影组合Daniel Rueda & Anna Devis http://m.weibo.cn/status/J4T1l5YsI
+
+【明尼阿波利斯的雨果叔...】
+明尼阿波利斯的雨果叔叔科幻书店（Uncle Hugo's Science Fiction Bookstore）和埃德加·爱伦坡叔叔推理书店 （Uncle Edgar's Mystery Bookstore）在这次动乱中被焚毁，变成废墟。店主说，看了视频是戴面具的白人烧的，会尝试重建。 http://www.douban.com/people/1155157/status/2980314726
+
+【疫情中的劳动者权益：回顾“一线人员”认定标准及工伤制度】
+https://www.douban.com/doubanapp/dispatch?uri=/note/760563405/%26dt_dapp%3D1
+
+【99年前的今天，美国白人用飞机夷平黑人富人区】
+http://mp.weixin.qq.com/s?__biz=MzA5MzExMTk1NA==&amp;mid=2651738806&amp;idx=1&amp;sn=a9624d34600b59c9059358e609c3fcd2&amp;chksm=8b98214bbcefa85d169b368cedafa5c041f9594bc8e295c84fcaf01ff959565d2e8d0d8e6562&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591141860805&amp;sharer_shareid=91d463aaba5ef095528a2507b4b5ee1c#rd
+
+【果然女权复读机不能停...】
+果然女权复读机不能停，我以为韩寒这个乘风破浪歌大家都已经骂过一轮了肯定还记得，没想到还有姐妹没刷到过这事。往好处想不是我打拳不够努力是新姐妹增加了。 http://m.weibo.cn/status/J4Zs4w23a
+
+【别人说BLACK L...】
+别人说BLACK LIVES MATTER时你说ALL LIVES MATTER，约等于人家说“女权”你纠正“是平权”，约等于别人说“我喘不上气”你耸耸肩说“谁不是呢？” http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%99%AE%E9%80%9A%E9%80%BB%E8%BE%91%E5%AD%A6%E5%AE%9E%E7%94%A8%E6%95%99%E7%A8%8B%23&extparam=%23%E6%99%AE%E9%80%9A%E9%80%BB%E8%BE%91%E5%AD%A6%E5%AE%9E%E7%94%A8%E6%95%99%E7%A8%8B%23
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第五期 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%BE%AE%E5%8D%9A%E5%85%AC%E5%BC%80%E8%AF%BE%23 http://video.weibo.com/show?fid=1034:4509971962855447
+
+【15岁就开始怀孕，已...】
+15岁就开始怀孕，已经第四胎了...... http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%AB%A5%E5%A9%9A%23
+
+【ఠ_ఠ 你把人家的字母当成表情用？老外也没有放过汉字！】
+http://telegra.ph/%25E0%25B0%25A0-%25E0%25B0%25A0-%25E4%25BD%25A0%25E6%258A%258A%25E4%25BA%25BA%25E5%25AE%25B6%25E7%259A%2584%25E5%25AD%2597%25E6%25AF%258D%25E5%25BD%2593%25E6%2588%2590%25E8%25A1%25A8%25E6%2583%2585%25E7%2594%25A8%25E8%2580%2581%25E5%25A4%2596%25E4%25B9%259F%25E6%25B2%25A1%25E6%259C%2589%25E6%2594%25BE%25E8%25BF%2587%25E6%25B1%2589%25E5%25AD%2597-05-31 | https://mp.weixin.qq.com/s/17rH8lvltxZVEc7UxsHXnw
+
+【Telegram: Contact @williamnee】
+国际特赦组织中文 | 中国近年积极在非洲投资，为中非关系提倡一种新的 ?q=%23%E5%8F%8C%E8%B5%A2 模式。当 ?q=%23%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF 被包装成“人类开辟新的历史进程”，在非洲又有怎样的声音？ ?q=%23AmnestyLive 第一讲，由 https://telete.in/williamnee 分享疫情中爆发的广州中非人权风波给我们带来的启示。赶快报名吧！
