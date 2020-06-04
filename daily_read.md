@@ -3899,3 +3899,37 @@ http://telegra.ph/%25E0%25B0%25A0-%25E0%25B0%25A0-%25E4%25BD%25A0%25E6%258A%258A
 
 【Telegram: Contact @williamnee】
 国际特赦组织中文 | 中国近年积极在非洲投资，为中非关系提倡一种新的 ?q=%23%E5%8F%8C%E8%B5%A2 模式。当 ?q=%23%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF 被包装成“人类开辟新的历史进程”，在非洲又有怎样的声音？ ?q=%23AmnestyLive 第一讲，由 https://telete.in/williamnee 分享疫情中爆发的广州中非人权风波给我们带来的启示。赶快报名吧！
+
+=======
+
+每日文章精选
+
+【15岁就开始怀孕，已...】
+15岁就开始怀孕，已经第四胎了...... http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E7%AB%A5%E5%A9%9A%23
+
+【【5月读书笔记】法律的颜色】
+http://mp.weixin.qq.com/s?__biz=MzUzNTYxMDg0Nw==&amp;mid=2247483748&amp;idx=1&amp;sn=7df061c7066f256e6d4c475fb8ddd964&amp;chksm=fa8395d4cdf41cc23fd37f055be3acbfe8029ee34cbca1c173defa7a0bdde08382a92bd3887e&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591161162588&amp;sharer_shareid=24568cf384f92f0f6d61e608864821a5#rd
+
+【疫情中的劳动者权益：回顾“一线人员”认定标准及工伤制度】
+https://www.douban.com/doubanapp/dispatch?uri=/note/760563405/%26dt_dapp%3D1
+
+【最后一张可以叫烟蓝吧】
+最后一张可以叫烟蓝吧 http://www.douban.com/people/2303117/status/2978749170
+
+【所以黑人女权才如此卓...】
+所以黑人女权才如此卓绝，她们是带着直面重重压迫的觉悟来发声白人只受经济问题影响，所以觉得种族歧视是无病呻吟；男人只受阶级问题影响，所以看不到性别歧视；富人和中产看不到poverty cycle的困境，觉得穷人只是自甘堕落。很多时候当你觉得别人在无病呻吟 之前美国有过关于要不要因为奴隶制带来的不公，给黑人赔偿的讨论。崔娃的两幕之间有观众问起，那经济地位低下的白人，是否也应该补偿？他们很多人也是去工业化的牺牲品。崔娃从历史的角度出发，说suffering是有程度之分的，从黑奴开始，美国对黑人的结构性压迫，一步步抑制了这个群体的发展前途……#崔娃# http://t.cn/A620oEyr
+
+【90后医学生蹦床摔成“完全性截瘫”，这个游戏太可怕了！】
+http://mp.weixin.qq.com/s?__biz=MzUzNjY3NTY1NA==&amp;mid=2247501023&amp;idx=4&amp;sn=d21ccde6ae90cd891b13c83a2678f7d9&amp;chksm=faf010f6cd8799e0afd924832148e69b06094f86ed99965aaec4ef117b8907fc342a404578b3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591155570903&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【满都海女王在中国历史...】
+满都海女王在中国历史中也遭到同样的待遇，她已经称汗了，但顽固的中国历史学家始终认为她只是沿用前夫的称号，顽固的把她称为皇后 http://m.weibo.cn/6898125053/4432421023392217
+
+【前天刚看到杨丽萍旗下...】
+前天刚看到杨丽萍旗下的美女拉拉婚事，还在想社会进步了，今天又看到一个惨剧，重庆天才高中生徐誉舒疑似因跨性别心理而面临压力自杀。 现在学校家庭各执一词，家长说孩子是因为校园霸凌与性侵而死，但学校不承认，真相为何暂不知道。但是徐爸爸对儿子的描绘很成问题，他说儿子“骄傲自大”，“懦弱胆小”，需要阳刚的老师来引导他，另外还说自己一直教导孩子宽容忍让。 从这种表述来看，我直觉这个孩子可能两方面的压力都有。在学校别人会因为他女装而嘲笑霸凌，而回到家里，父亲不见得理解，还会觉得孩子“不成熟”，“懦弱无阳刚气”。 由此可见，咱们这个社会，全面的性教育太需要了，不光是要教育一般男女的性知识，还要教导大家尊重性少数群体，尊重不同的人。 ps，另外有些父母的通病是自我感动，比如“校园霸凌”这事儿，你要做的不是让孩子宽容忍让，而是给他提供心理支柱的作用，宽容忍让个毛线啊。 http://m.weibo.cn/status/J4ViH1YHS
+
+【她把陌生男人发来的下体自拍照，做成了展览】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247506983&amp;idx=1&amp;sn=45c63d98c12d58f133d91321ef3f8fd2&amp;chksm=fb732e84cc04a792e3b1711efbb8d4b68bcb079f35c8bbc3efe06b13a891a5334d50e1fb3eeb&amp;scene=126&amp;sessionid=1591177415#rd
+
+【Telegram: Contact @williamnee】
+国际特赦组织中文 | 中国近年积极在非洲投资，为中非关系提倡一种新的 ?q=%23%E5%8F%8C%E8%B5%A2 模式。当 ?q=%23%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF 被包装成“人类开辟新的历史进程”，在非洲又有怎样的声音？ ?q=%23AmnestyLive 第一讲，由 https://telete.in/williamnee 分享疫情中爆发的广州中非人权风波给我们带来的启示。赶快报名吧！
