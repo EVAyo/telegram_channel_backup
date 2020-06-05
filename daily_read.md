@@ -3967,3 +3967,37 @@ https://www.douban.com/doubanapp/dispatch?uri=/note/760563405/%26dt_dapp%3D1
 
 【有趣的创意影像 | ...】
 有趣的创意影像 | 摄影组合Daniel Rueda & Anna Devis http://m.weibo.cn/status/J4T1l5YsI
+
+=======
+
+每日文章精选
+
+【我作为一个普普通通无...】
+我作为一个普普通通无比渺小的家长，因为不给孩子听故事机里的《海的女儿》，被推上热搜，各路大V各路媒体变着花儿地连嘲带骂了我小半年，虽然也因为这个事情跨媒介出圈上了电视节目《见字如面》，归亚蕾老师温柔地朗读了我的微博，可是点评嘉宾除了一如既往地傲慢讥讽，也没发表出什么新鲜观点。但我依然以为，我还是凭着小小的力量影响了一小撮人，起码让一些有女孩的家长意识到，一贯如此不代表正确，传世经典不代表美好，过时刻板的公主童话可以从孩子的书架上拿走了，女孩子更需要有生命力有智慧力的儿童文学。 结果昨天网友给我发来私信，告诉我《海的女儿》结尾几段入选了部编版四年级语文教材。这下好了，像我这样的家长再反对也没用，人家直接从课外读物变成了义务教育校本必修课文。 http://m.weibo.cn/status/J5dmM8e2b
+
+【已婚男子的所谓业余爱...】
+已婚男子的所谓业余爱好其实都是为了逃避家庭 更直观点说 逃避家务活和带孩子 当然我个人认为家庭这个东西本身就不适合男性 唉 家庭和他们彼此放过不好吗 看着都难过 http://m.weibo.cn/status/J5eUCcuE7
+
+【洗脑彻底左右一对比，...】
+洗脑彻底左右一对比，智商立见高下 右：钟美美的视频明显有夸张不敬的感觉，也能明显让人感觉是讽刺老师。如果我的孩子这样学老师，我绝对不允许。 左：做父母的正常逻辑，难道不是看到孩子这样学老师，绝不允许自己的孩子继续被这样对待，换老师或者换学校吗？ http://m.weibo.cn/status/J5geBwh0f
+
+【#6431truth】
+?q=%236431truth ?q=%23%E5%85%AD%E5%9B%9B
+
+【【5月读书笔记】法律的颜色】
+http://mp.weixin.qq.com/s?__biz=MzUzNTYxMDg0Nw==&amp;mid=2247483748&amp;idx=1&amp;sn=7df061c7066f256e6d4c475fb8ddd964&amp;chksm=fa8395d4cdf41cc23fd37f055be3acbfe8029ee34cbca1c173defa7a0bdde08382a92bd3887e&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591161162588&amp;sharer_shareid=24568cf384f92f0f6d61e608864821a5#rd
+
+【有点可怕补充几点：①...】
+有点可怕补充几点：①泄露发生后两天政府才知道，普京震怒②俄当地的州长是刷社交媒体的时候发现我这石油漏了③泄漏的石油已经漂了12公里，清理需要5到10年的时间 2万吨柴油泄漏北极圈河流，没有及时控制，已经往海里去了 http://m.weibo.cn/status/J5gfmuYD1
+
+【女生们经常会听到这句...】
+女生们经常会听到这句「忠告」： 痛经不能吃止痛药，会上瘾。 但其实止痛药并没有那么可怕。会上瘾的那是「阿片」类药物，属于处方药。 通常推荐痛经时吃的的止痛药是布洛芬，布洛芬是通过抑制前列腺素的生成而起效的，它是会使痛感无法被放大，甚至无感知，安全系数是相对高的。 再说，痛经通常大约 2～3 天，5～6 颗的止痛药不会对你的身体产生特别大的影响。 http://m.weibo.cn/status/J56JpEiY1
+
+【90后医学生蹦床摔成“完全性截瘫”，这个游戏太可怕了！】
+http://mp.weixin.qq.com/s?__biz=MzUzNjY3NTY1NA==&amp;mid=2247501023&amp;idx=4&amp;sn=d21ccde6ae90cd891b13c83a2678f7d9&amp;chksm=faf010f6cd8799e0afd924832148e69b06094f86ed99965aaec4ef117b8907fc342a404578b3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591155570903&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【有趣的创意影像 | ...】
+有趣的创意影像 | 摄影组合Daniel Rueda & Anna Devis http://m.weibo.cn/status/J4T1l5YsI
+
+【从零开始的美国黑人生...】
+从零开始的美国黑人生活 http://m.weibo.cn/status/J54nCfwQZ
