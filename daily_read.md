@@ -4103,3 +4103,37 @@ http://mp.weixin.qq.com/s?__biz=MzIxMTE2NDAxMQ==&amp;mid=2247485707&amp;idx=1&am
 
 【人生而平等，希望美国...】
 人生而平等，希望美国这次真的可以改变，支持平权 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%8A%97%E8%AE%AE%E8%80%85%E6%A8%A1%E4%BB%BF%E9%BB%91%E4%BA%BA%E7%94%B7%E5%AD%90%E7%94%9F%E5%89%8D%E6%9C%80%E5%90%8E%E5%A7%BF%E5%8A%BF%23&extparam=%23%E6%8A%97%E8%AE%AE%E8%80%85%E6%A8%A1%E4%BB%BF%E9%BB%91%E4%BA%BA%E7%94%B7%E5%AD%90%E7%94%9F%E5%89%8D%E6%9C%80%E5%90%8E%E5%A7%BF%E5%8A%BF%23 我无法呼吸。为什么特朗普到现在都不说这是错的？他是彻头彻尾的种族主义者 http://video.weibo.com/show?fid=1034:4512028635627537
+
+=======
+
+每日文章精选
+
+【兽爷丨有一场硬仗要打】
+鲍毓明何时伏法？ https://www.weibo.com/ttarticle/p/show?id=2309404512543522554172
+
+【被逼疯的环卫工人，让我看到了最丑恶的嘴脸】
+http://mp.weixin.qq.com/s?__biz=MzAwMTI0MTA0MQ==&amp;mid=2651309945&amp;idx=1&amp;sn=08c334518feed6f0691878151097b619&amp;chksm=812fddc7b65854d15d783a4fbf38c507aa7e738e90bffb066702cba3df5a47b75eed25ed9aa9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591509814659&amp;sharer_shareid=b44d0043e8b8a2ff91cb0adf8b74ea39#rd
+
+【答友问：关于女权主义的几个常见问题与污名丨微思客】
+为什么会出现一些女性把男性当做跳板来获得自己的成功？其实除了表面肤浅的原因之外，背后有个很重要的问题，即在一个不平等且女性需要依附男性才能获得自身身份和利益的情况下，女性利用自己的“弱者”身份或是男性为其安排的性别角色，以此来“谋利”，本身既是无奈之举，也是一个积极的行为。 http://mp.weixin.qq.com/s?__biz=MzA4Nzc3MDIxMA==&amp;mid=2247490724&amp;idx=1&amp;sn=2bf2e20f0fcc54de90a7a39e07a7716f&amp;chksm=903509a9a74280bfb843bd097e2b7f623c70c1ac30cc7ca0dfdfd3823740e3eb06d37014c151&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591496392131&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【回乌鲁木齐过节和结婚】
+https://www.douban.com/note/765256286
+
+【被嘲讽的T团：选秀多年，为何大众仍贬低中性女孩？】
+http://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&amp;mid=2653078173&amp;idx=1&amp;sn=913fff7263954759683e7c4ab11f3e85&amp;chksm=84075292b370db8460186bab81e3f117012d90d6462fa38bd1d062e5c43aeaaf459055b0cccd&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591446858422&amp;sharer_shareid=fadd360b82feb5f9668f4a33cdcfbcc4#rd
+
+【我就服了，大V能不能...】
+我就服了，大V能不能不要再在那里鸡汤“穷人的生活也有幸福”了，不知道穷男人怎么样，穷女人是真的惨，白天出门干活回家还要收拾家里，晚上挨打挨强奸，你要再鼓励多子多福，她们就只有死路一条。 http://m.weibo.cn/status/J5qJgFPnh 【评】如果这样，华农兄弟也可以通过嚷嚷“竹鼠有生育权”来忽悠竹鼠多生育，问题是比起生育权，对华农的竹鼠来说最要紧的不是自由吗？因为自由意味着真正的生存权，而不是未来某一天随时被宰。
+
+【是時候重新出發了】
+是時候重新出發了 http://www.douban.com/people/139130442/status/2980689868
+
+【微博】
+男人努力赚钱是为了结婚，女人努力赚钱是为了不结婚。 男生买了房就有底气结婚了， 女生买了房就有底气单身了。 http://m.weibo.cn/status/J5mds5OxS
+
+【#婚姻割裂女性#】
+http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E5%A9%9A%E5%A7%BB%E5%89%B2%E8%A3%82%E5%A5%B3%E6%80%A7%23&extparam=%23%E5%A9%9A%E5%A7%BB%E5%89%B2%E8%A3%82%E5%A5%B3%E6%80%A7%23 粉丝投稿如图 一个女人两个身份：媳妇、姑子 造成非常对立的立场，无法共存 明白我说的“婚姻割裂女性”的意思了吧？
+
+【小野的故事……简直就...】
+小野的故事……简直就像无数普通女性故事被锐化过的样子。有时候想想，生育确实是原罪。很多不幸都来自于“生育”这个事实，不避孕，会怀孕；避孕失败，会怀孕；延宕了时间没有流产，会生；生了之后抛弃孩子会犯法——这是死结，无法解脱。 http://weibo.com/ttarticle/p/show?id=2309404512154056262039
