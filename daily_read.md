@@ -4069,3 +4069,37 @@ http://mp.weixin.qq.com/s?__biz=MzIzOTUzNTg1MQ==&amp;mid=2247485479&amp;idx=1&am
 
 【source】
 http://www.douban.com/people/1284694/status/2980576820
+
+=======
+
+每日文章精选
+
+【是時候重新出發了】
+是時候重新出發了 http://www.douban.com/people/139130442/status/2980689868
+
+【男性的14和女性的1...】
+男性的14和女性的14 http://m.weibo.cn/status/J5qA3eO1Y
+
+【第55届星云奖出炉，有篇小说竟然PK掉了特德·姜！】
+刚刚，2020年第55届美国星云奖结果出炉了！今年星云奖，女性作家和女性主角几乎包揽了所有奖项：最佳长中篇小说特别厉害竟然PK掉了大神特德·姜的作品；最佳短篇小说讨论了严肃的环境问题，又带着细腻的情感（文末可以看到全文）；最佳长篇小说世界观与当下现实不谋而合..... https://www.weibo.com/ttarticle/p/show?id=2309404510681645842629
+
+【尼古拉特斯拉是天才发...】
+尼古拉特斯拉是天才发明家。你难道不想感受下他天才的思想？世界是由电驱动的。怎样驱动？一半是通过他发明的感应电机。他把熟悉的导线，搭出巧妙的形状，再通上交流电后，就变成了一个旋转的大磁铁，但又没有它的笨重。设计堪称精妙绝伦。电梯，起重机等等都离不开它。而汽车燃油发动机也能用它代替。 http://m.weibo.cn/status/J5eW8phlI
+
+【微博】
+我看知乎相亲板块很多人表示：女的相亲要求高，不愿让步，男的的都知道要什么，有得商量。所以同样相亲，男的很快能找到，女的就要拖很久。 我且不说这里有没有刻板印象。但你就没想过： 如果女的都拖，男的都很快找到了，那他们找到的是什么性别？都去找男的了嘛？ http://m.weibo.cn/status/J5h2jbG0N
+
+【奇遇电影字幕组五周年...】
+奇遇电影字幕组五周年了！ 五年前的今天，我们发布了第一部电影《黑色池塘》，转眼就到了现在的是367部《国家葬礼》。 我们想把一些艺术价值比较高的冷门电影挑出来，用心制作好字幕，推荐给那些观影口味跟我们相投的人。 对于很多刚刚热爱上迷影的新朋友来说，你看到的每一部电影，都会潜移默化地影响并塑造你以后的观影品位。 我们希望奇遇组翻的这些片子，可以让大家拥有不一样的观影体验，可以在主流的娱乐片之外，看到电影更多的可能性，认识更多有才华的导演。 最后附上奇遇电影字幕组的豆列： http://m.douban.com/doulist/110975229
+
+【90后医学生蹦床摔成“完全性截瘫”，这个游戏太可怕了！】
+http://mp.weixin.qq.com/s?__biz=MzUzNjY3NTY1NA==&amp;mid=2247501023&amp;idx=4&amp;sn=d21ccde6ae90cd891b13c83a2678f7d9&amp;chksm=faf010f6cd8799e0afd924832148e69b06094f86ed99965aaec4ef117b8907fc342a404578b3&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591155570903&amp;sharer_shareid=559e2a3667020745a77f85de450ca7dd#rd
+
+【A2N性别｜医疗"性别薪酬差距"八大知识点】
+http://mp.weixin.qq.com/s?__biz=MzIxMTE2NDAxMQ==&amp;mid=2247485707&amp;idx=1&amp;sn=6012088f09846e80c014571511761387&amp;chksm=9758c70fa02f4e197f5119dd6e70e2bd5d68be803b0528e3679810599b6c22520f03f4418c87&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1591450769999&amp;sharer_shareid=e10eb63a10a36970acbd6d3fc0eb6739#rd
+
+【"10/1"是罗马尼...】
+"10/1"是罗马尼亚摄影师 Bogdan Girbovan 完成于2008年的拍摄项目，呈现了首都布加勒斯特东部一栋普通居民楼内从一层到十层相同户型的公寓陈设，以及神色姿态各异的屋主人。 http://www.douban.com/people/34135122/status/2982156151
+
+【人生而平等，希望美国...】
+人生而平等，希望美国这次真的可以改变，支持平权 http://m.weibo.cn/search?containerid=231522type%3D1%26t%3D10%26q%3D%23%E6%8A%97%E8%AE%AE%E8%80%85%E6%A8%A1%E4%BB%BF%E9%BB%91%E4%BA%BA%E7%94%B7%E5%AD%90%E7%94%9F%E5%89%8D%E6%9C%80%E5%90%8E%E5%A7%BF%E5%8A%BF%23&extparam=%23%E6%8A%97%E8%AE%AE%E8%80%85%E6%A8%A1%E4%BB%BF%E9%BB%91%E4%BA%BA%E7%94%B7%E5%AD%90%E7%94%9F%E5%89%8D%E6%9C%80%E5%90%8E%E5%A7%BF%E5%8A%BF%23 我无法呼吸。为什么特朗普到现在都不说这是错的？他是彻头彻尾的种族主义者 http://video.weibo.com/show?fid=1034:4512028635627537
