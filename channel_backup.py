@@ -8,7 +8,7 @@ import sys
 import os
 from telegram_util import parseUrl
 
-channels = {'daily_read': 27}
+channels = {'daily_read': 27, 'muddycat': 1}
 
 def getPosts(name, start):
 	content = cached_url.get('https://t.me/s/%s/%d' % (name, start))
