@@ -4345,3 +4345,7 @@ http://www.douban.com/note/713772800
 
 【豆瓣评分9.0以上的...】
 豆瓣评分9.0以上的100部电影，快来康一康！ http://m.weibo.cn/status/J5EFSvHWs
+
+=======
+
+每日文章精选
