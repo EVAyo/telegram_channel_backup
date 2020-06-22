@@ -5074,3 +5074,37 @@ felix gonzalez-torres 萨雷斯托雷斯在20世纪八九十年代被许多人�
 
 【#日环食#本月6月2...】
 #日环食#本月6月21日，美妙绝伦的金边日食作为2020年最值得期待的天象，即将在天宇上映。此次日环食的环食带西起非洲中部，一路向东，在西藏进入我国境内，东西横穿我国中部地区，最后经过台湾，消失于茫茫的太平洋西部。错过这次观测，就要再等10年才能看到这样的奇观。 http://m.weibo.cn/status/J7yDHfEjN
+
+=======
+
+每日文章精选
+
+【从大理到丽江，从清晨...】
+从大理到丽江，从清晨到日暮！（手机拍摄） http://www.douban.com/people/1225651/status/2998459573
+
+【中国舆论场的“反黑”民族主义：性/别、生育与疾病隐喻】
+http://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&amp;mid=2247486682&amp;idx=1&amp;sn=1f0689100c7f5c2f5fa49bd4abb25f8c&amp;chksm=fdea04ebca9d8dfd1a5a0ae9bd5bb35fcd69f6a047cc54dabaa5f6459b8b9d2d3e7babfce5b0&amp;mpshare=1&amp;scene=24&amp;srcid=&amp;sharer_sharetime=1592657169234&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【从Papi酱聊到美国夫人：女权主义者可以是任何人】
+http://mp.weixin.qq.com/s?__biz=MzIwODA2MjYxMg==&amp;mid=2247485582&amp;idx=1&amp;sn=4c585573c8638996ba34fe6d7e0eee9d&amp;chksm=97099975a07e1063ee3a851ec22f4369975ae9b09fa187a17f8976d537e293f668c09e52a8b9&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592744076645&amp;sharer_shareid=b7c5a874a16b14be3a7c388aaa87184d#rd
+
+【推荐最后一篇《焦虑是...】
+推荐最后一篇《焦虑是自由引起的眩晕》
+
+【「春风吹过的凛冬」 ...】
+「春风吹过的凛冬」 国内首部饮食障碍纪录短片 你曾体会过被食物支配的恐惧吗？ 你能懂丧失进食能力的痛苦吗？ 你敢想象二十八公斤的人生吗？ 你能理解因多吃一粒米就奔溃自杀的人吗？ 本片聚焦饮食障碍患者群体——厌食症，暴食症，贪食症，这个致死率最高的精神障碍疾病，正在摧毁着一个又一个的美丽生命。 ❤️ 「你的价值不体现在秤上，体重秤和卷尺不能测量你的美。 身材是特点，不是缺点。不要做凝视对象，要做主体。 你想做什么就去做，永远不用等到减肥成功之后。 希望你吃的每一口都是你想要的快乐。」 “我当初就是在这儿哭的呀，往后看，我哭过的地方都长出了花。” 无论如何，我们都在这里，和你一起。 💛 落雪无痕春满楹。 请相信凛冬终会过去，春天总会来临。 http://m.weibo.cn/status/J6L1t4JQu
+
+【felix gonz...】
+felix gonzalez-torres 萨雷斯托雷斯在20世纪八九十年代被许多人推选为当代最伟大的艺术家之一，是一块闪亮的招牌。他在1996年死于艾滋病，年仅38岁，跟他相爱的男友Ross更早一步因为艾滋病离开人世。 他做了很多个糖果的装置，175磅七彩缤纷的糖果代表艺术家男友Ross理想的体重，艺术家将糖果堆放在一个展间的角落里，供参观者享用，参展观众每拿走一颗糖果都代表着他的男友被艾滋病啃蚀的身躯。 · http://m.weibo.cn/status/J7oHNnAqS
+
+【是什么使星期一的同性恋权利裁决如此具有历史意义】
+http://mp.weixin.qq.com/s?__biz=MzU5ODYxMTI0Ng==&amp;mid=2247492321&amp;idx=4&amp;sn=f02cdf2ded1667773a730bf95e9de4fb&amp;chksm=fe4326a0c934afb65588110ddcb4ce188ee834c5da8654015a80c9ae7157331a46bd1679a708&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592784854244&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【山东242人学历涉嫌...】
+山东242人学历涉嫌被冒名顶替，能被查出来是因为被顶替者又重新考上了高等学历，这时学信网系统就会出现同名、同身份证号的用户，这样才筛查出来了。可见被发现的绝对是极少的一部分。绝大部分人可能“落榜后”便再未追求过高等学历，而冒名顶替他们的人至今还未被人发现！ http://www.douban.com/people/120956421/status/2998515983
+
+【作为看起来挺正经的女孩，我为什么给大家科普这些不正经的词儿？| 童姥 一席第768位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650898893&amp;idx=1&amp;sn=46a2428a22920a74808b1bc80bebe330&amp;chksm=bd1358a68a64d1b0647a1c0937a43b0e2b30595c4e2c91a88af2b385473bbfd2deaa89b877f0&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592677679067&amp;sharer_shareid=61ba3d5aab0e9cd90551411d13b76986#rd
+
+【#X博士读文献#】
+#X博士读文献# 导致孕妇自杀的高危因素（排序不分先后）—— 发展中国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、胎儿性别女、婆媳关系紧张。 发达国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、精神病史、酗酒吸毒、失业、人工流产。 http://m.weibo.cn/status/J7IPsaWLl
