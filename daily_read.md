@@ -5108,3 +5108,37 @@ http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650898893&amp;idx=1&am
 
 【#X博士读文献#】
 #X博士读文献# 导致孕妇自杀的高危因素（排序不分先后）—— 发展中国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、胎儿性别女、婆媳关系紧张。 发达国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、精神病史、酗酒吸毒、失业、人工流产。 http://m.weibo.cn/status/J7IPsaWLl
+
+=======
+
+每日文章精选
+
+【黑人社会主义领袖：“需要团结起来解除警察的武装”】
+http://mp.weixin.qq.com/s?__biz=MzUyNDMzMzQ0OQ==&amp;mid=2247486954&amp;idx=1&amp;sn=e3bc1a853f5fcd93618482d215a1c828&amp;chksm=fa2fb50ccd583c1ad8b562ea9ca7f2efc73df9f0dba99bd496c18bc68e9ccbf25d75dac4ed7a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592790193822&amp;sharer_shareid=3e9244118f5ea5dab3cb5be188f23595#rd
+
+【网络热传生物鉴定】
+网络热传生物鉴定 http://m.weibo.cn/status/J7PQleXjH
+
+【【送奶工电梯内猥亵女...】
+【送奶工电梯内猥亵女童被判刑 北京法官吁推进儿童性教育】“这说明儿童性教育仍然停留在意识层面，没有深入孩子的内心。有鉴于此，必须将儿童性教育继续深入推进，并将其（应对性侵）作为一项基础生存技能，教给孩子并让他们掌握，避免来自身边的危险。”法官表示。 http://china.caixin.com/2020-06-19/101569729.html 【评】瞠目结舌！太可笑了！女人出事后教育女人，10岁的小孩被猥亵后告诉家长还不够，还要求小孩子要学会反抗，10岁的孩子反抗成人是什么后果？受害者真难。
+
+【是什么使星期一的同性恋权利裁决如此具有历史意义】
+http://mp.weixin.qq.com/s?__biz=MzU5ODYxMTI0Ng==&amp;mid=2247492321&amp;idx=4&amp;sn=f02cdf2ded1667773a730bf95e9de4fb&amp;chksm=fe4326a0c934afb65588110ddcb4ce188ee834c5da8654015a80c9ae7157331a46bd1679a708&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592784854244&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【#X博士读文献#】
+#X博士读文献# 导致孕妇自杀的高危因素（排序不分先后）—— 发展中国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、胎儿性别女、婆媳关系紧张。 发达国家：家暴、未婚、未成年、缺乏家庭和社会支持、意外怀孕、精神病史、酗酒吸毒、失业、人工流产。 http://m.weibo.cn/status/J7IPsaWLl
+
+【美國前國家安全顧問博...】
+美國前國家安全顧問博爾頓的新書《事發之屋：白宮回憶錄》（The Room Where it Happened: A White House Memoir）原定於6月23日出版。因涉嫌洩露 https://telete.in/BlackCatTeaRoom/1254 這一美國國家機密，昨日美國司法部要求法官阻止該書出版。本頻道已獲取本書電子版以饗讀者。
+
+【今天本该是他重获自由...】
+今天本该是他重获自由之日 http://www.douban.com/people/1410636/status/3001039546 http://zh.wikipedia.org/wiki/%25E5%2588%2598%25E6%2599%2593%25E6%25B3%25A2
+
+【海外亚裔该如何看待当前的Black Lives Matter运动？】
+https://www.douban.com/note/767462894
+
+【真事改编，丹麦LGB...】
+真事改编，丹麦LGBT新片《她是我爸爸》，青年女导演玛露·雷曼长片处女作。Emma生在一个非常普通的家庭，幸福快乐。然而有一天突然召开家庭会议，爸妈决定离婚，原因是爸爸居然不想再做男人了！ 本片深入一个跨性别者的家庭，聚焦父女双方在变性这件事上的内心煎熬与心理变化。英文片名：<A Perfectly Normal Family>一个普通家庭，获鹿特丹电影节大银幕奖，即将于本届台北电影节展映。 http://m.weibo.cn/status/J6vnY2sas
+
+【剪了几段父亲节的gi...】
+剪了几段父亲节的gig, Siddiq抱怨父亲节在节日中最没气氛，Taylor吐槽长大以后对父亲没有祝福语可写，或是小白厅大张旗鼓给Michael过节，调侃的点都挺到位，靠谱的爹可太少了 http://m.weibo.cn/status/J7PDL8hxf
