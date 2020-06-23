@@ -5142,3 +5142,71 @@ https://www.douban.com/note/767462894
 
 【剪了几段父亲节的gi...】
 剪了几段父亲节的gig, Siddiq抱怨父亲节在节日中最没气氛，Taylor吐槽长大以后对父亲没有祝福语可写，或是小白厅大张旗鼓给Michael过节，调侃的点都挺到位，靠谱的爹可太少了 http://m.weibo.cn/status/J7PDL8hxf
+
+=======
+
+每日文章精选
+
+【看到一句话：“上午夸...】
+看到一句话：“上午夸父，下午追日” http://m.weibo.cn/status/J7H7Hfe5a
+
+【推荐最后一篇《焦虑是...】
+推荐最后一篇《焦虑是自由引起的眩晕》
+
+【是什么使星期一的同性恋权利裁决如此具有历史意义】
+http://mp.weixin.qq.com/s?__biz=MzU5ODYxMTI0Ng==&amp;mid=2247492321&amp;idx=4&amp;sn=f02cdf2ded1667773a730bf95e9de4fb&amp;chksm=fe4326a0c934afb65588110ddcb4ce188ee834c5da8654015a80c9ae7157331a46bd1679a708&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592784854244&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【网络热传生物鉴定】
+网络热传生物鉴定 http://m.weibo.cn/status/J7PQleXjH
+
+【海外亚裔该如何看待当前的Black Lives Matter运动？】
+https://www.douban.com/note/767462894
+
+【海报，台译《六十九岁...】
+海报，台译《六十九岁》： http://wx1.sinaimg.cn/large/606a1a7dly1gg0do34ftdj20qz15on12.jpg wow韩国电影人真敢拍，聚焦老年性侵题材《老妇人》An Old Lady预告，入围台北电影节“未来之光”单元。导演林善爱受到真实社会事件启发，自编自导处女作。韩国影视剧“奶奶专业户”老戏骨艺秀晶主演。釜山国际电影节观众选择奖，圣丹斯电影节国际剧情片最佳剧本、观众票选大奖。 69岁的孝庭被29岁的复健师性侵，她勇敢报警，但对方声称一切都是你情我愿，整个司法系统也回应迟缓。举证和调查困难重重，她的记忆力甚至都受到质疑。众人心照不宣地想着“这怎么可能”，在讨回公道的路上，只有一个朋友愿意帮助她... 据报道统计，老年性侵受害者只有1%成功提出控诉。正是这样无法说、不敢说的脆弱，让她们更容易被盯上。“驱动我写下这故事的，是深深的无力感。”---导演林善爱 http://t.cn/A6Lpzk2K
+
+【美國前國家安全顧問博...】
+美國前國家安全顧問博爾頓的新書《事發之屋：白宮回憶錄》（The Room Where it Happened: A White House Memoir）原定於6月23日出版。因涉嫌洩露 https://telete.in/BlackCatTeaRoom/1254 這一美國國家機密，昨日美國司法部要求法官阻止該書出版。本頻道已獲取本書電子版以饗讀者。
+
+【黑人社会主义领袖：“需要团结起来解除警察的武装”】
+http://mp.weixin.qq.com/s?__biz=MzUyNDMzMzQ0OQ==&amp;mid=2247486954&amp;idx=1&amp;sn=e3bc1a853f5fcd93618482d215a1c828&amp;chksm=fa2fb50ccd583c1ad8b562ea9ca7f2efc73df9f0dba99bd496c18bc68e9ccbf25d75dac4ed7a&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592790193822&amp;sharer_shareid=3e9244118f5ea5dab3cb5be188f23595#rd
+
+【剪了几段父亲节的gi...】
+剪了几段父亲节的gig, Siddiq抱怨父亲节在节日中最没气氛，Taylor吐槽长大以后对父亲没有祝福语可写，或是小白厅大张旗鼓给Michael过节，调侃的点都挺到位，靠谱的爹可太少了 http://m.weibo.cn/status/J7PDL8hxf
+
+【生年不满百，常怀千岁...】
+生年不满百，常怀千岁忧 http://www.douban.com/people/1312772/status/3002851980
+
+=======
+
+每日文章精选
+
+【今天本该是他重获自由...】
+今天本该是他重获自由之日 http://www.douban.com/people/1410636/status/3001039546 http://zh.wikipedia.org/wiki/%25E5%2588%2598%25E6%2599%2593%25E6%25B3%25A2
+
+【中国舆论场的“反黑”民族主义：性/别、生育与疾病隐喻】
+http://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&amp;mid=2247486682&amp;idx=1&amp;sn=1f0689100c7f5c2f5fa49bd4abb25f8c&amp;chksm=fdea04ebca9d8dfd1a5a0ae9bd5bb35fcd69f6a047cc54dabaa5f6459b8b9d2d3e7babfce5b0&amp;mpshare=1&amp;scene=24&amp;srcid=&amp;sharer_sharetime=1592657169234&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【世界被毁还剩百秒 美俄仅存裁军条约前途未卜】
+DW 中文- 德国之声 | 美俄两国间仅存的这最后一个关于限制核武器的条约若不再延长，则人类世界近半个世纪以来首次出现两个最大核武库不受条约限制的局面。 http://p.dw.com/p/3e9i3
+
+【felix gonz...】
+felix gonzalez-torres 萨雷斯托雷斯在20世纪八九十年代被许多人推选为当代最伟大的艺术家之一，是一块闪亮的招牌。他在1996年死于艾滋病，年仅38岁，跟他相爱的男友Ross更早一步因为艾滋病离开人世。 他做了很多个糖果的装置，175磅七彩缤纷的糖果代表艺术家男友Ross理想的体重，艺术家将糖果堆放在一个展间的角落里，供参观者享用，参展观众每拿走一颗糖果都代表着他的男友被艾滋病啃蚀的身躯。 · http://m.weibo.cn/status/J7oHNnAqS
+
+【从之前的用电多是用电...】
+从之前的用电多是用电少也是，到现在穿最新流行的短裤透明的鞋子也是，男人又开始空口鉴了。 请女性不要加入男权的贞妇荡妇二元鉴定游戏，一旦加入，你永远无法按自己心意生活。任何元素都可以成为男权口中的“荡妇标志”，大到事业爱好，小到服饰玩具甚至走路姿势和用电量都可能成为“你是”的标志。#女性是命运共同体# 望周知。 这个腿环准确讲叫“赛博腿环”源自于赛博朋克（英语：Cyberpunk，又译作“电驭叛客”）是“控制论”（Cybernetics）与“朋克”（Punk）的结合词。 赛博朋克原本是一种社会思潮，经典的赛博朋克角色是边缘且性格疏远的独行者。他们生活在社会群体的边缘，一个弥漫反乌托邦氛围的未来：日常生活受到急剧改变的科技影响，普及的计算机化信息笼罩全球，以及侵入性的人体改造。
+
+【香港那个N号房间，比韩国的还恶心】
+http://dwz.date/bjGC
+
+【一款游戏为什么让许多人如此生气？】
+http://mp.weixin.qq.com/s?__biz=MzA3MDM3NjE5NQ==&amp;mid=2650855879&amp;idx=1&amp;sn=7d221756c6ce322320488be24d4f95c8&amp;chksm=84c9b7abb3be3ebdef806b2ddb48bdd572b3a21dd190a66b7388dbbd5ba9caa3361f69834b90&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1592803789342&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【我记得《隐秘的角落》...】
+我记得《隐秘的角落》原著里小女孩逃离孤儿院是因为被性侵。剧里改掉了。 这种都要回避……看来这个话题在社会和法律层面都不能被重视了。 http://m.weibo.cn/status/J7DiC2y0n 【网评】 恋童性侵不可提，扶弟倒是提倡，魔幻把女性从小就描绘成奉献的角色，就是男权社会的恶臭和自私罢了从被性侵改成给弟弟筹钱……太中国特色，太讽刺了
+
+【真事改编，丹麦LGB...】
+真事改编，丹麦LGBT新片《她是我爸爸》，青年女导演玛露·雷曼长片处女作。Emma生在一个非常普通的家庭，幸福快乐。然而有一天突然召开家庭会议，爸妈决定离婚，原因是爸爸居然不想再做男人了！ 本片深入一个跨性别者的家庭，聚焦父女双方在变性这件事上的内心煎熬与心理变化。英文片名：<A Perfectly Normal Family>一个普通家庭，获鹿特丹电影节大银幕奖，即将于本届台北电影节展映。 http://m.weibo.cn/status/J6vnY2sas
+
+【北京公园常见植物】
+北京公园常见植物 http://m.weibo.cn/status/J7PYl7AUB
