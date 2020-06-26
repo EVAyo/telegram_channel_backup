@@ -5414,3 +5414,37 @@ DW 中文- 德国之声 | 美俄两国间仅存的这最后一个关于限制核
 
 【精神食粮 最近常听的...】
 精神食粮 最近常听的播客都在这里了。 http://m.weibo.cn/status/J7W6X9953
+
+=======
+
+每日文章精选
+
+【毛子拍的新闻照】
+毛子拍的新闻照 是真让人服气 http://www.douban.com/people/1299702/status/3004345164
+
+【网络热传生物鉴定】
+网络热传生物鉴定 http://m.weibo.cn/status/J7PQleXjH
+
+【我的照片被挂在了黄网...】
+我的照片被挂在了黄网，我该怎么办 http://m.weibo.cn/status/J87PA4Qx6
+
+【亚历山大·费奥多罗维奇·克伦斯基】
+“领导二月革命推翻了沙皇的统治” “在斯坦福大学任教” http://zh.wikipedia.org/wiki/%25E4%25BA%259A%25E5%258E%2586%25E5%25B1%25B1%25E5%25A4%25A7%25C2%25B7%25E8%25B4%25B9%25E5%25A5%25A5%25E5%25A4%259A%25E7%25BD%2597%25E7%25BB%25B4%25E5%25A5%2587%25C2%25B7%25E5%2585%258B%25E4%25BC%25A6%25E6%2596%25AF%25E5%259F%25BA
+
+【不单单是高考录取，社...】
+不单单是高考录取，社会资源再分配的环节有很多，贫困的女性是最容易受到不公平待遇的，因为她们的支撑系统最少。 为什么被顶替的都是女生？这个问题很好，孙旭阳写的，我转一下。 http://mp.weixin.qq.com/s/iyHnhGaqUF5fdfgOfn8sOQ ？
+
+【创意家具】
+创意家具 http://m.weibo.cn/status/J7WbSmHBg
+
+【m.weibo.cn...】
+http://m.weibo.cn/status/J6yGSstry
+
+【一点表达欲 ～】
+一点表达欲 ～ Michael Dumontier and Neil Farber · http://m.weibo.cn/status/J8fnZ849z
+
+【讽刺到位】
+讽刺到位 http://m.weibo.cn/status/J8reRgV8D
+
+【这波操作真是666，...】
+这波操作真是666，班主任深谙程序，下本钱不少 http://www.douban.com/people/120956421/status/3006065219
