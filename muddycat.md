@@ -73,3 +73,11 @@ https://telegra.ph/%E5%90%8C%E5%BF%97%E9%AA%84%E5%82%B2%E6%9C%88%E8%AF%A5%E5%87%
 =======
 
 大家怎么看这篇文章： https://telegra.ph/%E9%A9%AC%E5%85%8B%E9%87%8C%E6%8B%89%E5%B4%87%E6%8B%9C%E6%A1%91%E5%BE%B7%E6%96%AF%E5%92%8C%E8%91%9B%E5%85%B0%E8%A5%BF%E7%9A%84%E6%B3%95%E5%9B%BD%E6%96%B0%E5%8F%B3%E7%BF%BC%E7%9F%A5%E8%AF%86%E5%88%86%E5%AD%90-06-30
+
+=======
+
+https://telegra.ph/How-South-Koreas-Pro-Democracy-Movement-Fought-to-Ban-Murderous-Tear-Gas-07-01
+
+真的是小说也不敢这么写... 被催泪弹搞死了很多人，大量工人、女性动员起来上街抗议，但并没有什么卵用。
+
+等了11年，新总统上台把催泪弹ban了，从此之后政府不再直接用催泪弹，而是往水炮里装催泪弹。。。。
