@@ -5924,3 +5924,37 @@ https://www.douban.com/note/764273683
 
 【【香港】最后一批被捕...】
 【香港】最后一批被捕者上大巴的时候，围观的人群里，有个少女举起一叠白纸，警察的电筒强光不时扫过她的脸，她也不闪躲。 突然想起，以前看过的苏联冷笑话：红场上，有个人在派传单，军官到场把人逮捕，却发现传单都只是白纸。军官想了想，对那个人说：你以为我不知道你想写甚么？ 「我突然想看看，看起来荒谬的笑话，是不是已经成真了。」少女说。 https://www.thestandnews.com/politics/7-1-%25E6%258E%25A1%25E8%25A8%25AA%25E6%2589%258B%25E8%25A8%2598-%25E8%2588%2589%25E7%2599%25BD%25E7%25B4%2599%25E7%259A%2584%25E5%25B0%2591%25E5%25A5%25B3
+
+=======
+
+每日文章精选
+
+【精神食粮 最近常听的...】
+精神食粮 最近常听的播客都在这里了。 http://m.weibo.cn/status/J7W6X9953
+
+【阴道高潮：历史留给直女的死胡同】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649752637&amp;idx=1&amp;sn=fe5875aa9f264716d6570740026b32b6&amp;chksm=f26bdc5cc51c554a3eddd9ee5b7eeb3d57dc9162277540aa2615e65e30fe9fe41632b186cd50&amp;mpshare=1&amp;scene=1&amp;srcid=0704NsyhkW6kGeQDjSWheFWp&amp;sharer_sharetime=1593877101812&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【研究称中国新型猪流感病毒正在向人类传播】
+纽约时报中文网 | 研究发现一种新型H1N1病毒正在中国养猪厂的工人中传播。 科学家称其具有候选大流行病毒的所有基本特征，若进一步变异，可能会像新冠病毒一样对人类更具攻击性。 http://nyti.ms/2NMdEWN
+
+【【中文字幕】女权活动是对男性的逆向歧视吗？韩国作家孙雅兰演讲：歧视需要付出代价_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/BV1m7411m7GC
+
+【隐秘的角落里，隐秘的厌女症】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485364&amp;idx=1&amp;sn=4920b794c553796bdbd3fa3747273aa0&amp;chksm=fabbf3d2cdcc7ac4a11b73a68b3e227a3f09e772096ea57f75e1110a3e0fdcc3c9d336685b6b&amp;mpshare=1&amp;scene=1&amp;srcid=07037gg2m6qitk3JJixZ4iBE&amp;sharer_sharetime=1593789430521&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【左翼将人本身放在一切...】
+左翼将人本身放在一切考虑的首位，而拒绝以抽象的、与人并无直接关联的价值替代人的第一性。 https://mp.weixin.qq.com/s/7cAcL-l4Uu1fXnsOWl_lEw
+
+【谈“打工诗人”与作家的群体身份】
+https://www.douban.com/note/764273683
+
+【疫情中性工作者的困境，有人关注吗？】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247485922&amp;idx=1&amp;sn=d132b73662ac1b0a2bd267eddd7f07ad&amp;chksm=fa6ab8d1cd1d31c7f556e5e11de0c8726b3fbae7273f5dca615e8e5ca108307075b6b7a5a391&amp;mpshare=1&amp;scene=1&amp;srcid=0704I7hcNp6LRlTMXVhjBTu0&amp;sharer_sharetime=1593836942366&amp;sharer_shareid=fdefb30d495101640be1fc9f48f1af41#rd
+
+【The Water ...】
+The Water Lilies Claude Monet 莫奈一生究竟画了多少幅睡莲？ 据学者和专家们统计，现存于世的莫奈睡莲总共约有250幅，这些绘画作品主要描绘的是莫奈在吉维尼花园中的美景。René Gimpel 在参观完莫奈的工作室后曾评论：“ 面对莫奈的睡莲时，我们其实在欣赏一个艺术奇景，二十多张巨幅画作环形排列，我们则置身其中。所有作品都有差不多一米八宽，一米二高。画面上画的全是水面和睡莲，光和天空。在这水天相接的画面中，我难以分辨该从哪张画开始看，或是到哪里算结束。那感觉像是看到了混沌初分的一刻，是如此神秘、富有诗意、如此美妙得不真实。” . http://m.weibo.cn/status/J9165hdMm
+
+【被摧毁的青春：中央公园五少年的故事】
+http://mp.weixin.qq.com/s?__biz=MzAxMzE5ODEwMw==&amp;mid=2247483735&amp;idx=1&amp;sn=80b7392581772fd35a93f20e7d79e66a&amp;chksm=9ba7772facd0fe39fafbaa79407eec0f94f084f96840d5b6fe128cb194659e98f8b0c28647a1&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1593725529700&amp;sharer_shareid=07dae7f753e681ede4b61d28d8ec0a3f#rd
