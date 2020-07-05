@@ -5958,3 +5958,37 @@ The Water Lilies Claude Monet 莫奈一生究竟画了多少幅睡莲？ 据学�
 
 【被摧毁的青春：中央公园五少年的故事】
 http://mp.weixin.qq.com/s?__biz=MzAxMzE5ODEwMw==&amp;mid=2247483735&amp;idx=1&amp;sn=80b7392581772fd35a93f20e7d79e66a&amp;chksm=9ba7772facd0fe39fafbaa79407eec0f94f084f96840d5b6fe128cb194659e98f8b0c28647a1&amp;mpshare=1&amp;scene=1&amp;srcid=&amp;sharer_sharetime=1593725529700&amp;sharer_shareid=07dae7f753e681ede4b61d28d8ec0a3f#rd
+
+=======
+
+每日文章精选
+
+【《对不起，错过你》：坚·卢治不会错过批判零工经济】
+https://squatting2047.com/%25e3%2580%258a%25e5%25b0%258d%25e4%25b8%258d%25e8%25b5%25b7%25ef%25bc%258c%25e9%258c%25af%25e9%2581%258e%25e4%25bd%25a0%25e3%2580%258b%25ef%25bc%259a%25e5%25a0%2585%25c2%25b7%25e7%259b%25a7%25e6%25b2%25bb%25e4%25b8%258d%25e6%259c%2583%25e9%258c%25af%25e9%2581%258e%25e6%2589%25b9%25e5%2588%25a4%25e9%259b%25b6%25e5%25b7%25a5
+
+【请来专业律师来讲解律...】
+请来专业律师来讲解律政剧里哪些不合理的地方，《风骚律师》《傲骨贤妻》《法律与秩序》《美国犯罪故事》《傲骨之战》《生活大爆炸》等纷纷上榜，讲到《灵书妙探》槽点过多，律师感觉都要坐不住了，义愤填膺的表示这个剧应该把编剧开除 http://m.weibo.cn/status/J8LEPBPf3
+
+【都什么年代了，还觉得女生不适合学理科】
+http://mp.weixin.qq.com/s?__biz=MzAxNjYwMzMwNw==&amp;mid=2649517121&amp;idx=1&amp;sn=b8e840486b228a3736bf97095b19667a&amp;chksm=83ea8d85b49d049326ac7ea9955384a5e175e252533967ffff022256db256bd81c045f07c49e&amp;mpshare=1&amp;scene=1&amp;srcid=0705TIOtOhXzJPifhOzfC7wZ&amp;sharer_sharetime=1593923135921&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【简报：香港国安法深夜生效；专家忧中国猪流感向人类传播】
+纽约时报中文网 | 香港国安法深夜生效；专家忧中国猪流感向人类传播；华为和中兴被美国列为国家安全威胁；澳大利亚斥巨资建设网络国防抵御中国攻击；电子数据显示俄罗斯悬赏塔利班猎杀美军……NYT简报带你速览今日要闻。 http://nyti.ms/3ePcYvQ
+
+【【虽然好好笑但是笑完...】
+【虽然好好笑但是笑完之后很难过的产品】 什么时候女性才能实现穿衣自由啊…… http://m.weibo.cn/status/J9vtv9LgH
+
+【粉螨鉴定】
+粉螨鉴定 http://m.weibo.cn/status/J9Gl1uldm
+
+【今天带来的是普希金的...】
+今天带来的是普希金的《达吉雅娜给奥涅金的信》，节选自《叶甫盖尼•奥涅金》，智量译版。朗读者：Маша Матвейчук http://m.weibo.cn/status/J9eBkziqb
+
+【陶哲轩挑战失败的百年数学问题，被两名在家隔离的数学家破解了】
+https://zhuanlan.zhihu.com/p/151691984
+
+【【来自投稿】】
+【来自投稿】 台湾歌手白冰冰与其女白晓燕 白晓燕（1981年6月23日—1997年4月18日），出生于中国台湾，艺人白冰冰与日本知名漫画家梶原一骑之女，1997年高二时因绑架案遭撕票遇害。 “白案”为台湾有史以来最重大刑案之一，由于被害者为知名艺人之女，加上陈进兴等三名加害人不仅作案手法残酷且又于逃亡途中犯下多件刑案，导致台湾社会为之震撼。另外，该案发生期间，台湾新闻媒体大篇幅的报导，亦被普遍认为侵害受害者家属隐私、将歹徒英雄化。因此，此时期媒体的报道行为亦成为而后台湾新闻媒体伦理标准的负面教材。 该案件不但为当年度影响台湾最大的单一事件，也是1990年代甚至“国府”迁台以来最重大的治安事件之一。据台湾半官方的“国策中心研究室”所做的研究报告显示，白案的影响层面甚至达到台湾的“修宪”、“政党政治”与内阁政治的权责划分。 http://m.weibo.cn/status/J9lAPEE2c
+
+【隐秘的角落里，隐秘的厌女症】
+http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485364&amp;idx=1&amp;sn=4920b794c553796bdbd3fa3747273aa0&amp;chksm=fabbf3d2cdcc7ac4a11b73a68b3e227a3f09e772096ea57f75e1110a3e0fdcc3c9d336685b6b&amp;mpshare=1&amp;scene=1&amp;srcid=07037gg2m6qitk3JJixZ4iBE&amp;sharer_sharetime=1593789430521&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
