@@ -5992,3 +5992,37 @@ https://zhuanlan.zhihu.com/p/151691984
 
 【隐秘的角落里，隐秘的厌女症】
 http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485364&amp;idx=1&amp;sn=4920b794c553796bdbd3fa3747273aa0&amp;chksm=fabbf3d2cdcc7ac4a11b73a68b3e227a3f09e772096ea57f75e1110a3e0fdcc3c9d336685b6b&amp;mpshare=1&amp;scene=1&amp;srcid=07037gg2m6qitk3JJixZ4iBE&amp;sharer_sharetime=1593789430521&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+=======
+
+每日文章精选
+
+【【#香港现金发放计划...】
+【#香港现金发放计划放款##430万香港市民每人领一万元# 将迎“消费黄金档期”】 http://m.weibo.cn/status/J9XrL6KVm https://telete.in/cabletv_news/31603
+
+【source】
+http://www.douban.com/people/2851211/status/3013142090
+
+【一则新闻：女高中生霸...】
+一则新闻：女高中生霸气制服公交咸猪手。挺正能量的事吧，大家猜猜，评论里都是什么？ 评论里得赞最高的，“兄弟你不能这样饥不择食啊”，得了2000多个赞； “我觉得男的可能是被冤枉的”，1000多个赞； “口味挺重的，老哥”，1000多个赞； “这身材一般男的还真干不过她”，100多个赞； “这身材你也敢，大哥咋想的”，100多个赞； ……… 通篇看下来，舆论大意要么是同情男猥亵犯，要么是取笑女孩身材高大（他们可怜的弱鸡审美是白瘦幼，女人高大他们自卑，觉得自己吼不住），当然还有想替猥琐犯洗白的。 #今天你被恶心了吗# http://m.weibo.cn/status/J9W2v1vIW 【评】这就是强奸文化，一波男人负责犯罪，另一波男人负责跟他们称兄道弟，共情加害者，嘲笑受害者，合力完成对女性的绞杀
+
+【今天带来的是普希金的...】
+今天带来的是普希金的《达吉雅娜给奥涅金的信》，节选自《叶甫盖尼•奥涅金》，智量译版。朗读者：Маша Матвейчук http://m.weibo.cn/status/J9eBkziqb
+
+【请来专业律师来讲解律...】
+请来专业律师来讲解律政剧里哪些不合理的地方，《风骚律师》《傲骨贤妻》《法律与秩序》《美国犯罪故事》《傲骨之战》《生活大爆炸》等纷纷上榜，讲到《灵书妙探》槽点过多，律师感觉都要坐不住了，义愤填膺的表示这个剧应该把编剧开除 http://m.weibo.cn/status/J8LEPBPf3
+
+【What a machine learning tool that turns Obama white can (and can’t) tell us about AI bias】
+https://www-theverge-com.cdn.ampproject.org/c/s/www.theverge.com/platform/amp/21298762/face-depixelizer-ai-machine-learning-tool-pulse-stylegan-obama-bias
+
+【挺BLM、恶搞特朗普：韩流粉丝强势来袭】
+美国出现了一批与众不同的韩流粉丝，他们挺BLM，反对白人至上，对抗种族主义、性别歧视和同性恋恐惧。 https://www.dw.com/zh/%25E6%258C%25BAblm%25E6%2581%25B6%25E6%2590%259E%25E7%2589%25B9%25E6%259C%2597%25E6%2599%25AE%25E9%259F%25A9%25E6%25B5%2581%25E7%25B2%2589%25E4%25B8%259D%25E5%25BC%25BA%25E5%258A%25BF%25E6%259D%25A5%25E8%25A2%25AD/a-54036042
+
+【《认同》读书笔记，又，美国的哈布斯堡病】
+读者投稿： https://www.douban.com/note/769658318
+
+【内胎补胎法，先将轮胎...】
+内胎补胎法，先将轮胎与轮毂分离，补上胎后再将轮毂放回 http://m.weibo.cn/status/J8U40mLLq
+
+【不妥协的历史:黑人抗争政治片单】
+https://www.douban.com/note/765214024

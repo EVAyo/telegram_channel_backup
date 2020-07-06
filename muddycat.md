@@ -84,10 +84,6 @@ https://telegra.ph/How-South-Koreas-Pro-Democracy-Movement-Fought-to-Ban-Murdero
 
 =======
 
-谁不是想想体面生活的年轻人，看到人遭了难，第一个反应是笑人失态失了礼仪，像阿兔说的，头都掉了要求人捧着头露八颗牙齿笑。这都是什么低劣中产趣味的土味波士顿人，下德执德的货色。叫我在现实里碰到，可能会脱了裤子拿大便扔她，礼你麻痹的仪。 source
-
-=======
-
 https://telegra.ph/MeToo%E4%B8%8E%E5%AE%8C%E7%BE%8E%E7%A4%BE%E4%BC%9A%E8%BF%90%E5%8A%A8%E8%BF%B7%E6%80%9D-07-02
 
 =======
@@ -108,3 +104,9 @@ https://telegra.ph/MeToo%E4%B8%8E%E5%AE%8C%E7%BE%8E%E7%A4%BE%E4%BC%9A%E8%BF%90%E
 =======
 
 美国出现了一批与众不同的韩流粉丝，他们挺BLM，反对白人至上，对抗种族主义、性别歧视和同性恋恐惧。 https://telegra.ph/%E6%8C%BABLM%E6%81%B6%E6%90%9E%E7%89%B9%E6%9C%97%E6%99%AE%E9%9F%A9%E6%B5%81%E7%B2%89%E4%B8%9D%E5%BC%BA%E5%8A%BF%E6%9D%A5%E8%A2%AD-07-05
+
+=======
+
+读《资本论》：资本管理与资本所有者的分离，是社会主义的先兆吗？ https://telegra.ph/Karl-Marx-and-the-Corporation-07-06
+~~~~
+【评】150年后，资本所有者贿赂管理者以超高工资，维持了资本的剥削。
