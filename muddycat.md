@@ -114,3 +114,7 @@ https://telegra.ph/MeToo%E4%B8%8E%E5%AE%8C%E7%BE%8E%E7%A4%BE%E4%BC%9A%E8%BF%90%E
 =======
 
 小孩想要什么呢，小孩只是想被当个人对待而已 source 原文
+
+=======
+
+But the photo also conjured up my memories of being a 14-year-old Asian girl in an overwhelmingly white school who wanted to be interesting, self-possessed and liked. Instinctively, I knew it meant distancing myself from the other Asian kids, especially the nerdy and studious ones. I knew I had succeeded when a friend remarked that I wasn’t really Asian, I was white, “because you’re cool.” https://telegra.ph/The-Alt-Rights-Asian-Fetish-07-07
