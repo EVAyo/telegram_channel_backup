@@ -110,3 +110,7 @@ https://telegra.ph/MeToo%E4%B8%8E%E5%AE%8C%E7%BE%8E%E7%A4%BE%E4%BC%9A%E8%BF%90%E
 读《资本论》：资本管理与资本所有者的分离，是社会主义的先兆吗？ https://telegra.ph/Karl-Marx-and-the-Corporation-07-06
 ~~~~
 【评】150年后，资本所有者贿赂管理者以超高工资，维持了资本的剥削。
+
+=======
+
+小孩想要什么呢，小孩只是想被当个人对待而已 source 原文
