@@ -6094,3 +6094,37 @@ DW 中文- 德国之声 | 警告！最新的研究显示，在全球流行的变
 
 【我买了一盒阴道哑铃｜三明治】
 https://www.douban.com/note/769869829
+
+=======
+
+每日文章精选
+
+【你对同志是否有很多问号？(上)】
+https://mp.weixin.qq.com/s/dB2ar0RHN2sPALRpXPrSIQ
+
+【谈“打工诗人”与作家的群体身份】
+https://www.douban.com/note/764273683
+
+【【抗疫好读】2020生存指南：如何应对一个充满暴力和仇恨的未来】
+"在这样国不成国的混乱情况下，新的总统Jarret在2032年上任。他喊出「让美国再次伟大（Make America Great Again）」的口号，赢得了众多狂热支持者。Jarret是极右教派「基督美国」的创始人，他的支持者们组成十字军，推崇白人至上论，排斥和奴役一切他者。他的上任让原本已够糟糕的情况变得更加糟糕。" —《播种者的寓言》（写于30年前的1990年） https://squatting2047.com/%25e3%2580%2590%25e6%258a%2597%25e7%2596%25ab%25e5%25a5%25bd%25e8%25ae%2580%25e3%2580%25912020%25e7%2594%259f%25e5%25ad%2598%25e6%258c%2587%25e5%258d%2597%25ef%25bc%259a%25e5%25a6%2582%25e4%25bd%2595%25e6%2587%2589%25e5%25b0%258d%25e4%25b8%2580%25e5%2580%258b%25e5%2585%2585%25e6%25bb%25bf%25e6%259a%25b4%25e5%258a%259b
+
+【在微博上看到新见《永...】
+在微博上看到新见《永乐大典》的图片，有一处用黄纸贴起来两个字。检索数据库可知，这两个字是“国瑞”，这段材料出自《至正四明续志》卷四。“国瑞”是朱元璋的字，所以需要避讳。这种避讳方式叫做“覆黄”，多用在等级比较高的书里。这就为古代避讳制度提供了又一个例证。 http://www.douban.com/people/2817424/status/3020927989
+
+【我买了一盒阴道哑铃｜三明治】
+https://www.douban.com/note/769869829
+
+【What a machine learning tool that turns Obama white can (and can’t) tell us about AI bias】
+https://www-theverge-com.cdn.ampproject.org/c/s/www.theverge.com/platform/amp/21298762/face-depixelizer-ai-machine-learning-tool-pulse-stylegan-obama-bias
+
+【【反击性骚扰，你不是...】
+【反击性骚扰，你不是孤岛】喻恩泰性骚扰案。 http://m.weibo.cn/status/Jach1kByZ
+
+【流亡维吾尔人向国际刑事法院控诉中国种族灭绝】
+纽约时报中文网 | 周一，流亡的维吾尔人敦促国际刑事法院就种族灭绝和反人类罪行对北京进行调查。律师控告中国政府在柬埔寨和塔吉克斯坦非法逮捕及驱逐数千名维吾尔人。 这是首次利用国际法对中共镇压穆斯林少数民族进行追责的尝试，但中国不承认该法院的管辖权。 http://nyti.ms/3e6FGar
+
+【电影 《地雷区》】
+电影 《地雷区》 http://m.weibo.cn/status/J93i7pWQ4
+
+【陶哲轩挑战失败的百年数学问题，被两名在家隔离的数学家破解了】
+https://zhuanlan.zhihu.com/p/151691984
