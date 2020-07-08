@@ -6162,3 +6162,37 @@ https://www.douban.com/note/696890320
 
 【粉螨鉴定】
 粉螨鉴定 http://m.weibo.cn/status/J9Gl1uldm
+
+=======
+
+每日文章精选
+
+【中国人大网正在就《刑法修正案（十一）》（草案）公开征求意见，还等什么，行动起来吧！！！】
+【千千手把手教你如何在中国人大网上“法律草案征求意见”栏上提交你想提交的相应修法意见】针对《刑法修正案（十一）》（草案）征求意见稿，千千融合各家意见，结合机构自身经验，所形成的关于性暴力的可供参考的修法意见列明如下（包括但不限于）： 1.严惩重判奸淫幼女型强奸犯罪，将刑法第二百三十六条第二款修改为“奸淫不满十四周岁的幼女的，以强奸论，处十年以上有期徒刑、无期徒刑或者死刑”，同时删掉第三款中“奸淫幼女”的相关内容； 2.严惩重判猥亵儿童的犯罪，将刑法第二百三十七条第三款修改为“猥亵儿童的，处五年以上有期徒刑”； 3.将刑法第二百三十六条第一款“以暴力、胁迫或者其他手段强奸妇女的，处三年以上十年以下有期徒刑”修改为“以暴力、胁迫或者其他手段强奸他人的，处三年以上十年以下有期徒刑”，强化刑法对男性（包括男童）的保护，在强奸罪问题上，体现非歧视性的立法原则； https://t.cn/A6ycH5xs
+
+【他们写，我们看】
+https://www.douban.com/note/759990649
+
+【今天带来的是普希金的...】
+今天带来的是普希金的《达吉雅娜给奥涅金的信》，节选自《叶甫盖尼•奥涅金》，智量译版。朗读者：Маша Матвейчук http://m.weibo.cn/status/J9eBkziqb
+
+【内胎补胎法，先将轮胎...】
+内胎补胎法，先将轮胎与轮毂分离，补上胎后再将轮毂放回 http://m.weibo.cn/status/J8U40mLLq
+
+【【抗疫好读】2020生存指南：如何应对一个充满暴力和仇恨的未来】
+"在这样国不成国的混乱情况下，新的总统Jarret在2032年上任。他喊出「让美国再次伟大（Make America Great Again）」的口号，赢得了众多狂热支持者。Jarret是极右教派「基督美国」的创始人，他的支持者们组成十字军，推崇白人至上论，排斥和奴役一切他者。他的上任让原本已够糟糕的情况变得更加糟糕。" —《播种者的寓言》（写于30年前的1990年） https://squatting2047.com/%25e3%2580%2590%25e6%258a%2597%25e7%2596%25ab%25e5%25a5%25bd%25e8%25ae%2580%25e3%2580%25912020%25e7%2594%259f%25e5%25ad%2598%25e6%258c%2587%25e5%258d%2597%25ef%25bc%259a%25e5%25a6%2582%25e4%25bd%2595%25e6%2587%2589%25e5%25b0%258d%25e4%25b8%2580%25e5%2580%258b%25e5%2585%2585%25e6%25bb%25bf%25e6%259a%25b4%25e5%258a%259b
+
+【What a machine learning tool that turns Obama white can (and can’t) tell us about AI bias】
+https://www-theverge-com.cdn.ampproject.org/c/s/www.theverge.com/platform/amp/21298762/face-depixelizer-ai-machine-learning-tool-pulse-stylegan-obama-bias
+
+【简报：香港国安法深夜生效；专家忧中国猪流感向人类传播】
+纽约时报中文网 | 香港国安法深夜生效；专家忧中国猪流感向人类传播；华为和中兴被美国列为国家安全威胁；澳大利亚斥巨资建设网络国防抵御中国攻击；电子数据显示俄罗斯悬赏塔利班猎杀美军……NYT简报带你速览今日要闻。 http://nyti.ms/3ePcYvQ
+
+【只有小道消息才能救中国？】
+读者投稿： http://mp.weixin.qq.com/s?__biz=MzA3OTg4MzY1Mg==&amp;mid=2651585915&amp;idx=1&amp;sn=ab066c5c67f567398751762a438d3edf&amp;chksm=8453e190b3246886c4800088e025519ef0c33a98fba14924375eabfe3e9515e242bf8bd0b00e&amp;mpshare=1&amp;scene=1&amp;srcid=0707EmKP6mxrxrJCfNVEqIXV&amp;sharer_sharetime=1594110288678&amp;sharer_shareid=b44d0043e8b8a2ff91cb0adf8b74ea39#rd
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【在微博上看到新见《永...】
+在微博上看到新见《永乐大典》的图片，有一处用黄纸贴起来两个字。检索数据库可知，这两个字是“国瑞”，这段材料出自《至正四明续志》卷四。“国瑞”是朱元璋的字，所以需要避讳。这种避讳方式叫做“覆黄”，多用在等级比较高的书里。这就为古代避讳制度提供了又一个例证。 http://www.douban.com/people/2817424/status/3020927989
