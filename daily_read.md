@@ -6264,3 +6264,37 @@ https://www.douban.com/note/761047323
 
 【J.K. Rowling的文章如何误导公众并损害跨性别社群的权利】
 https://www.douban.com/note/769986412
+
+=======
+
+每日文章精选
+
+【【壮阔！NASA发布...】
+【壮阔！NASA发布#太阳十年间变化延时摄影# 】6月24日，美国国家航空航天局（NASA）公布了一条耗时十年的六分钟视频，记载了太阳自2010到2020年间的变化。在延时视频里，既可以观测到太阳黑子、耀斑等周期性活动，也能看到行星凌日、日珥喷发等现象。 http://m.weibo.cn/status/J8TBs4YlU
+
+【孕期｜产后抑郁不是作】
+孕期｜产后抑郁不是作 http://m.weibo.cn/status/J8VAhnQGW
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【被淋湿的上海】
+被淋湿的上海 http://www.douban.com/people/73885069/status/3017484766
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【《三体》美国出版为何引发性别歧视之辩】
+http://paper.cnwomen.com.cn/content/2015-05/05/016173.html
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【【未成年人入住旅馆异...】
+【未成年人入住旅馆异常情况强制报告制度】妇女儿童被性侵60%以上，发生在酒店宾馆。同时，25%的性侵儿童案件，发生在酒店宾馆。之前还发生过穿校服的女学生在酒店被轮奸，海南万宁校长带数名小学女生开房。这个制度就是一个有力的防火墙。 现在是四川广元市和杭州西湖区两地推行的试水。 四川广元是未满16周岁的未成年人入住旅馆，无监护人陪同且联系不到监护人和学校的，强制旅馆向当地警方报告。 杭州西湖区是成年人携带18岁以下未成年人开房，未成年人单独开房，或者多人开房，查询成年人和未成年人的相互关系，开房目的，和监护人是否知情，同时报备警方。异常情况直接报警。 http://m.weibo.cn/status/JaiC66s0S http://zhuanlan.zhihu.com/p/157802315
+
+【【抗疫好读】2020生存指南：如何应对一个充满暴力和仇恨的未来】
+"在这样国不成国的混乱情况下，新的总统Jarret在2032年上任。他喊出「让美国再次伟大（Make America Great Again）」的口号，赢得了众多狂热支持者。Jarret是极右教派「基督美国」的创始人，他的支持者们组成十字军，推崇白人至上论，排斥和奴役一切他者。他的上任让原本已够糟糕的情况变得更加糟糕。" —《播种者的寓言》（写于30年前的1990年） https://squatting2047.com/%25e3%2580%2590%25e6%258a%2597%25e7%2596%25ab%25e5%25a5%25bd%25e8%25ae%2580%25e3%2580%25912020%25e7%2594%259f%25e5%25ad%2598%25e6%258c%2587%25e5%258d%2597%25ef%25bc%259a%25e5%25a6%2582%25e4%25bd%2595%25e6%2587%2589%25e5%25b0%258d%25e4%25b8%2580%25e5%2580%258b%25e5%2585%2585%25e6%25bb%25bf%25e6%259a%25b4%25e5%258a%259b
