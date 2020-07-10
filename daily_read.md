@@ -6298,3 +6298,37 @@ https://www.douban.com/note/761047323
 
 【【抗疫好读】2020生存指南：如何应对一个充满暴力和仇恨的未来】
 "在这样国不成国的混乱情况下，新的总统Jarret在2032年上任。他喊出「让美国再次伟大（Make America Great Again）」的口号，赢得了众多狂热支持者。Jarret是极右教派「基督美国」的创始人，他的支持者们组成十字军，推崇白人至上论，排斥和奴役一切他者。他的上任让原本已够糟糕的情况变得更加糟糕。" —《播种者的寓言》（写于30年前的1990年） https://squatting2047.com/%25e3%2580%2590%25e6%258a%2597%25e7%2596%25ab%25e5%25a5%25bd%25e8%25ae%2580%25e3%2580%25912020%25e7%2594%259f%25e5%25ad%2598%25e6%258c%2587%25e5%258d%2597%25ef%25bc%259a%25e5%25a6%2582%25e4%25bd%2595%25e6%2587%2589%25e5%25b0%258d%25e4%25b8%2580%25e5%2580%258b%25e5%2585%2585%25e6%25bb%25bf%25e6%259a%25b4%25e5%258a%259b
+
+=======
+
+每日文章精选
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【【科普：方便面这么香...】
+【科普：方便面这么香，凭什么说它不健康？】 http://m.weibo.cn/status/J9F011TZp
+
+【当代平等主义理论研究】
+https://www.douban.com/note/769352196
+
+【被公司惩罚吃“死神辣...】
+被公司惩罚吃“死神辣条” 两女员工进了医院 http://m.weibo.cn/status/JanOJ6Jnm http://jiangsu.sina.com.cn/news/2020-07-09/detail-iircuyvk2802810.shtml https://news.sina.cn/sh/2020-07-09/detail-iirczymm1341668.d.html
+
+【WHO赴华调查前，传染病专家八问新冠病毒起源】
+纽约时报中文网 | 华南海鲜市场的阳性样本中是否有与人类感染相关的？是否从易感动物身上采集了样本？病毒是否有可能来自实验室？ 这里是传染病专家公开建议WHO搞清楚的八个重要问题。 http://nyti.ms/2BYP6Ye
+
+【拒绝性别刻板印象 接...】
+拒绝性别刻板印象 接受多元的美（这里推荐鲁保罗变装皇后秀 里面很多造型都非常独特）无拘无束的热爱这首BGM是是马德里骄傲月的歌，马德里城市宣言是“无论你爱谁，马德里都爱你。”海外油管播放量已近2亿。不管你热爱什么，生活都爱你。 http://m.weibo.cn/status/JayZH1YjS
+
+【【壮阔！NASA发布...】
+【壮阔！NASA发布#太阳十年间变化延时摄影# 】6月24日，美国国家航空航天局（NASA）公布了一条耗时十年的六分钟视频，记载了太阳自2010到2020年间的变化。在延时视频里，既可以观测到太阳黑子、耀斑等周期性活动，也能看到行星凌日、日珥喷发等现象。 http://m.weibo.cn/status/J8TBs4YlU
