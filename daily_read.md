@@ -6468,3 +6468,37 @@ https://www.douban.com/note/770117714
 
 【马友友在推特上悼念莫...】
 马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+=======
+
+每日文章精选
+
+【【德国通过首个性别平...】
+【德国通过首个性别平等国家战略】 7月8日，德国联邦政府批准了首个性别平等的国家战略，这项由9部分组成的计划旨在缩小男女薪酬差距，并使更多女性走向领导层。 家庭部长弗朗齐斯卡·吉菲（Franziska Giffey）提出了这项计划，并称之为“为未来变强大” （Strong for the Future）。这位部长说，整个内阁花了“几十年”时间才有了今天的成绩。这一策略包括9个性别平等目标，一旦获得批准，德国各联邦部委都将通过有针对性的立法予以支持。其中一项规定，要求在至少由4名成员组成的董事会中至少包括女性，从而增加女性在董事会中的人数。 她说，“这一战略是德国政府对平等的共同承诺，各部门都积极参与。只有这样，我们才能确保平等问题不再仅仅是家庭事务部，而是所有部委要共同解决的问题。 恭喜德国在性别平等上取得的新进步！ #殊途看海外##德国##性别平等# 素材来源： http://amp.dw.com/en/gender-equality-germany/a-54086234
+
+【叛军旗及雕塑的前世今生——美国为什么有人要拆除“文物古迹”】
+http://mp.weixin.qq.com/s?src=11&timestamp=1594497495&ver=2454&signature=b1e8lZX1umCDlKqCVIl4K2I822hzwBmzMSeGfdvb37mer3QcCkhYzmOI3h57CZpn-P7xtNaY0VY3tW771nOBaEN-xIAyDpaJjFEtNlmYpugbDP81ry7wIuedJbS846-F&new=1 ?q=%23%E7%BE%8E%E5%9B%BD%E5%8D%8E%E4%BA%BA ?q=%23%E5%8E%86%E5%8F%B2 ?q=%23%E5%8F%9B%E5%86%9B ?q=%23%E7%BE%8E%E5%9B%BD ?q=%23%E7%A7%8D%E6%97%8F%E9%9A%94%E7%A6%BB ?q=%23%E5%86%85%E6%88%98
+
+【简报：香港国安法深夜生效；专家忧中国猪流感向人类传播】
+纽约时报中文网 | 香港国安法深夜生效；专家忧中国猪流感向人类传播；华为和中兴被美国列为国家安全威胁；澳大利亚斥巨资建设网络国防抵御中国攻击；电子数据显示俄罗斯悬赏塔利班猎杀美军……NYT简报带你速览今日要闻。 http://nyti.ms/3ePcYvQ
+
+【source】
+http://www.douban.com/people/1214750/status/3024440255
+
+【在微博上看到新见《永...】
+在微博上看到新见《永乐大典》的图片，有一处用黄纸贴起来两个字。检索数据库可知，这两个字是“国瑞”，这段材料出自《至正四明续志》卷四。“国瑞”是朱元璋的字，所以需要避讳。这种避讳方式叫做“覆黄”，多用在等级比较高的书里。这就为古代避讳制度提供了又一个例证。 http://www.douban.com/people/2817424/status/3020927989
+
+【内胎补胎法，先将轮胎...】
+内胎补胎法，先将轮胎与轮毂分离，补上胎后再将轮毂放回 http://m.weibo.cn/status/J8U40mLLq
+
+【【官宣】中文版书名到底经历了什么（你当像鸟飞往你的山）书评】
+https://www.douban.com/review/10589105/?dt_dapp=1
+
+【电影 《地雷区》】
+电影 《地雷区》 http://m.weibo.cn/status/J93i7pWQ4
+
+【孕期｜产后抑郁不是作】
+孕期｜产后抑郁不是作 http://m.weibo.cn/status/J8VAhnQGW
+
+【宁静又深刻的美】
+宁静又深刻的美 ▫️ ▪️ Rachel Whiteread，Tate Britain 12 September 2017 – 21 January 2018 Rachel Whiteread 这位艺术家对当代艺术有着不可磨灭的贡献，她以实体的混泥土雕塑而被大众熟知。“我妈妈说重要的是内在” Rachel Whiteread 一定是伴随着这句话而成长的，因为这位极有影响力的英国雕塑家一直痴迷于事物的内部。在25年的艺术生涯中，她通过忽视事物的外在来洞察它们内部的空虚，设法创造出一种强大、清晰、独特的审美。 · http://m.weibo.cn/status/Jarsm1NYi
