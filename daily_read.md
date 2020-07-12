@@ -6434,3 +6434,37 @@ https://zhuanlan.zhihu.com/p/151691984
 
 【苏宁非法裁员】
 苏宁非法裁员 http://www.douban.com/people/1214750/status/3022943574
+
+=======
+
+每日文章精选
+
+【【德国通过首个性别平...】
+【德国通过首个性别平等国家战略】 7月8日，德国联邦政府批准了首个性别平等的国家战略，这项由9部分组成的计划旨在缩小男女薪酬差距，并使更多女性走向领导层。 家庭部长弗朗齐斯卡·吉菲（Franziska Giffey）提出了这项计划，并称之为“为未来变强大” （Strong for the Future）。这位部长说，整个内阁花了“几十年”时间才有了今天的成绩。这一策略包括9个性别平等目标，一旦获得批准，德国各联邦部委都将通过有针对性的立法予以支持。其中一项规定，要求在至少由4名成员组成的董事会中至少包括女性，从而增加女性在董事会中的人数。 她说，“这一战略是德国政府对平等的共同承诺，各部门都积极参与。只有这样，我们才能确保平等问题不再仅仅是家庭事务部，而是所有部委要共同解决的问题。 恭喜德国在性别平等上取得的新进步！ #殊途看海外##德国##性别平等# 素材来源： http://amp.dw.com/en/gender-equality-germany/a-54086234
+
+【流亡维吾尔人向国际刑事法院控诉中国种族灭绝】
+纽约时报中文网 | 周一，流亡的维吾尔人敦促国际刑事法院就种族灭绝和反人类罪行对北京进行调查。律师控告中国政府在柬埔寨和塔吉克斯坦非法逮捕及驱逐数千名维吾尔人。 这是首次利用国际法对中共镇压穆斯林少数民族进行追责的尝试，但中国不承认该法院的管辖权。 http://nyti.ms/3e6FGar
+
+【source】
+http://www.douban.com/people/1214750/status/3024440255
+
+【万有引力之虫 • 种族与美国的社会运动版图（修订发言稿）】
+https://gravitysworm.com/post/623188530637701120/%25E7%25A7%258D%25E6%2597%258F%25E4%25B8%258E%25E7%25BE%258E%25E5%259B%25BD%25E7%259A%2584%25E7%25A4%25BE%25E4%25BC%259A%25E8%25BF%2590%25E5%258A%25A8%25E7%2589%2588%25E5%259B%25BE%25E4%25BF%25AE%25E8%25AE%25A2%25E5%258F%2591%25E8%25A8%2580%25E7%25A8%25BF
+
+【苏宁非法裁员】
+苏宁非法裁员 http://www.douban.com/people/1214750/status/3022943574
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【控中国“种族灭绝”流亡维吾尔团体告上国际刑事法院】
+DW 中文- 德国之声 | 两个流亡维吾尔团体向海牙国际刑事法院控告中国政府犯下"种族灭绝"和"反人类"罪行，指控称中国政府试图通过非法逮捕或驱逐出境的手段，遣返柬埔寨和塔吉克斯坦斯坦境内的数千名维吾尔人。 ?q=%23Xinjiang ?q=%23Uyghurs http://p.dw.com/p/3exCX
+
+【不被看见的牺牲品，新移民子女在疫情中的遭遇】
+https://www.douban.com/note/770117714
+
+【拒绝性别刻板印象 接...】
+拒绝性别刻板印象 接受多元的美（这里推荐鲁保罗变装皇后秀 里面很多造型都非常独特）无拘无束的热爱这首BGM是是马德里骄傲月的歌，马德里城市宣言是“无论你爱谁，马德里都爱你。”海外油管播放量已近2亿。不管你热爱什么，生活都爱你。 http://m.weibo.cn/status/JayZH1YjS
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
