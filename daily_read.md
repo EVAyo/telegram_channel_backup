@@ -6502,3 +6502,37 @@ https://www.douban.com/review/10589105/?dt_dapp=1
 
 【宁静又深刻的美】
 宁静又深刻的美 ▫️ ▪️ Rachel Whiteread，Tate Britain 12 September 2017 – 21 January 2018 Rachel Whiteread 这位艺术家对当代艺术有着不可磨灭的贡献，她以实体的混泥土雕塑而被大众熟知。“我妈妈说重要的是内在” Rachel Whiteread 一定是伴随着这句话而成长的，因为这位极有影响力的英国雕塑家一直痴迷于事物的内部。在25年的艺术生涯中，她通过忽视事物的外在来洞察它们内部的空虚，设法创造出一种强大、清晰、独特的审美。 · http://m.weibo.cn/status/Jarsm1NYi
+
+=======
+
+每日文章精选
+
+【《三体》美国出版为何引发性别歧视之辩】
+http://paper.cnwomen.com.cn/content/2015-05/05/016173.html
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【拒绝性别刻板印象 接...】
+拒绝性别刻板印象 接受多元的美（这里推荐鲁保罗变装皇后秀 里面很多造型都非常独特）无拘无束的热爱这首BGM是是马德里骄傲月的歌，马德里城市宣言是“无论你爱谁，马德里都爱你。”海外油管播放量已近2亿。不管你热爱什么，生活都爱你。 http://m.weibo.cn/status/JayZH1YjS
+
+【【德国通过首个性别平...】
+【德国通过首个性别平等国家战略】 7月8日，德国联邦政府批准了首个性别平等的国家战略，这项由9部分组成的计划旨在缩小男女薪酬差距，并使更多女性走向领导层。 家庭部长弗朗齐斯卡·吉菲（Franziska Giffey）提出了这项计划，并称之为“为未来变强大” （Strong for the Future）。这位部长说，整个内阁花了“几十年”时间才有了今天的成绩。这一策略包括9个性别平等目标，一旦获得批准，德国各联邦部委都将通过有针对性的立法予以支持。其中一项规定，要求在至少由4名成员组成的董事会中至少包括女性，从而增加女性在董事会中的人数。 她说，“这一战略是德国政府对平等的共同承诺，各部门都积极参与。只有这样，我们才能确保平等问题不再仅仅是家庭事务部，而是所有部委要共同解决的问题。 恭喜德国在性别平等上取得的新进步！ #殊途看海外##德国##性别平等# 素材来源： http://amp.dw.com/en/gender-equality-germany/a-54086234
+
+【重卡女司机隋金荣，一...】
+重卡女司机隋金荣，一位重卡货运司机。隋金荣在鄂尔多斯开了十多年运煤车。作为货运司机，长期长途跋涉的辛劳是一方面，装货、卸货同样也都需要司机亲力亲为。 装煤和卸煤是危险的活。为了防止超载，装煤的过程中要试磅，多卸少补，装到吨位合适之后还得给煤盖上篷布。晚上装煤尤其危险，不少司机在煤车上踩空。而卸煤的时候，司机需要开车上到高达四五层楼的煤堆，车很容易掉下来。 隋金荣工作时要将五十多吨的煤运到集装站，来回将近一百公里，最多的时候要跑六七趟，吃住也都在车上。为了还清前夫欠下的五十万元外债、和作为单身母亲抚养孩子成人，工作几乎成了隋金荣生活的全部。 http://m.weibo.cn/status/JazjqltZl
+
+【青年同居情侣如何分配家务：他们追求性别平等吗？｜China Review 特刊】
+http://mp.weixin.qq.com/s?src=11&timestamp=1594532246&ver=2455&signature=UyOHlkXxbwYklCHtHn5ex50NgiRN2xkm-bl*7xpJBps0Ru9it6BBeH8MCuQh0yjL0jD1GjVE7cJbghXKbNZQSMbXWzb2tz0XRWgTdTC-w3be2iB*pfYRBCKRWjB1W3fl&new=1 ?q=%23%E7%BC%AA%E6%96%AF%E5%A4%AB%E4%BA%BA ?q=%23%E7%94%B7%E6%80%A7 ?q=%23%E5%AE%B6%E5%8A%A1 ?q=%23%E8%A7%82%E5%BF%B5 ?q=%23%E5%90%8C%E5%B1%85 ?q=%23%E5%A5%B3%E6%80%A7
+
+【我在一个无人村里捡到一堆80-90年代的商品标签（完整版）】
+https://www.douban.com/note/769915882
+
+【他们写，我们看】
+https://www.douban.com/note/759990649
+
+【电影 《地雷区》】
+电影 《地雷区》 http://m.weibo.cn/status/J93i7pWQ4
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
