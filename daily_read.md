@@ -6536,3 +6536,37 @@ https://www.douban.com/note/759990649
 
 【马友友在推特上悼念莫...】
 马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+=======
+
+每日文章精选
+
+【He stands ...】
+He stands for what America should symbolize for dreamers but ironically he is silenced and killed by the real America. http://www.douban.com/people/77868005/status/3028082567
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【重卡女司机隋金荣，一...】
+重卡女司机隋金荣，一位重卡货运司机。隋金荣在鄂尔多斯开了十多年运煤车。作为货运司机，长期长途跋涉的辛劳是一方面，装货、卸货同样也都需要司机亲力亲为。 装煤和卸煤是危险的活。为了防止超载，装煤的过程中要试磅，多卸少补，装到吨位合适之后还得给煤盖上篷布。晚上装煤尤其危险，不少司机在煤车上踩空。而卸煤的时候，司机需要开车上到高达四五层楼的煤堆，车很容易掉下来。 隋金荣工作时要将五十多吨的煤运到集装站，来回将近一百公里，最多的时候要跑六七趟，吃住也都在车上。为了还清前夫欠下的五十万元外债、和作为单身母亲抚养孩子成人，工作几乎成了隋金荣生活的全部。 http://m.weibo.cn/status/JazjqltZl
+
+【现存制度的辩护士们叫...】
+现存制度的辩护士们叫喊说：“婚姻和家庭是国家的基础，因此，攻击婚姻和家庭，就是攻击并破坏社会和国家。”已经充分证明，一夫一妻制婚姻是资产阶级的职业制度和财产制度的结果，因而无可争辩地是资产阶级社会最重要的基础之一，但它是否符合自然的需要和人类社会的健康发展则是另一个问题。 ——奥格斯特·倍倍尔《妇女与社会主义》1879年 http://m.weibo.cn/status/Jb33DzsFk
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+【【壮阔！NASA发布...】
+【壮阔！NASA发布#太阳十年间变化延时摄影# 】6月24日，美国国家航空航天局（NASA）公布了一条耗时十年的六分钟视频，记载了太阳自2010到2020年间的变化。在延时视频里，既可以观测到太阳黑子、耀斑等周期性活动，也能看到行星凌日、日珥喷发等现象。 http://m.weibo.cn/status/J8TBs4YlU
+
+【请来专业律师来讲解律...】
+请来专业律师来讲解律政剧里哪些不合理的地方，《风骚律师》《傲骨贤妻》《法律与秩序》《美国犯罪故事》《傲骨之战》《生活大爆炸》等纷纷上榜，讲到《灵书妙探》槽点过多，律师感觉都要坐不住了，义愤填膺的表示这个剧应该把编剧开除 http://m.weibo.cn/status/J8LEPBPf3
+
+【控中国“种族灭绝”流亡维吾尔团体告上国际刑事法院】
+DW 中文- 德国之声 | 两个流亡维吾尔团体向海牙国际刑事法院控告中国政府犯下"种族灭绝"和"反人类"罪行，指控称中国政府试图通过非法逮捕或驱逐出境的手段，遣返柬埔寨和塔吉克斯坦斯坦境内的数千名维吾尔人。 ?q=%23Xinjiang ?q=%23Uyghurs http://p.dw.com/p/3exCX
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+【内胎补胎法，先将轮胎...】
+内胎补胎法，先将轮胎与轮毂分离，补上胎后再将轮毂放回 http://m.weibo.cn/status/J8U40mLLq
