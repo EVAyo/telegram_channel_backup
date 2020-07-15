@@ -6570,3 +6570,71 @@ DW 中文- 德国之声 | 两个流亡维吾尔团体向海牙国际刑事法院
 
 【内胎补胎法，先将轮胎...】
 内胎补胎法，先将轮胎与轮毂分离，补上胎后再将轮毂放回 http://m.weibo.cn/status/J8U40mLLq
+
+=======
+
+每日文章精选
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【He stands ...】
+He stands for what America should symbolize for dreamers but ironically he is silenced and killed by the real America. http://www.douban.com/people/77868005/status/3028082567
+
+【【#首尔市长出殡当天...】
+【#首尔市长出殡当天前秘书发声#：连遭4年性骚扰】#首尔市长前秘书称连遭4年性骚扰#据韩联社报道，13日下午，韩国首尔市长朴元淳前秘书的律师召开记者会，称受害人连续4年遭遇朴元淳性骚扰，而朴元淳采取的极端措施，对受害人造成了二次伤害。当天也是朴元淳出殡的日子。 http://m.weibo.cn/status/Jb8ysAn7v https://www.bbc.com/news/world-asia-53386165
+
+【金盾工程：数字监控技术如何改变中国政府的维稳偏好】
+在信息匮乏的年代，国家无法有效识别出政权的挑战者，因此维稳主要是通过提供普遍的福利来“收买人心”。基于对“金盾工程”实施过程的研究，我们发现，当数字监控可以弥补“信息差”的时候，威权国家更倾向于对异见者实施“精准打击”，由此带来政治犯人数的上升，以及公共福利的下降。 https://project-gutenberg.github.io/Pincong/post/aa54cb5354abe0f640905bc99c495ab9 http://onlinelibrary.wiley.com/doi/full/10.1111/ajps.12514 https://xu-xu.net/xu_xu/surveillance_repression.pdf
+
+【今天带来的是普希金的...】
+今天带来的是普希金的《达吉雅娜给奥涅金的信》，节选自《叶甫盖尼•奥涅金》，智量译版。朗读者：Маша Матвейчук http://m.weibo.cn/status/J9eBkziqb
+
+【电影 《地雷区》】
+电影 《地雷区》 http://m.weibo.cn/status/J93i7pWQ4
+
+【亮片、游行、音乐和舞蹈：骄傲月的狂欢意味着什么？】
+http://mp.weixin.qq.com/s/Qns318PaF2A21Q1H84bcfA
+
+【孕期｜产后抑郁不是作】
+孕期｜产后抑郁不是作 http://m.weibo.cn/status/J8VAhnQGW
+
+【粉螨鉴定】
+粉螨鉴定 http://m.weibo.cn/status/J9Gl1uldm
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+=======
+
+每日文章精选
+
+【政治的陷落，是从语言...】
+政治的陷落，是从语言的陷落开始的。 当你无法诚实、公开地讲出自己的想法，「公共」的基础就消失了。当表达退回私人领域，交流、争辩的基础会流失，思想、判断的品质也会萎靡。更进一步，若每个人都从公共隐身，组织与链接无处可依，共同体也会趋于溃散。 最要紧地，放弃了语言的你，还可能不自觉地，成为极权体制的一部分。 https://matters.news/%40az/%25E6%25A5%25B5%25E6%25AC%258A%25E4%25B9%258B%25E4%25B8%258B-%25E6%2588%2591%25E5%2580%2591%25E7%259A%2584%25E6%2581%2590%25E6%2587%25BC-%25E6%258A%25B5%25E6%258A%2597%25E8%2588%2587%25E6%2584%259B-bafyreidfs3uu6nrxfn2eupambmtaludnej2ujm6cttjusw7j5ftvocyk4i
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【【小学生空闲时间多，...】
+【小学生空闲时间多，听话事儿少，参与日常打投的比较多；初中生有时候会做一些基础管理，负责监督粉丝秩序，而且这个阶段也相对学业不忙，网络上的控评不少他们也会参与；高中生可自由支配的零花钱比较多，就会为偶像花钱了，往往也是撕逼战线中最猛烈的一群，最容易真情实感。】 这段读的我尤其震撼，分配的太细化太低龄化了，孩子们啊上学的时候还是少追星，多和朋友出去玩玩也好啊。 http://m.weibo.cn/status/JbbTreV46
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+【时尚并未终结】
+纽约时报中文网 | 在一个被疾病和经济不稳定摧毁、被种族主义和动荡分裂的世界里，这是个很难想象的事实：我们会重新开始穿衣打扮。 历史和人类天性证明，极端时期过后，我们会重新开始穿衣打扮，穿着是种标志新时代开始的方式。真正的问题是，当重新融入一个被痛苦铭刻的世界时，我们该穿什么？ http://nyti.ms/2Ci46QW
+
+【【#首尔市长出殡当天...】
+【#首尔市长出殡当天前秘书发声#：连遭4年性骚扰】#首尔市长前秘书称连遭4年性骚扰#据韩联社报道，13日下午，韩国首尔市长朴元淳前秘书的律师召开记者会，称受害人连续4年遭遇朴元淳性骚扰，而朴元淳采取的极端措施，对受害人造成了二次伤害。当天也是朴元淳出殡的日子。 http://m.weibo.cn/status/Jb8ysAn7v https://www.bbc.com/news/world-asia-53386165
+
+【【壮阔！NASA发布...】
+【壮阔！NASA发布#太阳十年间变化延时摄影# 】6月24日，美国国家航空航天局（NASA）公布了一条耗时十年的六分钟视频，记载了太阳自2010到2020年间的变化。在延时视频里，既可以观测到太阳黑子、耀斑等周期性活动，也能看到行星凌日、日珥喷发等现象。 http://m.weibo.cn/status/J8TBs4YlU
+
+【成伯清 | 比“反社会人格”更值得担忧的是“结构性怨恨” | 贵州公交坠湖案反思】
+读者来稿： http://mp.weixin.qq.com/s?__biz=MzA4MjcxMDEwNQ==&amp;mid=2686274890&amp;idx=1&amp;sn=5550322479128c8e28d78e0291f991d6&amp;chksm=ba68767c8d1fff6a568f0a510909a8ecbe3c3403b319f15c6e841ac8f99a0473f51dec1301b8&amp;mpshare=1&amp;scene=1&amp;srcid=0713Lx4HEmnfm7N0QRfUx6EX&amp;sharer_sharetime=1594708649908&amp;sharer_shareid=f467668849c8544e583567bf8a259f31#rd
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
