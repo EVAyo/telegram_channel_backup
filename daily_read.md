@@ -6740,3 +6740,37 @@ DW 中文- 德国之声 | 两个流亡维吾尔团体向海牙国际刑事法院
 
 【残疾儿童随班就读之困】
 http://mp.weixin.qq.com/s?__biz=MzU2MTQ2MDE5OQ==&amp;mid=2247487046&amp;idx=1&amp;sn=c38c25e4a4396f3f0ec80add72c2aae2&amp;chksm=fc7928cecb0ea1d8b197ca68ae3ea8682f2f0880f5874996d81d3117db6cb598f2d81a5dbd50&amp;mpshare=1&amp;scene=1&amp;srcid=0714P1JFsc1d7dHJvpnhmpRE&amp;sharer_sharetime=1594718216287&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+=======
+
+每日文章精选
+
+【【区域国别】国家父权制背景下新加坡女性权益的发展路径】
+http://mp.weixin.qq.com/s?__biz=MzI0MTA1OTg4NA==&amp;mid=2651369678&amp;idx=1&amp;sn=d1e7b35eae24b7b6737e2ce7b5799cf0&amp;chksm=f2ed418dc59ac89b2d93be5d7a13ada3e3e84cc34263029bff71e910f66cfd0eb0fcbcd2f122&amp;mpshare=1&amp;scene=1&amp;srcid=0716frQJAtkJ3gjQu1kYS9Vj&amp;sharer_sharetime=1594879203826&amp;sharer_shareid=ac6cbafa374000428a0e58fcfb7c4b29#rd
+
+【「后89」怎么做社运？| 赵思乐】
+https://vocus.cc/achilles_zhao/5a9552bcfd89780001674166
+
+【不用PS，有了这份 snapseed 超强使用指南分分钟修大片】
+https://www.douban.com/note/766009156
+
+【暴力抗争能扭转种族歧视吗？政治科学家怎么探讨这个现象？ – 菜市场政治学】
+https://whogovernstw.org/2020/06/08/austinwang53
+
+【最近有不少家长反映，...】
+最近有不少家长反映，给孩子买了七彩熊英语绘本跟读培训课程，对方承诺打卡306天期满可全额返现，可还剩最后几天时，跟读打卡难度突然剧增，别说是孩子，就连英语专八的家长都过不了关。 http://m.weibo.cn/status/JblJ56BVM
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+【一封家书】
+http://mp.weixin.qq.com/s?__biz=MzI2MTcwMjIyMQ==&amp;mid=2247490157&amp;idx=1&amp;sn=0fcd5ed095c64520304b79bfad8ee91c&amp;chksm=ea570d4fdd20845955a1e448c0a66421c5cc4a9e38ff85662728e3d00c7b94246320c37adfc6&amp;mpshare=1&amp;scene=1&amp;srcid=0714ALfFQk088mena73VlOdm&amp;sharer_sharetime=1594728513055&amp;sharer_shareid=c5c138e53eaccaabd72c1da8b81477e6#rd
+
+【【#首尔市长出殡当天...】
+【#首尔市长出殡当天前秘书发声#：连遭4年性骚扰】#首尔市长前秘书称连遭4年性骚扰#据韩联社报道，13日下午，韩国首尔市长朴元淳前秘书的律师召开记者会，称受害人连续4年遭遇朴元淳性骚扰，而朴元淳采取的极端措施，对受害人造成了二次伤害。当天也是朴元淳出殡的日子。 http://m.weibo.cn/status/Jb8ysAn7v https://www.bbc.com/news/world-asia-53386165
+
+【【科普：如何为14亿...】
+【科普：如何为14亿人储备粮食？】国家大本，食足为先。对于一个有 14 亿人口的大国来说，储备粮的重要性无需多言。 中国屯的粮食够你吃多长时间？如何科学储备上亿吨的稻谷、小麦和玉米？过期的粮食会上你的餐桌吗？疫情期间要不要去超市抢粮？我们翻查了有关中国粮食储备的种种数据，和你一起解答这些问题。 http://m.weibo.cn/status/JbDyB7W0F
