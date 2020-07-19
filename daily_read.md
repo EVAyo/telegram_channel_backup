@@ -6808,3 +6808,37 @@ https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump
 
 【【工友之声】大名鼎鼎的比亚迪，三个月死了五个工人】
 https://mp.weixin.qq.com/s/LfIXrjdNvk7BndB-KroFAg
+
+=======
+
+每日文章精选
+
+【「后89」怎么做社运？| 赵思乐】
+https://vocus.cc/achilles_zhao/5a9552bcfd89780001674166
+
+【如果你感觉现在的年轻...】
+如果你感觉现在的年轻人似乎更加保守，那你的感觉很有可能是准确的。 『使用 2000 年和 2010 年两期中国妇女社会地位调查数据，以“男主外，女主内”和“干得好不如嫁得好”两个指标为例研究了 10 年间中国人的性别观念的变化。研究发现，从这两个维度看，中国人的性别观念出现了明显的向传统回归的趋势。而且，如果将世代更替对性别平等的积极作用排除在外，实际上同一批中国人的性别观念在 10 年间的倒退要比表面上看来 更加严重。』 http://m.weibo.cn/status/4525438841938569
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【WHO赴华调查前，传染病专家八问新冠病毒起源】
+纽约时报中文网 | 华南海鲜市场的阳性样本中是否有与人类感染相关的？是否从易感动物身上采集了样本？病毒是否有可能来自实验室？ 这里是传染病专家公开建议WHO搞清楚的八个重要问题。 http://nyti.ms/2BYP6Ye
+
+【粉螨鉴定】
+粉螨鉴定 http://m.weibo.cn/status/J9Gl1uldm
+
+【不用PS，有了这份 snapseed 超强使用指南分分钟修大片】
+https://www.douban.com/note/766009156
+
+【【小学生空闲时间多，...】
+【小学生空闲时间多，听话事儿少，参与日常打投的比较多；初中生有时候会做一些基础管理，负责监督粉丝秩序，而且这个阶段也相对学业不忙，网络上的控评不少他们也会参与；高中生可自由支配的零花钱比较多，就会为偶像花钱了，往往也是撕逼战线中最猛烈的一群，最容易真情实感。】 这段读的我尤其震撼，分配的太细化太低龄化了，孩子们啊上学的时候还是少追星，多和朋友出去玩玩也好啊。 http://m.weibo.cn/status/JbbTreV46
+
+【共同赏月】
+共同赏月 http://www.douban.com/people/1737287/status/3032425359
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
