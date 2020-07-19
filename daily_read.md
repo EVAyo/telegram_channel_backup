@@ -6842,3 +6842,37 @@ https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump
 
 【第一次感受到了这首诗...】
 第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+=======
+
+每日文章精选
+
+【【工友之声】大名鼎鼎的比亚迪，三个月死了五个工人】
+https://mp.weixin.qq.com/s/LfIXrjdNvk7BndB-KroFAg
+
+【传奇的塔米，无腿钢铁亚裔美国女侠】
+http://mp.weixin.qq.com/s?__biz=MzUzMzU4NzM2NQ==&amp;mid=2247502611&amp;idx=1&amp;sn=2fe50f62fd67355b5ecb4a802bb7bfa2&amp;chksm=faa33fd9cdd4b6cffd53721854c5958bff0100089aa4d1042d17990b62b055222b1e5aeacd07&amp;mpshare=1&amp;scene=1&amp;srcid=0719C4Jb4am9n0R0PpOy2Kf8&amp;sharer_sharetime=1595116831206&amp;sharer_shareid=61ba3d5aab0e9cd90551411d13b76986#rd
+
+【WHO赴华调查前，传染病专家八问新冠病毒起源】
+纽约时报中文网 | 华南海鲜市场的阳性样本中是否有与人类感染相关的？是否从易感动物身上采集了样本？病毒是否有可能来自实验室？ 这里是传染病专家公开建议WHO搞清楚的八个重要问题。 http://nyti.ms/2BYP6Ye
+
+【【科普：化学阉割能阻...】
+【科普：化学阉割能阻止性犯罪吗？】 http://m.weibo.cn/status/JazLns3rq
+
+【共同赏月】
+共同赏月 http://www.douban.com/people/1737287/status/3032425359
+
+【前不久，韩国电影《老...】
+前不久，韩国电影《老妇人》在微博上引起热议，这是亚洲第一部聚焦老年性侵事件的电影，讲述了69岁的女主角被29岁的男护工强奸后，为了守护尊严，奋斗到底的故事。一条第一时间联系了林善爱导演，向大家分享这部电影的创作故事。 http://m.weibo.cn/status/JbSFJEtWy
+
+【「后89」怎么做社运？| 赵思乐】
+https://vocus.cc/achilles_zhao/5a9552bcfd89780001674166
+
+【对于深圳公安局宝安分局万丰派出所办案 投诉意见书】
+【新员工入职一周被同事强奸】 https://weibo.com/ttarticle/p/show?id=2309404528466971459679
+
+【印度尼西亞桑巴跳舞樹】
+印度尼西亞桑巴跳舞樹 http://www.douban.com/people/1299702/status/3028946734
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
