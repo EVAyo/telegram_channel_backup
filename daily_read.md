@@ -6944,3 +6944,37 @@ http://mp.weixin.qq.com/s?src=11&timestamp=1595070829&ver=2468&signature=Ffa-6lk
 
 【很多男人喜欢抱怨：为...】
 很多男人喜欢抱怨：为什么月薪5000的女孩子，就想找月薪2万的男友？ 其实这是很多男性自己造成的后果。 他们无底线地辱骂大龄剩女，吹捧年轻小姑娘，讽刺月入几万深圳有房的大龄剩女，都比不上月薪三千的年轻小姑娘。 于是那些月薪三千的年轻小姑娘，当然就会觉得自己的青春值月薪好几万加一套深圳的房子了。因为这都是那些男性亲口说的啊，不能抵赖的。 还有一句话叫“男人都喜欢20岁的女生” 这说明什么？如果你想找20+的女生结婚，你面临的对手是来自于各个年龄段的男人。 竞争大了，20+的女生要求自然就高了。你不愿意给她花钱，永远都有别人愿意。 在男权的舆论风气之下，男性遭受到的所谓不公，其实都是自找的，这是“歧视的代价”。 http://m.weibo.cn/status/JbU87rFaA
+
+=======
+
+每日文章精选
+
+【美国华裔究竟有多少反对黑人抗议运动】
+/%E7%BE%8E%E5%9B%BD%E5%8D%8E%E8%A3%94%E7%A9%B6%E7%AB%9F%E6%9C%89%E5%A4%9A%E5%B0%91%E5%8F%8D%E5%AF%B9%E9%BB%91%E4%BA%BA%E6%8A%97%E8%AE%AE%E8%BF%90%E5%8A%A8-06-21
+
+【传奇的塔米，无腿钢铁亚裔美国女侠】
+http://mp.weixin.qq.com/s?__biz=MzUzMzU4NzM2NQ==&amp;mid=2247502611&amp;idx=1&amp;sn=2fe50f62fd67355b5ecb4a802bb7bfa2&amp;chksm=faa33fd9cdd4b6cffd53721854c5958bff0100089aa4d1042d17990b62b055222b1e5aeacd07&amp;mpshare=1&amp;scene=1&amp;srcid=0719C4Jb4am9n0R0PpOy2Kf8&amp;sharer_sharetime=1595116831206&amp;sharer_shareid=61ba3d5aab0e9cd90551411d13b76986#rd
+
+【【工友之声】大名鼎鼎的比亚迪，三个月死了五个工人】
+https://mp.weixin.qq.com/s/LfIXrjdNvk7BndB-KroFAg
+
+【为什么现在下雨天也少有蜻蜓了？因为人类欺骗了它们的感情】
+/%E4%B8%BA%E4%BB%80%E4%B9%88%E7%8E%B0%E5%9C%A8%E4%B8%8B%E9%9B%A8%E5%A4%A9%E4%B9%9F%E5%B0%91%E6%9C%89%E8%9C%BB%E8%9C%93%E4%BA%86%E5%9B%A0%E4%B8%BA%E4%BA%BA%E7%B1%BB%E6%AC%BA%E9%AA%97%E4%BA%86%E5%AE%83%E4%BB%AC%E7%9A%84%E6%84%9F%E6%83%85-07-16 | https://mp.weixin.qq.com/s/67K4QEW4mO-IHWs1si9Gng
+
+【第一次感受到了这首诗...】
+第一次感受到了这首诗的形象生动，诗仙李白诚不欺我 http://m.weibo.cn/status/Jan4W3S9z
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【新疆火车站戴手铐的视频是真的吗？在哪里拍摄到的？ - iYouPort】
+http://www.iyouport.org/%25E6%2596%25B0%25E7%2596%2586%25E7%2581%25AB%25E8%25BD%25A6%25E7%25AB%2599%25E6%2588%25B4%25E6%2589%258B%25E9%2593%2590%25E7%259A%2584%25E8%25A7%2586%25E9%25A2%2591%25E6%2598%25AF%25E7%259C%259F%25E7%259A%2584%25E5%2590%2597%25EF%25BC%259F%25E5%259C%25A8%25E5%2593%25AA%25E9%2587%258C%25E6%258B%258D%25E6%2591%2584%25E5%2588%25B0
+
+【未来，不用国安法也能治你的N种办法 - Matters】
+https://matters.news/%40free51/%25E6%259C%25AA%25E6%259D%25A5-%25E4%25B8%258D%25E7%2594%25A8%25E5%259B%25BD%25E5%25AE%2589%25E6%25B3%2595%25E4%25B9%259F%25E8%2583%25BD%25E6%25B2%25BB%25E4%25BD%25A0%25E7%259A%2584n%25E7%25A7%258D%25E5%258A%259E%25E6%25B3%2595-bafyreifveursckrf3ncjbscf44dqzaels3mjgqmfkqlf2mrmjky4ue5ihe
+
+【他们写，我们看】
+https://www.douban.com/note/759990649
+
+【波特兰“钢铁侠”一举...】
+波特兰“钢铁侠”一举成名，真名Chris David，53岁美国海军老兵，原海军学院摔跤队队员。他只是去质问川普的秘密警察违背忠于宪法的誓言对不对，就受到秘密警察的疯狂袭击，胳膊被打折需要手术（毕竟不是真的钢铁侠），被喷了辣椒水、催泪气。他的推特账号@Tazerface16 原来只有几个粉丝，现在几万了。
