@@ -7046,3 +7046,37 @@ https://opinion.cw.com.tw/blog/profile/390/article/9706
 
 【What happe...】
 What happens to a dream deferred? Does it dry up like a raisin in the sun? Or fester like a sore— And then run? Does it stink like rotten meat? Or crust and sugar over— like a syrupy sweet? Maybe it just sags like a heavy load. Or does it explode?
+
+=======
+
+每日文章精选
+
+【#CatchUp投稿...】
+#CatchUp投稿# 海南省小语种岗位共招录34人，26个职位限男性，8个职位性别不限。明晃晃的性别歧视没人管么？国家建设是只需要男性吗？外语学院学小语种的女生非常多，而留给她们的就业机会就只有区区8个岗位么？？ http://m.weibo.cn/status/JccCsi0WO
+
+【画家笔下的老北京的模...】
+画家笔下的老北京的模样 http://m.weibo.cn/status/Jcck15Ujp
+
+【[Goddess o...】
+[Goddess on the mountain top, Burning like a silver flame.] 山巅女神，如银焰般燃烧 [Yeah baby, she's got it.] 是的 宝贝 她就是她 谨以此片，献给每一个不需要被定义的人生。 http://m.weibo.cn/status/JcghKBH6X
+
+【历史仿佛白白发生，曾...】
+历史仿佛白白发生，曾经一切努力烟消云散。 每天12小时工制导致的恶性事故又频发了。 8小时工作制： • 1817年，Robert Owen 针对英国工人的悲惨，首次明确提出了「8小时劳作、8小时消闲、8小时睡眠」方案。 • 1868年，上海工人发起首次罢工，抗议英资“耶松船厂”降薪；1920年起，中 共开始在上海组织领导工人行动，十数年间各种抗议风起云涌；至1931年，迫使国府以《工厂法》明文承认8小时工作制。 • 1886年5月1日，芝加哥工人街头示威及后续一系列抗争，促成了8小时工作制在美国落地。 1889年7月，巴黎会议把5月1日定为国际劳动节。 http://m.weibo.cn/status/JcfGuf8iK
+
+【cosmica展馆】
+cosmica展馆 http://www.douban.com/photos/album/1623272266
+
+【看上去很荒诞，但是非...】
+看上去很荒诞，但是非常写实。因为常年杀女婴性别比失衡严重，农村很多的二嫁三嫁的女性，她们并不是自愿的，而是被娘家半引诱半胁迫，嫁一次收一次彩礼，生完孩子就离婚，变相代孕。彩礼相当于代孕钱但是女的一分也拿不到 ———————— 抬杠的少说我没有农村经历，我老家农村的一个村至少四五个这样的现象，每年都能听到这样的事情。有的男方家只要有个孩子也接受这种现实，女人生完孩子就出门打工一两年回来离婚，但是离婚并不意味她解脱了，娘家会催促再嫁。 http://m.weibo.cn/status/Jch9z0Tsw
+
+【陈纯：粉红狂潮与体制...】
+陈纯：粉红狂潮与体制外的极权主义 http://chinadigitaltimes.net/chinese/2019/08/%25E9%2599%2588%25E7%25BA%25AF%25EF%25BC%259A%25E7%25B2%2589%25E7%25BA%25A2%25E7%258B%2582%25E6%25BD%25AE%25E4%25B8%258E%25E4%25BD%2593%25E5%2588%25B6%25E5%25A4%2596%25E7%259A%2584%25E6%259E%2581%25E6%259D%2583%25E4%25B8%25BB%25E4%25B9%2589
+
+【【科普：如何为14亿...】
+【科普：如何为14亿人储备粮食？】国家大本，食足为先。对于一个有 14 亿人口的大国来说，储备粮的重要性无需多言。 中国屯的粮食够你吃多长时间？如何科学储备上亿吨的稻谷、小麦和玉米？过期的粮食会上你的餐桌吗？疫情期间要不要去超市抢粮？我们翻查了有关中国粮食储备的种种数据，和你一起解答这些问题。 http://m.weibo.cn/status/JbDyB7W0F
+
+【What happe...】
+What happens to a dream deferred? Does it dry up like a raisin in the sun? Or fester like a sore— And then run? Does it stink like rotten meat? Or crust and sugar over— like a syrupy sweet? Maybe it just sags like a heavy load. Or does it explode?
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
