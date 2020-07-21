@@ -7012,3 +7012,37 @@ https://opinion.cw.com.tw/blog/profile/390/article/9706
 
 【陈纯：这个国家想要什么样的年轻人】
 https://terminus2049.github.io/archive/2019/05/12/the-country-need-young-people.html
+
+=======
+
+每日文章精选
+
+【海外风向书单】
+http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+【英美医生爱写书】
+https://www.douban.com/note/761047323
+
+【The Hidden Cost of Your New Wardrobe】
+https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-wardrobe
+
+【你能想象一个9平米的房间养了将近100只狗吗？】
+https://www.douban.com/note/771320624
+
+【伪装下的性侵与恋童：为什么我们亲眼看见他做坏事，却仍不相信？】
+https://opinion.cw.com.tw/blog/profile/390/article/9706
+
+【在微博上看到新见《永...】
+在微博上看到新见《永乐大典》的图片，有一处用黄纸贴起来两个字。检索数据库可知，这两个字是“国瑞”，这段材料出自《至正四明续志》卷四。“国瑞”是朱元璋的字，所以需要避讳。这种避讳方式叫做“覆黄”，多用在等级比较高的书里。这就为古代避讳制度提供了又一个例证。 http://www.douban.com/people/2817424/status/3020927989
+
+【【男性为什么不愿意戴...】
+【男性为什么不愿意戴口罩？】研究发现，与女性相比，男性更不情愿穿戴包括口罩在内的个人防护用品。这种现象在之前的大流行病中也曾出现过。近日，BBC盘点了男性不愿意戴口罩的几大原因： 1）一项对男士行为的最新分析发现，男士们不仅不愿意戴口罩，他们还认为戴口罩“让人丢脸、不酷，而且是软弱的象征”。 2）和女性相比，他们更容易相信自己不大会受新冠疾病的影响（尽管官方数据表明，男性受新冠影响要比女性严重得多）。 3）在美国，政治阵营也有极大的影响。多项调查显示，特朗普的共和党支持者戴口罩率低于支持民主党的选民们。不过，性别差异还是最主要的，远远胜过政治倾向。 4）哥本哈根大学的行为科学家格雷弗特引用大量学术论文表明，男女对待风险的态度似乎不同，女性往往更加谨慎。除了学术研究，实际生活中男性也似乎更粗心些。 格雷弗特表示，如果男性不愿戴口罩的主要问题是过于自信，那么就让数据和事实说话。她还表示，如果我们承认，总的来说男性可能更自私，那宣传戴口罩时，更应该强调它可以保护你自己，而不是他人。 http://m.weibo.cn/status/JcdZn8jtH
+
+【[Goddess o...】
+[Goddess on the mountain top, Burning like a silver flame.] 山巅女神，如银焰般燃烧 [Yeah baby, she's got it.] 是的 宝贝 她就是她 谨以此片，献给每一个不需要被定义的人生。 http://m.weibo.cn/status/JcghKBH6X
+
+【【科普：如何为14亿...】
+【科普：如何为14亿人储备粮食？】国家大本，食足为先。对于一个有 14 亿人口的大国来说，储备粮的重要性无需多言。 中国屯的粮食够你吃多长时间？如何科学储备上亿吨的稻谷、小麦和玉米？过期的粮食会上你的餐桌吗？疫情期间要不要去超市抢粮？我们翻查了有关中国粮食储备的种种数据，和你一起解答这些问题。 http://m.weibo.cn/status/JbDyB7W0F
+
+【What happe...】
+What happens to a dream deferred? Does it dry up like a raisin in the sun? Or fester like a sore— And then run? Does it stink like rotten meat? Or crust and sugar over— like a syrupy sweet? Maybe it just sags like a heavy load. Or does it explode?
