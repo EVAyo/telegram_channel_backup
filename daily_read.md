@@ -7080,3 +7080,37 @@ What happens to a dream deferred? Does it dry up like a raisin in the sun? Or fe
 
 【海外风向书单】
 http://mp.weixin.qq.com/s?__biz=MzI3ODY5Njc3MQ==&amp;mid=2247488440&amp;idx=1&amp;sn=7a3d200d3efbd0a231735ed2f664d062&amp;chksm=eb525594dc25dc8215a773124a6b8501504c92db3b58aa757bf07ed3b543deb230ee5ec0b313&amp;mpshare=1&amp;scene=1&amp;srcid=07089eMvm5ffzezWJpBNjwHg&amp;sharer_sharetime=1594140015189&amp;sharer_shareid=5c90367687afe3c707b85fc47808416f#rd
+
+=======
+
+每日文章精选
+
+【马友友在推特上悼念莫...】
+马友友在推特上悼念莫里康内，拉了一段《天堂电影院》的“Love Theme ”： I'll never forget the way Ennio Morricone described music as “energy, space, and time.” It is, perhaps, the most concise and accurate description I’ve ever heard. We'll truly miss him. http://m.weibo.cn/status/Ja2sWFoBV
+
+【为什么现在下雨天也少有蜻蜓了？因为人类欺骗了它们的感情】
+/%E4%B8%BA%E4%BB%80%E4%B9%88%E7%8E%B0%E5%9C%A8%E4%B8%8B%E9%9B%A8%E5%A4%A9%E4%B9%9F%E5%B0%91%E6%9C%89%E8%9C%BB%E8%9C%93%E4%BA%86%E5%9B%A0%E4%B8%BA%E4%BA%BA%E7%B1%BB%E6%AC%BA%E9%AA%97%E4%BA%86%E5%AE%83%E4%BB%AC%E7%9A%84%E6%84%9F%E6%83%85-07-16 | https://mp.weixin.qq.com/s/67K4QEW4mO-IHWs1si9Gng
+
+【钱永祥：政治哲学与现实感——陈纯书序】
+崇高的道德修为、文明成就，乃是可遇而不可求的瑰宝，我们应该向往，但是为了脆弱人生之需而设想的政治体制，目的并不在此。 https://matters.news/%40byron808/%25E9%2592%25B1%25E6%25B0%25B8%25E7%25A5%25A5-%25E6%2594%25BF%25E6%25B2%25BB%25E5%2593%25B2%25E5%25AD%25B8%25E8%2588%2587%25E7%258F%25BE%25E5%25AF%25A6%25E6%2584%259F-%25E9%2599%25B3%25E7%25B4%2594%25E6%259B%25B8%25E5%25BA%258F-bafyreigbtnxx2snyu4ikjmg62oo5frhd2nhfbgdvjuvvjvj3j3nou3j7lq
+
+【cosmica展馆】
+cosmica展馆 http://www.douban.com/photos/album/1623272266
+
+【【像奉俊昊那样制作故...】
+【像奉俊昊那样制作故事板——以《寄生虫》为例】 http://m.weibo.cn/status/JbXPblPrt
+
+【The Hidden Cost of Your New Wardrobe】
+https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-wardrobe
+
+【我们的对面也许是我们自己】
+读者来稿： http://mp.weixin.qq.com/s?src=11&timestamp=1595358610&ver=2474&signature=7AGJulQ6sBLUYTpAUZvSz6-NHyEAMrgZHEwqshHKLQ*qhHJLN*kGnmkfyimLeFU7ICT0H5TMX4MIWE063K0w5vvEQ*MJQSJm3OXNPAcwTztdHmtlZafFbKE4MPD5gYgI&new=1
+
+【前不久，韩国电影《老...】
+前不久，韩国电影《老妇人》在微博上引起热议，这是亚洲第一部聚焦老年性侵事件的电影，讲述了69岁的女主角被29岁的男护工强奸后，为了守护尊严，奋斗到底的故事。一条第一时间联系了林善爱导演，向大家分享这部电影的创作故事。 http://m.weibo.cn/status/JbSFJEtWy
+
+【source】
+http://www.douban.com/people/1570985/status/3037075217
+
+【或许已没有答案，但仍...】
+或许已没有答案，但仍需继续发问。 http://www.douban.com/people/209317661/status/3037819749 https://telete.in/web_record/19995
