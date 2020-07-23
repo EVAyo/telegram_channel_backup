@@ -7182,3 +7182,37 @@ http://mp.weixin.qq.com/s?__biz=MzI5NDQ4MjYzMQ==&amp;mid=2247500981&amp;idx=1&am
 
 【【科普：如何为14亿...】
 【科普：如何为14亿人储备粮食？】国家大本，食足为先。对于一个有 14 亿人口的大国来说，储备粮的重要性无需多言。 中国屯的粮食够你吃多长时间？如何科学储备上亿吨的稻谷、小麦和玉米？过期的粮食会上你的餐桌吗？疫情期间要不要去超市抢粮？我们翻查了有关中国粮食储备的种种数据，和你一起解答这些问题。 http://m.weibo.cn/status/JbDyB7W0F
+
+=======
+
+每日文章精选
+
+【学人说｜三十而已：全职太太算独立女性吗？】
+http://mp.weixin.qq.com/s?__biz=MzI5MDEwNzMwMQ==&amp;mid=2247487821&amp;idx=1&amp;sn=538291aa245a5ac042fdd8d364890df8&amp;chksm=ec25ab87db522291f6392dd3da36d9de17ee20009d0d3d41763b7907ffe996036d3b0ab6995e&amp;mpshare=1&amp;scene=1&amp;srcid=0720ZkZx7sKJzsO2oksRVTVO&amp;sharer_sharetime=1595417012669&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【近期最浪漫的事，莫过...】
+近期最浪漫的事，莫过于neowise 新智彗星造访北半球的夜空。 7月 neowise 新智彗星绕太阳公转，长达二十多天整个北半球的国家都可看到，来自波特兰的摄影师 Lester Tsai 爬上了胡德山的高峰，记录下了这壮观的景象。neowise 是数十年来最明亮的彗星之一，已经有6800年没有在内部太阳系中再次出现了，下次再现会是4000年后，希望你有机会目睹它带来的孤寂与伟岸。 http://m.weibo.cn/status/Jc6QxsqLj
+
+【项飙《全球猎身》】
+项飙《全球猎身》 http://www.douban.com/people/3435193/status/3039814247
+
+【命运的摧残丨弗里达·...】
+命运的摧残丨弗里达·卡罗 高清作品集 http://mp.weixin.qq.com/s?__biz=MzI4NDU2OTY0MA==&mid=2247498372&idx=1&sn=49ae446ce9b01d33e6c7de249a044548
+
+【从2014年到现在，...】
+从2014年到现在，传播理论这门课我已经讲了五年，每学期都会进行一些修补和升级。为了今年秋季学期在人大新闻学院开设的课程，我又做了一些改动，算作一个暂时的定稿，好坏就是它了。图中是我最后确定的课程安排和参考阅读文献。相应的教材，已经写了大半，努努力，今年搬进书店。 http://www.douban.com/people/1082136/status/3038749529
+
+【爸妈所在的高中，也就...】
+爸妈所在的高中，也就是我以前的高中，三个女生包揽了全市理科前三名，今晚整个学校周边都轰动了，放了好多烟花。 http://www.douban.com/people/58799069/status/3040152448
+
+【为什么我是一个女权主义者和社会主义者】
+读者来稿： http://mp.weixin.qq.com/s?__biz=MzU3MDA2NDIxNg==&amp;mid=2247484205&amp;idx=1&amp;sn=c91069397c52f085297930a103d285a2&amp;chksm=fcf46f1acb83e60c123c01de8a60f34225f6569fce0eaf10e7b55a3e7d84df5008599fdad8ce&amp;mpshare=1&amp;scene=1&amp;srcid=0722iIW2tx2lF0aBtDd8VWzI&amp;sharer_sharetime=1595412500739&amp;sharer_shareid=e6f2072629a326da73cf7d26fd42a655#rd
+
+【近期文章精选】
+近期文章精选
+
+【今年重庆的文科理科状...】
+今年重庆的文科理科状元都是女生。真棒 然而转头一看，重庆警察学院的录取分数线，女生的录取分数比男生的平均高50分，有的高70多分。女生高于一本线四五十，男的低于一本线四五十分，分明已经是两个层面的人，但是仅仅因为性别，优秀的女生还不如更差的男生。 http://m.weibo.cn/status/JcA8e9yx9
+
+【疫情之下｜南非：全球“大隔离”下的种族隔离阴霾】
+https://www.thepaper.cn/newsDetail_forward_6787530
