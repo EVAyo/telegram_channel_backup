@@ -7148,3 +7148,37 @@ https://m.weibo.cn/detail/4529260330758650
 
 【空姐遇害后的第411天,我深夜在网约车上打通了110| 女性安全指南146】
 http://mp.weixin.qq.com/s?__biz=MzI5NDQ4MjYzMQ==&amp;mid=2247500981&amp;idx=1&amp;sn=f0a097c0239c862fa0ed677129eee5ad&amp;chksm=ec60a31ddb172a0b1df6e2ce4ca0803cebdacc71eadcca9c33b519c2ee7cb3463312d317b519&amp;mpshare=1&amp;scene=2&amp;srcid=0722flzm3rumz9sVVtha3cy7&amp;sharer_sharetime=1595400882393&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432&amp;from=timeline#rd
+
+=======
+
+每日文章精选
+
+【中国魔法牛奶：新国标...】
+中国魔法牛奶：新国标竟然比几十年前的旧国标更差？ 大家去买鲜奶，记得冷藏保质期七天的都是鲜奶，这些奶都是奶源地在附近，每天上新的中小型企业 中国农垦乳业联盟：首农畜牧、三元食品、完达山、光明、中垦乳业、西部牧业、天润、燕塘、风行牛奶、西域春、天津嘉立荷、兵团乳业、宁夏农垦、天牧乳业、新农、三联乳业、新疆西部天山乳业、海拉尔农垦 http://www.douban.com/people/1485399/status/3038940736
+
+【The Hidden Cost of Your New Wardrobe】
+https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-wardrobe
+
+【What happe...】
+What happens to a dream deferred? Does it dry up like a raisin in the sun? Or fester like a sore— And then run? Does it stink like rotten meat? Or crust and sugar over— like a syrupy sweet? Maybe it just sags like a heavy load. Or does it explode?
+
+【看到群里有人发的，《...】
+看到群里有人发的，《听力障碍，如何融入社会》里面有一句话说，作者在东京，银行、市政厅办手续时，只要表明听力不便，职员便会耐心笔谈，或是降低语速，强化唇部动作等。 我想说，其实在上海，银行和市政人员都可以做到。这是我的亲身经历，城市越大，对你越包容。失聪后，虽然公司不再给我涨薪了，但是同事们一直对我用纸笔沟通，没有过不耐烦，也没有过歧视，这在小城市应该是不可能的吧。 今年过年，我回上海以后，接到老家残联的电话。用座机一直不停地打电话，为什么不能给我发短信呢？我明明注册的是听力残疾，残联还一直给听不到的人打电话，我不知道是怎么想的。 也有一个做了耳蜗的小伙伴跟我说，现在买房太难了，想在一个小县城里定居下来过平平淡淡的生活。我给他说了上述问题，他沉默了。是的，之所以没考虑到，是因为有人一直照顾着你的生活。可是，除了父母，谁又能照顾你多久？总有一天会感到累，会厌倦，并且，ta也没有错，因为这是人性。 所以这也是我要努力的理由，想独立生活，需要更大的环境。 http://www.douban.com/people/31711983/status/3039484967
+
+【【庐江县同大镇 7/...】
+【庐江县同大镇 7/23】早上救了一位老人，发现时他正抱着洪水中的一棵树，仅仅露着头，已近失温。一切辛苦都是值得的。 http://m.weibo.cn/status/Jcvi9a1Ov
+
+【宝贝，你的学校、你的班级、你的老师，这些对我都不重要，都可以换。只有你，是我最重要的宝贝】
+https://m.weibo.cn/detail/4529260330758650
+
+【鼓励全球合作抗疫，斯...】
+鼓励全球合作抗疫，斯坦福计算机系宣布，向全球开放CS106A课程：编码方法入门（Programming Methodology）。据说这是斯坦福校园选修人数最多的课程之一，是计算机专业的基础课。现在向全球免费开放，5星期，每星期大约15-20小时的上课和练习时间，只要18岁以上有电脑即可报名。有关信息在此： http://t.cn/A6Z9b5pE
+
+【【国内有数不清的草根...】
+【国内有数不清的草根女性组织，她们是性别平等的一线坚守者】 #深圳女工真实生态# 其实国内有许多和@绿色蔷薇女工服务中心 一样扎根在村、城中村与社区里的女性组织，她们可能是由大型基金会（比如@绿芽公益基金会）扶持建立的农村女性互助小组、可能是如绿色蔷薇一般自发成立的社区组织。 因为人力与精力有限，这些草根妇女组织不太常用新媒体的方式广播自己的存在。但她们通过召集社区邻里的姐妹、为姐妹与孩子们创造安全空间，切实地为最需要性别关怀的人群提供了许多知识与陪伴。 而全国各地的性别平等机构在私下里培训、合作时，也会特别留意各地的草根妇女组织，尽量为她们带去最新的经验与工作道具。 新媒体时代，许多城市人群接触性别议题是通过微博、微信等互联网渠道。发声是技术手段为我们带来的特殊优势，但在此之外，那些扎根在社区、十数年如一日专注于为身边姐妹提供帮助的女性组织，其实一直都在。 http://m.weibo.cn/status/Jc7WMCuAX
+
+【空姐遇害后的第411天,我深夜在网约车上打通了110| 女性安全指南146】
+http://mp.weixin.qq.com/s?__biz=MzI5NDQ4MjYzMQ==&amp;mid=2247500981&amp;idx=1&amp;sn=f0a097c0239c862fa0ed677129eee5ad&amp;chksm=ec60a31ddb172a0b1df6e2ce4ca0803cebdacc71eadcca9c33b519c2ee7cb3463312d317b519&amp;mpshare=1&amp;scene=2&amp;srcid=0722flzm3rumz9sVVtha3cy7&amp;sharer_sharetime=1595400882393&amp;sharer_shareid=d0f7237f0b9b84d9bdc32b0b35eb3432&amp;from=timeline#rd
+
+【【科普：如何为14亿...】
+【科普：如何为14亿人储备粮食？】国家大本，食足为先。对于一个有 14 亿人口的大国来说，储备粮的重要性无需多言。 中国屯的粮食够你吃多长时间？如何科学储备上亿吨的稻谷、小麦和玉米？过期的粮食会上你的餐桌吗？疫情期间要不要去超市抢粮？我们翻查了有关中国粮食储备的种种数据，和你一起解答这些问题。 http://m.weibo.cn/status/JbDyB7W0F
