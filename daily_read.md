@@ -7284,3 +7284,37 @@ https://ed.ted.com/best_of_web/8HDeZKFr
 
 【继《无声告白》之后，伍诗绮这次让女儿烧死妈妈？】
 http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247499750&amp;idx=1&amp;sn=c2201465f8c8133744a0d28a4e0d7b7b
+
+=======
+
+每日文章精选
+
+【我妹妹今年高考，我在...】
+我妹妹今年高考，我在给她查学校的时候，在今年本省的招生考试报考书籍上看到了飞行员“只招男生”，非常有感触。因为我当年很想成为一名飞行员，结果看到招生简章上明确地提出只要男生，只能非常不甘心地放弃了自己的梦想。 后来一个比我低半头（我当时身高180，体检的各项都达标）而且体能测试远不及我、文化课成绩远不如我的男生考上了这个空军航空大学的飞行员，我很好奇为什么这些学校宁愿选择样样都差的男生而不选样样都更好的女生。 也不要说什么女生娇气，连试一试的机会都不给女生，也不知道是从哪里得来的结论，女生并不一定都是娇弱型的，也有很多比男生意志更坚定的女生。 我十分愿意为了成为一名飞行员而历经各种艰苦训练，可我的性别抹杀了我所有的努力，让我连公平竞争的机会都没有，这是我一生的遗憾。 http://m.weibo.cn/status/JcwwhllkH
+
+【全职家庭主妇算是独立...】
+全职家庭主妇算是独立女性吗？ http://m.weibo.cn/status/JcEQh61TU
+
+【The white lie we've been told about Roman statues】
+https://ed.ted.com/best_of_web/w56AMI7l
+
+【继《无声告白》之后，伍诗绮这次让女儿烧死妈妈？】
+http://mp.weixin.qq.com/s?__biz=MzU4NDU4NDEwMA==&amp;mid=2247499750&amp;idx=1&amp;sn=c2201465f8c8133744a0d28a4e0d7b7b
+
+【source】
+http://m.weibo.cn/status/Jcz0mwlKB
+
+【The army ants of Africa】
+https://ed.ted.com/best_of_web/61PfyLfX
+
+【鼓励全球合作抗疫，斯...】
+鼓励全球合作抗疫，斯坦福计算机系宣布，向全球开放CS106A课程：编码方法入门（Programming Methodology）。据说这是斯坦福校园选修人数最多的课程之一，是计算机专业的基础课。现在向全球免费开放，5星期，每星期大约15-20小时的上课和练习时间，只要18岁以上有电脑即可报名。有关信息在此： http://t.cn/A6Z9b5pE
+
+【宝贝，你的学校、你的班级、你的老师，这些对我都不重要，都可以换。只有你，是我最重要的宝贝】
+https://m.weibo.cn/detail/4529260330758650
+
+【近期最浪漫的事，莫过...】
+近期最浪漫的事，莫过于neowise 新智彗星造访北半球的夜空。 7月 neowise 新智彗星绕太阳公转，长达二十多天整个北半球的国家都可看到，来自波特兰的摄影师 Lester Tsai 爬上了胡德山的高峰，记录下了这壮观的景象。neowise 是数十年来最明亮的彗星之一，已经有6800年没有在内部太阳系中再次出现了，下次再现会是4000年后，希望你有机会目睹它带来的孤寂与伟岸。 http://m.weibo.cn/status/Jc6QxsqLj
+
+【命运的摧残丨弗里达·卡罗 高清作品集】
+http://mp.weixin.qq.com/s?__biz=MzI4NDU2OTY0MA==&amp;mid=2247498372&amp;idx=1&amp;sn=49ae446ce9b01d33e6c7de249a044548
