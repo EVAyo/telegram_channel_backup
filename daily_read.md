@@ -7318,3 +7318,37 @@ https://m.weibo.cn/detail/4529260330758650
 
 【命运的摧残丨弗里达·卡罗 高清作品集】
 http://mp.weixin.qq.com/s?__biz=MzI4NDU2OTY0MA==&amp;mid=2247498372&amp;idx=1&amp;sn=49ae446ce9b01d33e6c7de249a044548
+
+=======
+
+每日文章精选
+
+【竞技体育与种族主义】
+https://matters.news/%40linsantu/%25E7%25AB%259E%25E6%258A%2580%25E4%25BD%2593%25E8%2582%25B2%25E4%25B8%258E%25E7%25A7%258D%25E6%2597%258F%25E4%25B8%25BB%25E4%25B9%2589-bafyreidlzedi7omx7r6zr3blsvdqi2guc24iav2oi7atlc6hr5tyoi7etm
+
+【有时候你得庆幸它们不...】
+有时候你得庆幸它们不在北上广，避免了被公众号和网红糟蹋的命运。 http://www.douban.com/people/160279628/status/3042496419
+
+【内战后的叙利亚，一个分崩离析的平民之家】
+因为疫情拖了半年的叙利亚稿子终于发了。。叙利亚女性地位很低，一个女性的人生能有多少种可能性，基本上取决于父亲是否开明。在阿勒颇与之前认识的沙发主Nowar的父亲交流女性教育时，他的回答非常令我感动。正是因为他把四个女儿都当“人”培养，她们才可以在内战期间各自出国、独立生存，而不是像那些没任何技能的家庭主妇那样，只能眼睁睁呆在阿勒颇，祈祷导弹不要飞到自己家门口。 https://www.thepaper.cn/newsDetail_forward_8384137
+
+【你能想象一个9平米的房间养了将近100只狗吗？】
+https://www.douban.com/note/771320624
+
+【近期最浪漫的事，莫过...】
+近期最浪漫的事，莫过于neowise 新智彗星造访北半球的夜空。 7月 neowise 新智彗星绕太阳公转，长达二十多天整个北半球的国家都可看到，来自波特兰的摄影师 Lester Tsai 爬上了胡德山的高峰，记录下了这壮观的景象。neowise 是数十年来最明亮的彗星之一，已经有6800年没有在内部太阳系中再次出现了，下次再现会是4000年后，希望你有机会目睹它带来的孤寂与伟岸。 http://m.weibo.cn/status/Jc6QxsqLj
+
+【【如何帮助身边患抑郁...】
+【如何帮助身边患抑郁症的朋友】这是心理科普频道Psych2Go做的小视频，讲述如何帮助身边患抑郁症的朋友。他们提到五点，帮朋友分担家务、带他们去散步、督促他们照顾自己、夸赞他们、陪他们谈心。虽然只是简单科普，但感觉可能会有帮助。 http://m.weibo.cn/status/Jczfp6SrY
+
+【The Cheerios effect】
+https://ed.ted.com/best_of_web/8HDeZKFr
+
+【国内十种值得入坑的外国文学小众书系（肥肠消肿）】
+https://www.douban.com/note/771594903
+
+【The Hidden Cost of Your New Wardrobe】
+https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-wardrobe
+
+【手账素材】
+手账素材 https://m.weibo.cn/status/JcNhTzlbD
