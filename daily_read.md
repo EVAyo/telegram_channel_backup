@@ -7352,3 +7352,37 @@ https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-war
 
 【手账素材】
 手账素材 https://m.weibo.cn/status/JcNhTzlbD
+
+=======
+
+每日文章精选
+
+【中国权贵的死亡游戏：薄熙来事件秘密报告】
+读者来稿： https://matters.news/%40philosophia1979/%25E4%25B8%25AD%25E5%259B%25BD%25E6%259D%2583%25E8%25B4%25B5%25E7%259A%2584%25E6%25AD%25BB%25E4%25BA%25A1%25E6%25B8%25B8%25E6%2588%258F-%25E8%2596%2584%25E7%2586%2599%25E6%259D%25A5%25E4%25BA%258B%25E4%25BB%25B6%25E7%25A7%2598%25E5%25AF%2586%25E6%258A%25A5%25E5%2591%258A-bafyreih43bp5u4s5w42hbdefgwmpywi53vfd27qkslwofowcezmcddgjam
+
+【快报：前剑桥餐馆老板...】
+快报：前剑桥餐馆老板 Stephen Ng 疑为去年721事件中元朗袭击者之一。 https://www.thetimes.co.uk/article/cambridge-restaurateur-seen-with-hong-kong-thugs-khvxj9nnp
+
+【向“易性症”开战】
+读者来稿： https://www.douban.com/note/771914159
+
+【The Hidden Cost of Your New Wardrobe】
+https://thesocietypages.org/socimages/2020/06/25/the-hidden-cost-of-your-new-wardrobe
+
+【近期最浪漫的事，莫过...】
+近期最浪漫的事，莫过于neowise 新智彗星造访北半球的夜空。 7月 neowise 新智彗星绕太阳公转，长达二十多天整个北半球的国家都可看到，来自波特兰的摄影师 Lester Tsai 爬上了胡德山的高峰，记录下了这壮观的景象。neowise 是数十年来最明亮的彗星之一，已经有6800年没有在内部太阳系中再次出现了，下次再现会是4000年后，希望你有机会目睹它带来的孤寂与伟岸。 http://m.weibo.cn/status/Jc6QxsqLj
+
+【【大狗与小孩】】
+【大狗与小孩】 宙を舞う、モップ犬（コモンドール）。 この自由な躍動感。 Andy Seliverstoffによる「ちっちゃな子供とおおきな犬」の写真集より。 http://bit.ly/2ilausr
+
+【美国突然要求中国关闭驻休斯敦总领馆 指其为情报中心】
+关闭中国驻休斯敦总领馆正好发生在美国指控两名男子受中国安全部门指使试图窃取美国疫苗的事件之后。尽管目前还不清楚上述两起事件是否有关联，但是特朗普政府决意要公开指证北京行为的意图明显无误。 https://www.bbc.com/zhongwen/simp/world-53496291
+
+【鼓励全球合作抗疫，斯...】
+鼓励全球合作抗疫，斯坦福计算机系宣布，向全球开放CS106A课程：编码方法入门（Programming Methodology）。据说这是斯坦福校园选修人数最多的课程之一，是计算机专业的基础课。现在向全球免费开放，5星期，每星期大约15-20小时的上课和练习时间，只要18岁以上有电脑即可报名。有关信息在此： http://t.cn/A6Z9b5pE
+
+【2017年国际援助分...】
+https://www.wristband.com/getmedia/b7060a08-dd0a-47e9-9193-0336870d1f7b/which-countries-provide-receive-foreign-aid-6_compressed.png.aspx
+
+【粉丝行动主义：「黑命攸关」运动中的BTS粉丝 | 后生深度】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649754134&amp;idx=1&amp;sn=e90b36b992fdfbeb41eadf077880078b
