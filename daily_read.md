@@ -7386,3 +7386,37 @@ https://www.wristband.com/getmedia/b7060a08-dd0a-47e9-9193-0336870d1f7b/which-co
 
 【粉丝行动主义：「黑命攸关」运动中的BTS粉丝 | 后生深度】
 http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649754134&amp;idx=1&amp;sn=e90b36b992fdfbeb41eadf077880078b
+
+=======
+
+每日文章精选
+
+【The white lie we've been told about Roman statues】
+https://ed.ted.com/best_of_web/w56AMI7l
+
+【粉丝行动主义：「黑命攸关」运动中的BTS粉丝 | 后生深度】
+http://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649754134&amp;idx=1&amp;sn=e90b36b992fdfbeb41eadf077880078b
+
+【【像奉俊昊那样制作故...】
+【像奉俊昊那样制作故事板——以《寄生虫》为例】 http://m.weibo.cn/status/JbXPblPrt
+
+【美国突然要求中国关闭驻休斯敦总领馆 指其为情报中心】
+关闭中国驻休斯敦总领馆正好发生在美国指控两名男子受中国安全部门指使试图窃取美国疫苗的事件之后。尽管目前还不清楚上述两起事件是否有关联，但是特朗普政府决意要公开指证北京行为的意图明显无误。 https://www.bbc.com/zhongwen/simp/world-53496291
+
+【老师性侵学生过了几百...】
+老师性侵学生过了几百年还是存在 http://www.douban.com/people/182400277/status/3008797464
+
+【纽约女议员AOC回应...】
+纽约女议员AOC回应Yoho的公开道歉：别拿妻子女儿当挡箭牌，男人不是成家了就成了正经人 佛州众议员Ted Yoho因为在媒体面前称纽约州女众议员AOC是“Fucking Bitch”，本周不得不在众议院做了公开澄清。 周四AOC对Yoho做出了回应，称自己并不需要Yoho的道歉，但Yoho拿自己的妻女当挡箭牌，找借口而不是真诚道歉，而国会就这么接受这种半吊子道歉是不可接受的。 这样不带惩罚的容忍，就是纵容其他的男性去骚扰女性 http://weibointl.api.weibo.com/share/162100487.html?weibo_id=4530281064965926
+
+【你能想象一个9平米的房间养了将近100只狗吗？】
+https://www.douban.com/note/771320624
+
+【疫论·流动丨流动与治理：差异性与统一性之辩】
+https://www.thepaper.cn/newsDetail_forward_8302580
+
+【原来中国一直在接受这些国家的援助】
+https://c.m.163.com/news/a/F77KTHBR0515DPP5.html?spss=wap_refluxdl_2018&amp;referFrom=&amp;spssid=66d7bc988627c6843fea8c7cad3a7d3d&amp;spsw=9&amp;isFromH5Share=article&amp;v_p=84&amp;WBAPIAnalysisOriUICodes=10000001_10000002&amp;launchid=10000365--x&amp;wm=3333_2001&amp;aid=01AkxTz42W0NxJawLmGV9ENa5ORYLjkytplamdV32FeZ6iAZ8.&amp;from=timeline&amp;isFromH5Share=article&amp;isFromH5Share=article 【更正】截止2011年底，德国对华援助总额为121亿，非12.1亿。
+
+【命运的摧残丨弗里达·卡罗 高清作品集】
+http://mp.weixin.qq.com/s?__biz=MzI4NDU2OTY0MA==&amp;mid=2247498372&amp;idx=1&amp;sn=49ae446ce9b01d33e6c7de249a044548
