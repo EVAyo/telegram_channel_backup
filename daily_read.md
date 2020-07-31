@@ -7658,3 +7658,37 @@ https://ed.ted.com/lessons/why-is-the-us-constitution-so-hard-to-amend-peter-pac
 
 【盛夏的时光扑面而来，...】
 盛夏的时光扑面而来，总让人担心，太过丰满而盛大的绿意，却又如何纳入小小的一枚镜头中，可当我们走过，拍过，这个夏天，终究就不算是错过 http://www.douban.com/people/39994774/status/3047941927
+
+=======
+
+每日文章精选
+
+【有绩效、没成效？缉毒政策为何变成刑警和施用者的梦魇】
+https://www.twreporter.org/a/asia-pacific-transnational-drug-trafficking-chain-police-performance-system
+
+【袁国勇指武汉官员瞒疫 爆料影片下架惹议】
+DW 中文- 德国之声 | 袁国勇称早在1月12日发现人传人，而1月18日赴武汉调查时，华南海鲜市场"就像犯罪现场已被扰乱"，让专家无法追寻导致人类感染病毒的动物宿主。 ?q=%23COVID19 ?q=%23%E6%AD%A6%E6%B1%89 ?q=%23%E5%8D%8E%E5%8D%97%E6%B5%B7%E9%B2%9C%E5%B8%82%E5%9C%BA ?q=%23%E9%9A%90%E7%9E%92%E7%96%AB%E6%83%85 http://p.dw.com/p/3g12R
+
+【做Excel表格，超...】
+做Excel表格，超实用技巧！快来get！ http://www.douban.com/people/1626747/status/3046682740
+
+【Why is the US Constitution so hard to amend? - Peter Paccone】
+https://ed.ted.com/lessons/why-is-the-us-constitution-so-hard-to-amend-peter-paccone
+
+【陈牧民／解密台湾与印度外交文件：1962年中印战争后的台印交互关系】
+读者来稿： https://www.twreporter.org/a/opinion-sino-indian-war-taiwan-secret-diplomatic-archives
+
+【性的双重标准将女性分...】
+性的双重标准将女性分为“圣女”和“荡妇”两个集团，继而“分而治之”，其实就是男权建立支配统治的一种手段，将女性分离隔断，让她们互相对立，绝不允许她们之间产生连带感情。 被性的双重标准分离隔断的女人，一方会蔑视另一方。但实际上，无论是”圣女“，还是”荡妇“都是压抑女性的形态，是对男权统治的献祭。 “圣女”和“荡妇”不应是仇敌，利用性的双重标准分离隔断女性的男性才是。 上野千鹤子《厌女》 http://m.weibo.cn/status/Jd9FHAl5c
+
+【云彩里的富士山 丨摄...】
+云彩里的富士山 丨摄影师 http://m.weibo.cn/status/JdzbdErkj
+
+【北京国际电影节海报「难看」吗？】
+https://mp.weixin.qq.com/s/2xhh5RUFKwKvPQ5BN5a-4Q
+
+【Why should you read “Crime and Punishment”? - Alex Gendler】
+https://ed.ted.com/lessons/why-should-you-read-crime-and-punishment-alex-gendler
+
+【英国数据分析公司Co...】
+英国数据分析公司Comparitech列出世界前20位（摄像头）监控最为严密的城市，其中18个在我国。太原以每1000人近120个摄像头排名首位。同时，我国监控摄像头数量占全球总量的54%。网站的数据也指出，摄像头数量和犯罪率没有直接关系。 http://m.weibo.cn/status/Jd31oybgZ
