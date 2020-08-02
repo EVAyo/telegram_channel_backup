@@ -7768,3 +7768,16 @@ WOW～一组月亮照 丨摄影师 http://m.weibo.cn/status/JdS1ICwXD
 =======
 
 每日文章精选
+
+=======
+
+每日文章精选
+
+【法式警暴：“弗洛伊德之死”的法国镜像与义愤之外的复杂面向】
+https://www.thepaper.cn/newsDetail_forward_8484828
+
+【诉微信读书案宣判：自动关注、默认展示读书信息侵犯个人信息权益】
+http://mp.weixin.qq.com/s?__biz=MjM5NDAyNTQyMQ==&amp;mid=2649159550&amp;idx=2&amp;sn=ad64fdd660cec02f6851ae0fdff159a1
+
+【被叫做「招娣」「引娣」的女孩们以后准备改名字吗？ - 知乎】
+http://www.zhihu.com/question/379975773/answer/1198222759
