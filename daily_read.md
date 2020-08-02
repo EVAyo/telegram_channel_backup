@@ -7730,3 +7730,37 @@ https://www.twreporter.org/a/bookreview-the-outlaw-ocean-princess-cruises-waste-
 =======
 
 每日文章精选
+
+=======
+
+每日文章精选
+
+【法式警暴：“弗洛伊德之死”的法国镜像与义愤之外的复杂面向】
+https://www.thepaper.cn/newsDetail_forward_8484828
+
+【做Excel表格，超...】
+做Excel表格，超实用技巧！快来get！ http://www.douban.com/people/1626747/status/3046682740
+
+【The greatest mathematician that never lived - Pratik Aghor】
+http://ed.ted.com/lessons/the-greatest-mathematician-that-never-lived-pratik-aghor
+
+【我不是奥客！现代商业社会中，消费纠纷怎么处理？】
+https://opinion.cw.com.tw/blog/profile/466/article/9753
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【快速解冻肉的小妙招。...】
+快速解冻肉的小妙招。日本网友分享了一个解冻肉小妙招，利用金属的导热能力，省时又省事，相当实用。 http://www.douban.com/people/69521462/status/3047903623
+
+【诉微信读书案宣判：自动关注、默认展示读书信息侵犯个人信息权益】
+http://mp.weixin.qq.com/s?__biz=MjM5NDAyNTQyMQ==&amp;mid=2649159550&amp;idx=2&amp;sn=ad64fdd660cec02f6851ae0fdff159a1
+
+【“老娘化不化妆都超正...】
+“老娘化不化妆都超正” 今天台湾同志大游行中的女性标语 http://m.weibo.cn/status/JdQaojF9t
+
+【independen...】
+http://independence-of-mind.tumblr.com/post/182640549966/%25E6%2596%2587%25E9%259D%25A9%25E4%25B9%258B%25E8%25B0%259C%25E5%259B%259B%25E7%25A7%258D%25E5%258F%2599%25E4%25BA%258B%25E5%2592%258C%25E5%258E%2586%25E5%258F%25B2%25E7%259C%259F%25E7%259B%25B868-%25E4%25B8%25BB%25E8%25AE%25B2%25E4%25BA%25BA%25E7%25A7%25A6%25E6%2599%2596%25E6%25B8%2585%25E5%258D%258E%25E5%25A4%25A7%25E5%25AD%25A6%25E5%258E%2586%25E5%258F%25B2%25E7%25B3%25BB%25E6%2595%2599%25E6%258E%25882016%25E5%25B9%25B43%25E6%259C%258827%25E6%2597%25A5
+
+【WOW～一组月亮照 ...】
+WOW～一组月亮照 丨摄影师 http://m.weibo.cn/status/JdS1ICwXD
