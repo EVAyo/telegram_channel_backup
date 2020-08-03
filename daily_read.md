@@ -7876,3 +7876,21 @@ WOW～一组月亮照 丨摄影师 http://m.weibo.cn/status/JdS1ICwXD
 4. 【疫情重创之下，日本性工作者如何自救？】https://mp.weixin.qq.com/s/ZTTq7psrcY2zTpBbxs1i5A
 
 5. 【《我可以毁掉你》：达成性同意的共识，有多难？】http://mp.weixin.qq.com/s?__biz=MzIzOTUzNTg1MQ==&amp;mid=2247485969&amp;idx=1&amp;sn=e4202a93f497a7b89065de1c8a13ccc9
+
+=======
+
+《每日文章精选-20-08-02》 https://t.me/daily_read 
+
+1. 【美国限制TikTok的逻辑，可能比我们想象的更复杂】https://mp.weixin.qq.com/s/YMn3oWNg2I_9GhQEGh5USQ
+
+2. 【JK制服风波：“又纯又欲”矛盾统一背后的意识形态】https://www.thepaper.cn/newsDetail_forward_8541978
+
+3. 【今天我在内心把我爸开除爸籍】https://mp.weixin.qq.com/s/DzSn0oX7nctjnsHRM1DpKQ
+
+4. 【疫情重创之下，日本性工作者如何自救？】https://mp.weixin.qq.com/s/ZTTq7psrcY2zTpBbxs1i5A
+
+5. 【《我可以毁掉你》：达成性同意的共识，有多难？】http://mp.weixin.qq.com/s?__biz=MzIzOTUzNTg1MQ==&amp;mid=2247485969&amp;idx=1&amp;sn=e4202a93f497a7b89065de1c8a13ccc9
+
+=======
+
+每日文章精选
