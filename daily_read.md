@@ -7970,3 +7970,37 @@ https://mp.weixin.qq.com/s/2xhh5RUFKwKvPQ5BN5a-4Q
 
 【Why should you read Dante’s “Divine Comedy”? - Sheila Marie Orfano】
 https://ed.ted.com/lessons/why-should-you-read-dante-s-divine-comedy-sheila-marie-orfano
+
+=======
+
+每日文章精选
+
+【The many meanings of Michelangelo's Statue of David - James Earle】
+https://ed.ted.com/lessons/the-many-meanings-of-michelangelo-s-statue-of-david-james-earle
+
+【Allan G. Johnson《性别打结》摘抄】
+这种选择性地让男性不被看见，形塑了我们理解、思考性别议题的方向。例如性别压迫常常被当成是女性议题来讨论，而非男性议题，这使得男性性别不被看见成为一大问题，当女人奋力反对性别压迫时，她们成为「特殊利益团体」。 而男人没有反对性别压迫，男人间接或直接地从性别压迫中获益，但他们却从未被视为是一个利益集体。不论是工作歧视、性骚扰或是暴力 ，性别议题总被视为是处理女性的问题，那个受害的类别。性别议题很少被视为是处理男性的问题 ，那个实际上运行加害的类别，而他们的特权根基于同一个促成压迫女性的体系。 https://threadreaderapp.com/thread/1289172425066704896.html
+
+【世界奇奇怪怪，小孩子...】
+世界奇奇怪怪，小孩子可可爱爱~ http://www.douban.com/people/103247213/status/2986464780
+
+【Testostero...】
+Testosterone and the trans gaze: Laurence Philomène on photographing non-binary joy https://www.laurencephilomene.com Laurence Philomène 跨性别摄影
+
+【Why should you read Dante’s “Divine Comedy”? - Sheila Marie Orfano】
+https://ed.ted.com/lessons/why-should-you-read-dante-s-divine-comedy-sheila-marie-orfano
+
+【汪浩／两国论vs.一个中国？那些年，被中美夹攻的李登辉】
+https://opinion.udn.com/opinion/story/11664/4744624?fbclid=IwAR3cVMfQzldc6QbaTJwnCgq8B2GN74B_1USejxM4k0W8XBxb_ika9jfTbSM
+
+【梁鹤年 | 美国梦是“强者自由逐利”的梦】
+我清楚记得，他和妈妈详细地、亲切地叮嘱我，遇到警察截停时应该怎样应对。当然，我遇到警察截停的概率远远超过跟我同年纪的白人孩子。 一天，妈妈在路旁停车去给他买冰淇淋，BO就站在门口等着。来了两个警察，说BO在街上游荡，有不良企图，要把他带回警局。妈妈出来了，看见情景，就对警察说：“这是我儿子。”警察看看金发、蓝眼的她，摇摇头，坚持要带BO走，要她拿证据去警局保释。这样的事情就发生在哈佛大学与麻省理工学院所在的剑桥市。 http://www.gzhshoulu.wang/article/1002416980
+
+【The rise and fall of the Celtic warriors - Philip Freeman】
+http://ed.ted.com/lessons/the-rise-and-fall-of-the-celtic-warriors-philip-freeman
+
+【今天我在内心把我爸开除爸籍】
+但凡一提到女权问题，我能在家疯狂输出，但刘大爷不听我也拿他没办法，我又不是他妈，所以刘大爷一旦开始思想抛锚发表男权理论，我就内心默算，刘大爷现在134斤，猪肉市场价30元一斤，把他拿去卖了能卖4000多块…… 总之，我爸要是不转变态度，我爸在我心里就不是我爸了，我爸是张大爷。我也不是张k了，在此期间我是林k，我跟林毛毛的姓。虽然林毛毛的诸多观点我不认可，但是在仇视中老年男的的水平上我和林毛毛已经达成一致。 https://mp.weixin.qq.com/s/DzSn0oX7nctjnsHRM1DpKQ
+
+【【投书】奋力擦亮失真的镜子：从台剧《镜子森林》看媒体乱世中的理想与现实】
+https://opinion.cw.com.tw/blog/profile/52/article/9745
