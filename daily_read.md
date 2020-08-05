@@ -8018,3 +8018,17 @@ https://opinion.cw.com.tw/blog/profile/52/article/9745
 4. 【美国限制TikTok的逻辑，可能比我们想象的更复杂】https://mp.weixin.qq.com/s/YMn3oWNg2I_9GhQEGh5USQ
 
 5. 【JK制服风波：“又纯又欲”矛盾统一背后的意识形态】https://www.thepaper.cn/newsDetail_forward_8541978
+
+=======
+
+《每日文章精选 2020-08-04》 https://t.me/daily_read 
+
+1. 【究竟谁应该入选奥运会女子游泳代表队？】https://www.douban.com/note/773088038
+
+2. 【女性群像剧中的“姐妹情谊”：含情脉脉背后的阶层破绽】https://www.thepaper.cn/newsDetail_forward_8505634
+
+3. 【漫展上的制服与偷窥：是女生有伤风化，还是男性偷拍有错？】http://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247499375&amp;idx=1&amp;sn=471e731f2b64b00e7fdb36ca81336f90
+
+4. 【如果可以，我希望成功学能滚出这个银河系】http://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&amp;mid=2653078932&amp;idx=1&amp;sn=1c76a831f28b402ba30b0084cbbac6d6
+
+5. 【新世界与旧问题：瘟疫与思想都悬而未决 | 随机波动003】https://mp.weixin.qq.com/s/9Dd_I51IzBumd08-dtttDw
