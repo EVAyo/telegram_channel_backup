@@ -8021,20 +8021,6 @@ https://opinion.cw.com.tw/blog/profile/52/article/9745
 
 =======
 
-《每日文章精选 2020-08-04》 https://t.me/daily_read 
-
-1. 【究竟谁应该入选奥运会女子游泳代表队？】https://www.douban.com/note/773088038
-
-2. 【女性群像剧中的“姐妹情谊”：含情脉脉背后的阶层破绽】https://www.thepaper.cn/newsDetail_forward_8505634
-
-3. 【漫展上的制服与偷窥：是女生有伤风化，还是男性偷拍有错？】http://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247499375&amp;idx=1&amp;sn=471e731f2b64b00e7fdb36ca81336f90
-
-4. 【如果可以，我希望成功学能滚出这个银河系】http://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&amp;mid=2653078932&amp;idx=1&amp;sn=1c76a831f28b402ba30b0084cbbac6d6
-
-5. 【新世界与旧问题：瘟疫与思想都悬而未决 | 随机波动003】https://mp.weixin.qq.com/s/9Dd_I51IzBumd08-dtttDw
-
-=======
-
 每日文章精选
 
 【【遭遇性侵那天，受害...】
@@ -8066,3 +8052,51 @@ https://mp.weixin.qq.com/s/2xhh5RUFKwKvPQ5BN5a-4Q
 
 【How do crystals work? - Graham Baird】
 https://ed.ted.com/lessons/how-do-crystals-work-graham-baird
+
+=======
+
+每日文章精选
+
+【女性群像剧中的“姐妹情谊”：含情脉脉背后的阶层破绽】
+如果女性群像剧里讴歌的姐妹情谊仅仅局限在都市女白领之间，那么它对改善所有女性处境的作用相当有限。 https://www.thepaper.cn/newsDetail_forward_8505634
+
+【真的！不要再塑造这样...】
+真的！不要再塑造这样的女性靶子给观众发泄愤怒了。烦死了。 http://m.weibo.cn/status/JemTB6IQH 【网评】为什么要故意塑造这样扭曲的角色。有什么意思？为什么不能塑造一个人性丰富的女性形象？
+
+【20世纪初，100多...】
+20世纪初，100多名年轻的女孩，在进入同一家工厂工作后身染怪病、离奇死去。当法医开棺时，遗骨发出淡绿色的点点荧光。 女工们起诉了工厂，经过漫长的努力，她们赢得了诉讼，并促成《劳工法》的建立。然而她们身上的悲剧本没有必要发生。 http://m.weibo.cn/status/JeeBHz8ZN
+
+【说家暴，吸毒，赌博可...】
+说家暴，吸毒，赌博可以离的出来走两步。 http://www.douban.com/people/1059355/status/3054511091
+
+【女孩子裙下的安全裤，到底为谁而穿？】
+http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247511603&amp;idx=1&amp;sn=049a67174a7a001ecbd52c92914db655
+
+【“女性的共鸣”，不必是“撕烂那个坏女人”】
+http://mp.weixin.qq.com/s?__biz=MzIzMTg5MjM2Nw==&amp;mid=2247607183&amp;idx=1&amp;sn=e06a093fc274d8c51111ec0de4b32125
+
+【看理想 | “不是女人才关心女人，是人应该关心人”】
+片子里我问过这些女犯：“你们在法庭陈述的时候，有没有谈到你们承受的家庭暴力？”每个人都说：“没有。” 没有人问她们。 有女犯接受检察官讯问的时候，想要说说“这十几年是咋过的”，检察官打断她：“听你拉家常呢？就说你杀人这一段！” 在女监片子的开头和结尾，老范用了同一组镜头，镜头摇过每个女犯，她们说自己的刑期：“无期，死缓，十五年，十五年，十五年……” 有人已经被执行了死刑。 https://chinadigitaltimes.net/chinese/2020/08/%25E7%259C%258B%25E7%2590%2586%25E6%2583%25B3-%25E4%25B8%258D%25E6%2598%25AF%25E5%25A5%25B3%25E4%25BA%25BA%25E6%2589%258D%25E5%2585%25B3%25E5%25BF%2583%25E5%25A5%25B3%25E4%25BA%25BA%25EF%25BC%258C%25E6%2598%25AF%25E4%25BA%25BA%25E5%25BA%2594%25E8%25AF%25A5%25E5%2585%25B3%25E5%25BF%2583%25E4%25BA%25BA
+
+【2020年7月中国女...】
+2020年7月中国女性生存报告
+
+【当代影视剧网文圈有趣...】
+当代影视剧网文圈有趣现状： 男：我喜欢你 女：对不起，我已经有男朋友了 男：我不管，我还是喜欢你 观众：好深情啊，坚持守护的小天使，让人心疼 女：我喜欢你 男：对不起，我已经有女朋友了 女：我不管，我还是喜欢你 观众：呸！臭不要脸小三biss！ http://m.weibo.cn/status/JexSBlAu2
+
+【机会推荐 | ​2020 LADIES WHO TECH年度大会】
+http://mp.weixin.qq.com/s?__biz=MzIxMzM1NDc4Mg==&amp;mid=2247484438&amp;idx=1&amp;sn=15effae2ca4fb889afc958c97c11ebfd
+
+=======
+
+《每日文章精选 2020-08-06》 https://t.me/daily_read 
+
+1. 【究竟谁应该入选奥运会女子游泳代表队？】https://www.douban.com/note/773088038
+
+2. 【女性群像剧中的“姐妹情谊”：含情脉脉背后的阶层破绽】https://www.thepaper.cn/newsDetail_forward_8505634
+
+3. 【漫展上的制服与偷窥：是女生有伤风化，还是男性偷拍有错？】http://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247499375&amp;idx=1&amp;sn=471e731f2b64b00e7fdb36ca81336f90
+
+4. 【如果可以，我希望成功学能滚出这个银河系】http://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&amp;mid=2653078932&amp;idx=1&amp;sn=1c76a831f28b402ba30b0084cbbac6d6
+
+5. 【“985废物”的自述 | 阶级创伤如何影响我们的人生？】https://www.douban.com/note/772887593
