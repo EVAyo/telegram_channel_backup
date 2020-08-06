@@ -8134,3 +8134,17 @@ http://news.mit.edu/2020/masks-mandates-impact-deaths-0805
 
 【看到的时候还有，按下...】
 看到的时候还有，按下转发键时已经整串被删……怎么说呢，某国为维护主权致力于从国际社会脱钩，十四亿人就被发射上了太空。留下的都是影子和替身使者。Nixon说「世界不能承受中国长期处于国际社会之外」，到了西元202年终于发现某国已经举国升空，新铁幕表示既然无可挽回那我不如助你隔绝。这就是正在内循环中的比邻星记事。 http://www.douban.com/people/211451118/status/3055332244
+
+=======
+
+《每日文章精选 2020-08-06》 https://t.me/daily_read 
+
+1. 【究竟谁应该入选奥运会女子游泳代表队？】https://www.douban.com/note/773088038
+
+2. 【女性群像剧中的“姐妹情谊”：含情脉脉背后的阶层破绽】https://www.thepaper.cn/newsDetail_forward_8505634
+
+3. 【漫展上的制服与偷窥：是女生有伤风化，还是男性偷拍有错？】http://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247499375&amp;idx=1&amp;sn=471e731f2b64b00e7fdb36ca81336f90
+
+4. 【“985废物”的自述 | 阶级创伤如何影响我们的人生？】https://www.douban.com/note/772887593
+
+5. 【机会推荐 | ​2020 LADIES WHO TECH年度大会】http://mp.weixin.qq.com/s?__biz=MzIxMzM1NDc4Mg==&amp;mid=2247484438&amp;idx=1&amp;sn=15effae2ca4fb889afc958c97c11ebfd
