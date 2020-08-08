@@ -8148,3 +8148,51 @@ http://news.mit.edu/2020/masks-mandates-impact-deaths-0805
 4. 【“985废物”的自述 | 阶级创伤如何影响我们的人生？】https://www.douban.com/note/772887593
 
 5. 【机会推荐 | ​2020 LADIES WHO TECH年度大会】http://mp.weixin.qq.com/s?__biz=MzIxMzM1NDc4Mg==&amp;mid=2247484438&amp;idx=1&amp;sn=15effae2ca4fb889afc958c97c11ebfd
+
+=======
+
+《每日文章精选 2020-08-08》 https://t.me/daily_read 
+
+1. 【专访历史学家埃文斯（上）丨纳粹上台是德国人民的选择吗？】https://www.thepaper.cn/newsDetail_forward_8591490
+
+2. 【超越性教育：电视剧Sex Education在educate什么？】http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247487618&amp;idx=3&amp;sn=48e25333dec5d3b1af5590b239accead
+
+3. 【有一种性幻想，叫“强奸幻想”】http://mp.weixin.qq.com/s?__biz=MTg1MjI3MzY2MQ==&amp;mid=2651737395&amp;idx=1&amp;sn=90a862e4b2d8474b015c0de77107bc88
+
+4. 【对话学者林垚：说言论自由被“政治正确”侵害是过度夸大了】http://mp.weixin.qq.com/s?__biz=MjM5MzczMTE5NA==&amp;mid=2649789769&amp;idx=1&amp;sn=f004f7afbc4c609c7430bdc4ac492edb
+
+5. 【谁在为避孕买单？医保药品目录剔除避孕药引争议】http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153586&amp;idx=1&amp;sn=81fbc33c60487b9eb6f7237d436c9290
+
+=======
+
+每日文章精选
+
+【青砖黛瓦是江南】
+青砖黛瓦是江南 不见故人伞 http://m.weibo.cn/status/JeDa6ozBL
+
+【The rise and fall of the Celtic warriors - Philip Freeman】
+http://ed.ted.com/lessons/the-rise-and-fall-of-the-celtic-warriors-philip-freeman
+
+【世界奇奇怪怪，小孩子...】
+世界奇奇怪怪，小孩子可可爱爱~ http://www.douban.com/people/103247213/status/2986464780
+
+【Why should you read “Crime and Punishment”? - Alex Gendler】
+https://ed.ted.com/lessons/why-should-you-read-crime-and-punishment-alex-gendler
+
+【超越性教育：电视剧Sex Education在educate什么？】
+http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247487618&amp;idx=3&amp;sn=48e25333dec5d3b1af5590b239accead
+
+【选举、修宪、金权：李登辉与台湾的90年代】
+https://opinion.cw.com.tw/blog/profile/390/article/9748
+
+【汪浩／两国论vs.一个中国？那些年，被中美夹攻的李登辉】
+https://opinion.udn.com/opinion/story/11664/4744624?fbclid=IwAR3cVMfQzldc6QbaTJwnCgq8B2GN74B_1USejxM4k0W8XBxb_ika9jfTbSM
+
+【不管五条人六条人，为工人发声的都是好人】
+http://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&amp;mid=2653078915&amp;idx=1&amp;sn=c881ec9c79793ba2919c4e31079e0c3f
+
+【【精选书摘】一条水管如何谋害海洋？公主游轮甲板下的污染罪行与平行世界】
+https://www.twreporter.org/a/bookreview-the-outlaw-ocean-princess-cruises-waste-away
+
+【【投书】奋力擦亮失真的镜子：从台剧《镜子森林》看媒体乱世中的理想与现实】
+https://opinion.cw.com.tw/blog/profile/52/article/9745
