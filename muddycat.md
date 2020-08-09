@@ -334,3 +334,7 @@ https://telegra.ph/NeitherNor-08-08
 数据：贫富差距越大，保守党派就越倾向于激化种族歧视。
 
 https://telegra.ph/How-inequality-is-changing-the-Republican-Party--and-breaking-American-politics-08-06-2
+
+=======
+
+Google Play 不能入中国，养大了微信小程序平台。
