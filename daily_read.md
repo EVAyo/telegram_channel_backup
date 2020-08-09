@@ -8244,3 +8244,17 @@ What a WeChat ban would mean for Americans https://www.cnn.com/2020/08/08/tech/w
 
 【Here’s Something We Can Learn From the Urban Fox】
 https://t.me/pincongessence ｜ https://www.bloomberg.com/opinion/articles/2020-06-13/urban-foxes-are-evolving-that-s-good-for-homo-sapiens
+
+=======
+
+《每日文章精选 2020-08-09》 https://t.me/daily_read 
+
+1. 【你一辈子都不愿进的工厂，是村小孩子的人生理想】http://mp.weixin.qq.com/s?__biz=MjM5ODMzMDMyMw==&mid=2653269723&idx=1&sn=1fe8fbc6638128ad939a7228b857eda7
+
+2. 【Welcome to Chechnya】http://mp.weixin.qq.com/s?__biz=MzI1MDEzMTQyMQ==&amp;mid=2656211381&amp;idx=1&amp;sn=dd6acecfe59d9adb76a9a48179fe1027
+
+3. 【移民时代丨流动中的项目制移民工：不落“地”的世界旅人】https://www.thepaper.cn/newsDetail_forward_8622985
+
+4. 【专访历史学家埃文斯（上）丨纳粹上台是德国人民的选择吗？】https://www.thepaper.cn/newsDetail_forward_8591490
+
+5. 【对话学者林垚：说言论自由被“政治正确”侵害是过度夸大了】http://mp.weixin.qq.com/s?__biz=MjM5MzczMTE5NA==&amp;mid=2649789769&amp;idx=1&amp;sn=f004f7afbc4c609c7430bdc4ac492edb
