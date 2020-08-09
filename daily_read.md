@@ -8196,3 +8196,51 @@ https://www.twreporter.org/a/bookreview-the-outlaw-ocean-princess-cruises-waste-
 
 【【投书】奋力擦亮失真的镜子：从台剧《镜子森林》看媒体乱世中的理想与现实】
 https://opinion.cw.com.tw/blog/profile/52/article/9745
+
+=======
+
+《每日文章精选 2020-08-08》 https://t.me/daily_read 
+
+1. 【移民时代丨流动中的项目制移民工：不落“地”的世界旅人】https://www.thepaper.cn/newsDetail_forward_8622985
+
+2. 【专访历史学家埃文斯（上）丨纳粹上台是德国人民的选择吗？】https://www.thepaper.cn/newsDetail_forward_8591490
+
+3. 【对话学者林垚：说言论自由被“政治正确”侵害是过度夸大了】http://mp.weixin.qq.com/s?__biz=MjM5MzczMTE5NA==&amp;mid=2649789769&amp;idx=1&amp;sn=f004f7afbc4c609c7430bdc4ac492edb
+
+4. 【绘画女性裸体属散布猥亵物品？　俄女宣扬女性自主被捕或囚6年】http://mp.weixin.qq.com/s?__biz=MzI3NjU0MzMwOQ==&amp;mid=2247490949&amp;idx=2&amp;sn=b763f11a9336697256ae32144254acfa
+
+5. 【他们不仅擅自定义女人味，还想规定女性应该穿什么】http://mp.weixin.qq.com/s?__biz=MjM5NDIzMzU4MA==&amp;mid=2649882008&amp;idx=1&amp;sn=8a86939df5c2db04bbcc1e71faa8212f
+
+=======
+
+每日文章精选
+
+【Allan G. Johnson《性别打结》摘抄】
+这种选择性地让男性不被看见，形塑了我们理解、思考性别议题的方向。例如性别压迫常常被当成是女性议题来讨论，而非男性议题，这使得男性性别不被看见成为一大问题，当女人奋力反对性别压迫时，她们成为「特殊利益团体」。 而男人没有反对性别压迫，男人间接或直接地从性别压迫中获益，但他们却从未被视为是一个利益集体。不论是工作歧视、性骚扰或是暴力 ，性别议题总被视为是处理女性的问题，那个受害的类别。性别议题很少被视为是处理男性的问题 ，那个实际上运行加害的类别，而他们的特权根基于同一个促成压迫女性的体系。 https://threadreaderapp.com/thread/1289172425066704896.html
+
+【世界奇奇怪怪，小孩子...】
+世界奇奇怪怪，小孩子可可爱爱~ http://www.douban.com/people/103247213/status/2986464780
+
+【【为什么没有人告诉你...】
+【为什么没有人告诉你，女性服药可能需要减半？】“本来可以预防心脏病的药物， 实际上可能会触发女性心脏病发作”？我们以为，药物都是本着严谨科学的态度生产的，一定是十分可靠的。但事实上，它们的“可靠性”或许只适用于30岁、体重70千克的白人男性。因为有时候，只有他们会被作为实验的对象。而这一“减少研究成本”的举措，或许会给女性带来许多意想不到的伤害。 http://m.weibo.cn/status/JecV8uxO6
+
+【梁鹤年 | 美国梦是“强者自由逐利”的梦】
+我清楚记得，他和妈妈详细地、亲切地叮嘱我，遇到警察截停时应该怎样应对。当然，我遇到警察截停的概率远远超过跟我同年纪的白人孩子。 一天，妈妈在路旁停车去给他买冰淇淋，BO就站在门口等着。来了两个警察，说BO在街上游荡，有不良企图，要把他带回警局。妈妈出来了，看见情景，就对警察说：“这是我儿子。”警察看看金发、蓝眼的她，摇摇头，坚持要带BO走，要她拿证据去警局保释。这样的事情就发生在哈佛大学与麻省理工学院所在的剑桥市。 http://www.gzhshoulu.wang/article/1002416980
+
+【如何激怒一个左派？】
+劳务报酬所得税的起征点是800元，因此会在超过800元的部分收取20%的所得税。一共1400块钱，这样要报120块的税非常肉疼。相比之下，我们研究生的收入（“补助”）的个税免征额是5000元，起征税率也只有3%，因此不会受到类似问题的影响。（反正我们的补助也到不了5000块） [知乎] https://www.zhihu.com/question/68674983/answer/1390227552 [相关] https://www.zhihu.com/question/23702360
+
+【青砖黛瓦是江南】
+青砖黛瓦是江南 不见故人伞 http://m.weibo.cn/status/JeDa6ozBL
+
+【他们不仅擅自定义女人味，还想规定女性应该穿什么】
+http://mp.weixin.qq.com/s?__biz=MjM5NDIzMzU4MA==&amp;mid=2649882008&amp;idx=1&amp;sn=8a86939df5c2db04bbcc1e71faa8212f
+
+【【精选书摘】一条水管如何谋害海洋？公主游轮甲板下的污染罪行与平行世界】
+https://www.twreporter.org/a/bookreview-the-outlaw-ocean-princess-cruises-waste-away
+
+【What a WeC...】
+What a WeChat ban would mean for Americans https://www.cnn.com/2020/08/08/tech/wechat-chinese-americans-trump/index.html
+
+【Here’s Something We Can Learn From the Urban Fox】
+https://t.me/pincongessence ｜ https://www.bloomberg.com/opinion/articles/2020-06-13/urban-foxes-are-evolving-that-s-good-for-homo-sapiens
