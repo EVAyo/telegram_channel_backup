@@ -8258,3 +8258,37 @@ https://t.me/pincongessence ｜ https://www.bloomberg.com/opinion/articles/2020-
 4. 【专访历史学家埃文斯（上）丨纳粹上台是德国人民的选择吗？】https://www.thepaper.cn/newsDetail_forward_8591490
 
 5. 【对话学者林垚：说言论自由被“政治正确”侵害是过度夸大了】http://mp.weixin.qq.com/s?__biz=MjM5MzczMTE5NA==&amp;mid=2649789769&amp;idx=1&amp;sn=f004f7afbc4c609c7430bdc4ac492edb
+
+=======
+
+每日文章精选
+
+【【精选书摘】当《背离亲缘》作者被「正午恶魔」纠缠20年：你必须在精神状态很好时，才能不在乎忧郁症污名】
+https://www.twreporter.org/a/bookreview-the-noonday-demon-an-atlas-of-depression
+
+【【获奖恐怖短片《弑镜...】
+【获奖恐怖短片《弑镜》】女演员一镜到底的演技太牛逼了！结尾高能反转！ 故事讲述女演员 Lili 终于赢来了一次试镜的机会，在她努力尝试每一种表演风格的同时，却不知道镜头后的导演在盘算着什么… http://m.weibo.cn/status/JeLzoqCLb
+
+【选举、修宪、金权：李登辉与台湾的90年代】
+https://opinion.cw.com.tw/blog/profile/390/article/9748
+
+【有路人日前在伦敦的运...】
+有路人日前在伦敦的运河边拍到岸上神秘地出现了一位芭蕾舞者，伴着圣桑的“天鹅”为路人跳了一曲，继而又神秘地消失。没有人知道她的名字，但无论如何，感谢她在压抑的时代给大家带来一刻的慰藉。 http://m.weibo.cn/status/JdIvdo1p3
+
+【Why should you read Dante’s “Divine Comedy”? - Sheila Marie Orfano】
+https://ed.ted.com/lessons/why-should-you-read-dante-s-divine-comedy-sheila-marie-orfano
+
+【绘画女性裸体属散布猥亵物品？　俄女宣扬女性自主被捕或囚6年】
+http://mp.weixin.qq.com/s?__biz=MzI3NjU0MzMwOQ==&amp;mid=2247490949&amp;idx=2&amp;sn=b763f11a9336697256ae32144254acfa
+
+【【为什么没有人告诉你...】
+【为什么没有人告诉你，女性服药可能需要减半？】“本来可以预防心脏病的药物， 实际上可能会触发女性心脏病发作”？我们以为，药物都是本着严谨科学的态度生产的，一定是十分可靠的。但事实上，它们的“可靠性”或许只适用于30岁、体重70千克的白人男性。因为有时候，只有他们会被作为实验的对象。而这一“减少研究成本”的举措，或许会给女性带来许多意想不到的伤害。 http://m.weibo.cn/status/JecV8uxO6
+
+【青砖黛瓦是江南】
+青砖黛瓦是江南 不见故人伞 http://m.weibo.cn/status/JeDa6ozBL
+
+【这个帖子分析某些甜宠...】
+这个帖子分析某些甜宠文里的男女主关系十分在理儿。多少姑娘把被当宠物养误解为疼爱，还“高甜！”向往着现实中也能有这样一个人来“宠”自己。看看这篇醒醒脑子呗。 http://m.weibo.cn/status/JfaIuqFlE
+
+【“人无法通过不正义的...】
+“人无法通过不正义的手段实现正义的目标，因为手段是种子，而目的是树。” “一次犯罪不过污染了水流，而一次不公正的司法却污染了水源。” 尊重程序正义，远离刑讯逼供。 http://m.weibo.cn/status/JeWQOstLT
