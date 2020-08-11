@@ -338,3 +338,7 @@ https://telegra.ph/How-inequality-is-changing-the-Republican-Party--and-breaking
 =======
 
 Google Play 不能入中国，养大了微信小程序平台。
+
+=======
+
+http://dikaioslin.blogspot.com/2018/07/political-correctness-freedom-of-speech.html

@@ -8326,3 +8326,37 @@ http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247487618&amp;idx=3&am
 
 【無法迴避的浪潮 | 中國#MeToo調查全記錄】
 https://theinitium.com/project/20181021-metoo-in-china
+
+=======
+
+每日文章精选
+
+【来涨姿势了！#专业大...】
+来涨姿势了！#专业大佬科普# 电影拍摄现场的摄影操作员如何运用镜头来打造不同的气氛，镜头角度，运镜手法一变，情绪完全不同了，太神奇了！感觉日常拍照摄影也可以用到，专业又实用！ http://m.weibo.cn/status/JeNxwDX2K
+
+【百忧解是抑郁症的最优解吗？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651427781&amp;idx=1&amp;sn=c2d26ec2ce9ef950ebf0d33c179a5ae5
+
+【8月8日，是中国现代...】
+8月8日，是中国现代气象史上一个极具纪念意义的特殊日期，发生了许多载入史册的天气大事件： 1、1975年8月8日凌晨，758河南暴雨导致板桥水库等多座水库溃坝，造成下游数万人死亡。 2、1988年8月8日，8807号台风凌晨偷袭杭州，造成浙江上千人伤亡和重大经济损失。 3、2009年8月8日，台风莫拉克引发台湾几十年来最惨重的“八八水灾”，死亡近七百人。 4、2010年8月7-8日，甘肃舟曲遭遇短时强降水引发的泥石流袭击，死亡失踪近两千人。 可以看到北方暴雨和南方台风是上述几场灾难的罪魁祸首。今年的8月8日虽然台风刚过、暴雨南移，但新一轮北方暴雨正在酝酿、西太平洋太平洋台风胚胎雏形初现，防汛防台压力一点也不轻松。 http://m.weibo.cn/status/JeSf8Ancb
+
+【【为什么没有人告诉你...】
+【为什么没有人告诉你，女性服药可能需要减半？】“本来可以预防心脏病的药物， 实际上可能会触发女性心脏病发作”？我们以为，药物都是本着严谨科学的态度生产的，一定是十分可靠的。但事实上，它们的“可靠性”或许只适用于30岁、体重70千克的白人男性。因为有时候，只有他们会被作为实验的对象。而这一“减少研究成本”的举措，或许会给女性带来许多意想不到的伤害。 http://m.weibo.cn/status/JecV8uxO6
+
+【How Could Human Nature Have Become This Politicized?】
+https://t.me/pincongessence ｜ https://www.nytimes.com/2020/07/08/opinion/trump-politics-psychology.html
+
+【已经丧心病狂了】
+已经丧心病狂了 http://m.weibo.cn/status/Jfjqo4VtC http://zh.wikipedia.org/wiki/%25E5%2591%25A8%25E5%25BA%25AD
+
+【我觉得我们都应该支持马泮艳】
+https://www.douban.com/note/773775985
+
+【美国政府限制使用微信三个层面的问题】
+https://link.medium.com/da9Gmvc5Q8
+
+【【白俄罗斯】明斯克！】
+【白俄罗斯】明斯克！ http://www.douban.com/people/206334353/status/3062116512 https://telete.in/freedom_watch/2579 https://telete.in/freedom_watch/2565 https://www.politico.com/news/2020/08/09/tainted-election-leads-to-lopsided-results-in-belarus-392911 【注】白俄罗斯独裁者卢卡申科选举作弊六次当选，明斯克大量民众上街抗议。
+
+【今年7月1日香港本地...】
+今年7月1日香港本地各大報章的A1頭條 ?q=%23%E6%92%90%E8%98%8B%E6%9E%9C ?q=%23AppleDaily ?q=%23%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1 ?q=%23%E5%9C%8B%E5%AE%89%E6%B3%95 ?q=%23%E4%BB%A5%E8%A8%80%E5%85%A5%E7%BD%AA ?q=%23%E6%94%BF%E6%B2%BB%E8%BF%AB%E5%AE%B3 ?q=%23%E9%BB%91%E8%AD%A6 ?q=%23%E6%96%B0%E8%81%9E%E8%87%AA%E7%94%B1 ?q=%23%E8%87%AA%E7%94%B1%E5%B7%B2%E6%AD%BB
