@@ -8360,3 +8360,17 @@ https://link.medium.com/da9Gmvc5Q8
 
 【今年7月1日香港本地...】
 今年7月1日香港本地各大報章的A1頭條 ?q=%23%E6%92%90%E8%98%8B%E6%9E%9C ?q=%23AppleDaily ?q=%23%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1 ?q=%23%E5%9C%8B%E5%AE%89%E6%B3%95 ?q=%23%E4%BB%A5%E8%A8%80%E5%85%A5%E7%BD%AA ?q=%23%E6%94%BF%E6%B2%BB%E8%BF%AB%E5%AE%B3 ?q=%23%E9%BB%91%E8%AD%A6 ?q=%23%E6%96%B0%E8%81%9E%E8%87%AA%E7%94%B1 ?q=%23%E8%87%AA%E7%94%B1%E5%B7%B2%E6%AD%BB
+
+=======
+
+《每日文章精选 2020-08-11》 https://t.me/daily_read 
+
+1. 【澎湃思想周报｜贝鲁特爆炸：“阿里巴巴和四十大盗的洞穴”】https://www.thepaper.cn/newsDetail_forward_8652018
+
+2. 【专访｜林垚：自相矛盾的公开信与取消文化的正当性】http://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&amp;mid=2247488514&amp;idx=1&amp;sn=ec2f420a89cad09bde36a70542baa462
+
+3. 【你一辈子都不愿进的工厂，是村小孩子的人生理想】http://mp.weixin.qq.com/s?__biz=MjM5ODMzMDMyMw==&mid=2653269723&idx=1&sn=1fe8fbc6638128ad939a7228b857eda7
+
+4. 【Welcome to Chechnya】http://mp.weixin.qq.com/s?__biz=MzI1MDEzMTQyMQ==&amp;mid=2656211381&amp;idx=1&amp;sn=dd6acecfe59d9adb76a9a48179fe1027
+
+5. 【如何激怒一个左派？】https://www.zhihu.com/question/68674983/answer/1390227552
