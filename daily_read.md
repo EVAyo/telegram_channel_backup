@@ -8408,3 +8408,37 @@ https://www.newyorker.com/magazine/2020/08/17/how-china-controlled-the-coronavir
 
 【明斯克，选举后的第二...】
 明斯克，选举后的第二晚。真的比当时基辅暴力得多，已经承认开始杀人，据说被杀的那个试图向警察投掷爆炸装置，抗议者说是烟花。 http://m.weibo.cn/status/JfumpjZtK
+
+=======
+
+每日文章精选
+
+【选举、修宪、金权：李登辉与台湾的90年代】
+https://opinion.cw.com.tw/blog/profile/390/article/9748
+
+【来涨姿势了！#专业大...】
+来涨姿势了！#专业大佬科普# 电影拍摄现场的摄影操作员如何运用镜头来打造不同的气氛，镜头角度，运镜手法一变，情绪完全不同了，太神奇了！感觉日常拍照摄影也可以用到，专业又实用！ http://m.weibo.cn/status/JeNxwDX2K
+
+【女性不擅长军事吗？来看看全世界如何回答】
+目前英、法、德的防长全部是女性。 https://m.weibo.cn/detail/4536337733002059
+
+【不正确的记忆（一）】
+中国的公民记者卢昱宇4年前因创办专门纪录维权事件的平台“非新闻”而被中国当局以“寻衅滋事”罪判刑四年。他上个月中获释出狱，居住于贵州。他在接受德国之声访问时表示，随着中国大环境越来越糟，国内已无空间继续从事维权行动，得靠境外人士来延续。 https://matters.news/%40darkmamu/%25E4%25B8%258D%25E6%25AD%25A3%25E7%25A1%25AE%25E7%259A%2584%25E8%25AE%25B0%25E5%25BF%2586-%25E4%25B8%2580-bafyreiczqpzqisty2p2gswamic4ucshilj2foxay4btzwc2nmwsl5rcvle http://www.dw.com/zh/%25E4%25B8%2593%25E8%25AE%25BF%25E4%25B8%25AD%25E5%259B%25BD%25E5%25B7%25B2%25E6%2597%25A0%25E7%25A9%25BA%25E9%2597%25B4%25E7%25BB%25A7%25E7%25BB%25AD%25E4%25BB%258E%25E4%25BA%258B%25E7%25BB%25B4%25E6%259D%2583%25E8%25A1%258C%25E5%258A%25A8/a-54212328
+
+【专访社会学者田丰：“三和大神”为何会引起全国青年的共鸣？】
+https://m.allhistory.com/ah/article/5f33a9cd550c6f0001804caf
+
+【濒危的松茸，能实现可持续采集吗？】
+https://www.douban.com/note/773995423
+
+【百忧解是抑郁症的最优解吗？】
+http://mp.weixin.qq.com/s?__biz=MzI0MjI1NTgxNQ==&amp;mid=2651427781&amp;idx=1&amp;sn=c2d26ec2ce9ef950ebf0d33c179a5ae5
+
+【首席大法官虚假的程序诉求】
+http://www.douban.com/note/508955879
+
+【最爱的，还是这人间烟...】
+最爱的，还是这人间烟火 丨摄影 http://m.weibo.cn/status/JfH9xjJUQ
+
+【#社会】
+?q=%23%E7%A4%BE%E4%BC%9A ?q=%23%E6%96%B0%E9%97%BB ?q=%23%E8%A8%80%E8%AE%BA%E8%87%AA%E7%94%B1 ?q=%23%E4%B8%AD%E5%9B%BD%E6%94%BF%E5%BA%9C 贝鲁特港大爆炸后，黎巴嫩人民走上街头，要求改变，天津港爆炸后，人民和政府做了什么呢？
