@@ -8442,3 +8442,37 @@ http://www.douban.com/note/508955879
 
 【#社会】
 ?q=%23%E7%A4%BE%E4%BC%9A ?q=%23%E6%96%B0%E9%97%BB ?q=%23%E8%A8%80%E8%AE%BA%E8%87%AA%E7%94%B1 ?q=%23%E4%B8%AD%E5%9B%BD%E6%94%BF%E5%BA%9C 贝鲁特港大爆炸后，黎巴嫩人民走上街头，要求改变，天津港爆炸后，人民和政府做了什么呢？
+
+=======
+
+每日文章精选
+
+【商业房贷利率可以二选...】
+商业房贷利率可以二选一，那么LPR利率和固定利率哪个合算？LPR利率是什么？哪一种方式对你以后的贷款更有利？ http://m.weibo.cn/status/JfzLfqq2H
+
+【刑讯逼供之下，你“招”还是“不招”？】
+https://mp.weixin.qq.com/s/OI9Cd9LNhvsyedj259jr4Q
+
+【问答四则：处女情结、仲大军打人、物极必反、城市歌曲】
+在恩格斯提出唯物辩证法之后，列宁、卢卡奇等人各自根据自己的理解做过质量或好或坏的阐发，最终在1930年代由斯大林「集大成」，授意属下的御用文人写出《辩证与历史唯物主义》、《联共（布）党史简明教程》等意识形态通俗小册子及其它教科书，将被斯大林庸俗化了的唯物辩证法作为苏联义务教育内容的一部分。中国很长一段时间里在意识形态上对苏联老大哥亦步亦趋；即便中苏决裂后，出于种种原因，哲学普及教育仍然因循守旧，以至于「物极必反是事物变化的普遍原理」之类教条迄今流害无穷。 https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247484004&idx=1&sn=13bc4338b912d35405fa560be14f0490
+
+【女性不擅长军事吗？来看看全世界如何回答】
+目前英、法、德的防长全部是女性。 https://m.weibo.cn/detail/4536337733002059
+
+【冷冻食品染新冠病毒 世卫: 不用害怕】
+DW 中文- 德国之声 | 世卫紧急项目执行主任瑞安：在新冠肺炎大流行期间，人们已经够害怕和恐惧了......大家不应该害怕食品、食品包装或食品的运送。 http://p.dw.com/p/3gwWe
+
+【Immigration Nation | Netflix Official Site】
+《 https://www.netflix.com/watch/81001615 》会让很多人重新反省美国的价值观和当局的一些政策。甚至会让不少美国人觉得羞耻。也难怪当局想要禁止该片的播出了。
+
+【#社会】
+?q=%23%E7%A4%BE%E4%BC%9A ?q=%23%E6%96%B0%E9%97%BB ?q=%23%E8%A8%80%E8%AE%BA%E8%87%AA%E7%94%B1 ?q=%23%E4%B8%AD%E5%9B%BD%E6%94%BF%E5%BA%9C 贝鲁特港大爆炸后，黎巴嫩人民走上街头，要求改变，天津港爆炸后，人民和政府做了什么呢？
+
+【有路人日前在伦敦的运...】
+有路人日前在伦敦的运河边拍到岸上神秘地出现了一位芭蕾舞者，伴着圣桑的“天鹅”为路人跳了一曲，继而又神秘地消失。没有人知道她的名字，但无论如何，感谢她在压抑的时代给大家带来一刻的慰藉。 http://m.weibo.cn/status/JdIvdo1p3
+
+【Why should you read Dante’s “Divine Comedy”? - Sheila Marie Orfano】
+https://ed.ted.com/lessons/why-should-you-read-dante-s-divine-comedy-sheila-marie-orfano
+
+【【精选书摘】当《背离亲缘》作者被「正午恶魔」纠缠20年：你必须在精神状态很好时，才能不在乎忧郁症污名】
+https://www.twreporter.org/a/bookreview-the-noonday-demon-an-atlas-of-depression
