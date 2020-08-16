@@ -342,3 +342,11 @@ Google Play 不能入中国，养大了微信小程序平台。
 =======
 
 http://dikaioslin.blogspot.com/2018/07/political-correctness-freedom-of-speech.html
+
+=======
+
+首先，很多人对文革的理解局限于中共官方说法，把所有错误归结到造反派，这是错误的。中共政府制造了四分之三的死亡记录，以及90%的政治迫害。
+
+参考资料： https://t.me/muddycat/84
+https://t.me/equality_and_rights/7241
+https://t.me/freedom_watch/2332
