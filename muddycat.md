@@ -350,3 +350,11 @@ http://dikaioslin.blogspot.com/2018/07/political-correctness-freedom-of-speech.h
 参考资料： https://t.me/muddycat/84
 https://t.me/equality_and_rights/7241
 https://t.me/freedom_watch/2332
+
+=======
+
+当代资本主义的运行逻辑已经发生了根本的改变，它的弹性和渗透能力大大增强，让自上而下的领导和组织变得极其困难，却为大众的自发反抗提供了丰富的可能性。他们将抗争的主体定义为“诸众”（Multitude），也就是复杂多样、遍地开花的大众，而不是传统意义上的任何一个“阶级”，更不是号称代表特定阶级的政党和工会。在他们看来，任何特定的人群都不应该在抗争中占据“先锋”或“主体”的地位，抗争必须是属于大众自己的运动。“诸众”中的每一分子都有权自主决定参与抗争的形式，都有权用自己的方式论述抗争的意义。 https://telegra.ph/%E8%BF%99%E5%9C%BA%E8%BF%90%E5%8A%A8%E5%B1%9E%E4%BA%8E%E6%89%80%E6%9C%89%E4%BA%BA%E5%BD%93%E4%BB%A3%E5%85%A8%E7%90%83%E7%A4%BE%E8%BF%90%E7%9A%84%E6%97%A0%E6%94%BF%E5%BA%9C%E4%B8%BB%E4%B9%89%E8%BD%AC%E5%90%91-08-14
+
+=======
+
+大家怎么看这篇文章？

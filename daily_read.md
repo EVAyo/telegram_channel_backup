@@ -8490,3 +8490,17 @@ https://www.twreporter.org/a/bookreview-the-noonday-demon-an-atlas-of-depression
 4. 【“文艺女性”数据报告：性别歧视下的女性文学长跑】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247485595&amp;idx=3&amp;sn=51780c57d876cf0fc03c1177c2005221
 
 5. 【【新京报】新一代农民工“反工厂文化”：“三和大神”的是是非非，勾连起中国发展问题的角落】http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497148&amp;idx=1&amp;sn=26419dd008dd60635b32486254aa64b6
+
+=======
+
+《每日文章精选 2020-08-16》 https://t.me/daily_read 
+
+1. 【《三十而已》诠释“女性独立”换汤不换药：浪漫奇迹、消费与阶级上升】http://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652153493&amp;idx=1&amp;sn=81f2b04c4974ced4722e8b2efcac64e6
+
+2. 【一键之劳，让“强奸”到“性侵犯”｜完善性犯罪刑法行动起来】http://mp.weixin.qq.com/s?__biz=MzUzMTk0ODgwOQ==&amp;mid=2247485373&amp;idx=1&amp;sn=48d0076d2a98026f704a80644743c259
+
+3. 【一位“异类”女演员的求生路：“我不愿再苦苦等待” | FIRST影展系列报道】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247485986&amp;idx=3&amp;sn=2f3f0b7f50f270f72764aea59d41b383
+
+4. 【“文艺女性”数据报告：性别歧视下的女性文学长跑】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247485595&amp;idx=3&amp;sn=51780c57d876cf0fc03c1177c2005221
+
+5. 【【新京报】新一代农民工“反工厂文化”：“三和大神”的是是非非，勾连起中国发展问题的角落】http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497148&amp;idx=1&amp;sn=26419dd008dd60635b32486254aa64b6
