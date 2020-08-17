@@ -8504,3 +8504,17 @@ https://www.twreporter.org/a/bookreview-the-noonday-demon-an-atlas-of-depression
 4. 【“文艺女性”数据报告：性别歧视下的女性文学长跑】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247485595&amp;idx=3&amp;sn=51780c57d876cf0fc03c1177c2005221
 
 5. 【【新京报】新一代农民工“反工厂文化”：“三和大神”的是是非非，勾连起中国发展问题的角落】http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497148&amp;idx=1&amp;sn=26419dd008dd60635b32486254aa64b6
+
+=======
+
+《每日文章精选 2020-08-17》 https://t.me/daily_read 
+
+1. 【专访社会学家潘毅：离不开苹果的我们，可以为富士康工人做什么？】http://cnpolitics.org/2017/09/what-can-we-do-for-the-workers-who-work-for-apple
+
+2. 【“占领华尔街”运动留下了什么遗产？】http://cnpolitics.org/2017/11/occupy-wall-street
+
+3. 【“这场运动属于所有人”：当代全球社运的“无政府主义转向”】http://cnpolitics.org/2017/11/anarchy
+
+4. 【土耳其政变一周年：昔日的“中东之光”如何一步步走到今天？】http://cnpolitics.org/2017/07/the-fall-of-the-turkish-model
+
+5. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
