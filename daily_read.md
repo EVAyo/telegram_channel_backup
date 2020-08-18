@@ -8518,3 +8518,7 @@ https://www.twreporter.org/a/bookreview-the-noonday-demon-an-atlas-of-depression
 4. 【土耳其政变一周年：昔日的“中东之光”如何一步步走到今天？】http://cnpolitics.org/2017/07/the-fall-of-the-turkish-model
 
 5. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
+
+=======
+
+每日文章精选
