@@ -447,3 +447,15 @@ https://telegra.ph/%E4%B8%AD%E7%BE%8E%E5%AF%B9%E5%B3%99%E4%B8%AD%E6%88%91%E4%BB%
 =======
 
 https://t.me/LiberalegalitarianisminChinese/2281
+
+=======
+
+https://telegra.ph/%E8%A7%82%E7%82%B9--%E8%BA%AB%E4%BB%BD%E6%94%BF%E6%B2%BB%E5%9C%A8%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E4%BE%B5%E8%9A%80%E4%BD%9C%E7%94%A8%E7%9A%84%E5%8A%9B%E9%87%8F-08-20 | source 
+
+【不同意见】言论自由边界的缩小和变动是两个问题。 我们应该考察的是言论自由的边界有没有划得很恰当，还有这个边界有没有缩减。 https://telegra.ph/%E5%AF%B9%E8%AF%9D%E5%AD%A6%E8%80%85%E6%9E%97%E5%9E%9A%E8%AF%B4%E8%A8%80%E8%AE%BA%E8%87%AA%E7%94%B1%E8%A2%AB%E6%94%BF%E6%B2%BB%E6%AD%A3%E7%A1%AE%E4%BE%B5%E5%AE%B3%E6%98%AF%E8%BF%87%E5%BA%A6%E5%A4%B8%E5%A4%A7%E4%BA%86-08-07 
+
+【评】右派的宗教话语，国家话语专权是老牌的“政治正确”，但常常被忽略。
+
+=======
+
+大家怎么看？

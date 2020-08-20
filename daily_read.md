@@ -8552,3 +8552,17 @@ http://mp.weixin.qq.com/s?__biz=MzU3Njk2MzgyOA==&amp;mid=2247484007&amp;idx=1&am
 
 【【乌鲁木齐】2020...】
 【乌鲁木齐】2020年8月，在这里，你可以死于自杀、难产、癌症、误吞玻璃球，就是不能死于新冠。 星星峡以西，禁止死于新冠。 http://m.weibo.cn/status/Jg9X3ghAD
+
+=======
+
+《每日文章精选 2020-08-20》 https://t.me/daily_read 
+
+1. 【三和青年与黑中介：记两次跳楼事件 | 正午书架】https://mp.weixin.qq.com/s/nnNO0zKykz_wLYurIkIneg
+
+2. 【对孩子进行多元性别教育，会使孩子变成同性恋？】http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247487903&amp;idx=2&amp;sn=be4a5242b8ec1d9e8ccec4953edcd217
+
+3. 【男人们和洗脚水到底什么仇什么怨？】https://www.douban.com/note/774784206
+
+4. 【别把你的镜头对准姐姐们的裙底】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247512902&amp;idx=1&amp;sn=fbe2d2e420f3a8e46825095333f44b72
+
+5. 【在美国做穷人是什么样的体验】https://www.douban.com/note/774860803
