@@ -8566,3 +8566,37 @@ http://mp.weixin.qq.com/s?__biz=MzU3Njk2MzgyOA==&amp;mid=2247484007&amp;idx=1&am
 4. 【别把你的镜头对准姐姐们的裙底】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247512902&amp;idx=1&amp;sn=fbe2d2e420f3a8e46825095333f44b72
 
 5. 【在美国做穷人是什么样的体验】https://www.douban.com/note/774860803
+
+=======
+
+每日文章精选
+
+【汪浩／两国论vs.一个中国？那些年，被中美夹攻的李登辉】
+https://opinion.udn.com/opinion/story/11664/4744624?fbclid=IwAR3cVMfQzldc6QbaTJwnCgq8B2GN74B_1USejxM4k0W8XBxb_ika9jfTbSM
+
+【冷冻食品染新冠病毒 世卫: 不用害怕】
+DW 中文- 德国之声 | 世卫紧急项目执行主任瑞安：在新冠肺炎大流行期间，人们已经够害怕和恐惧了......大家不应该害怕食品、食品包装或食品的运送。 http://p.dw.com/p/3gwWe
+
+【三和青年与黑中介：记两次跳楼事件 | 正午书架】
+他们能够发出声音的渠道实在有限，屡次的跳楼成为一种闹剧，成了无奈的三和青年以极端方式抗争的一种表演。 https://mp.weixin.qq.com/s/nnNO0zKykz_wLYurIkIneg
+
+【有路人日前在伦敦的运...】
+有路人日前在伦敦的运河边拍到岸上神秘地出现了一位芭蕾舞者，伴着圣桑的“天鹅”为路人跳了一曲，继而又神秘地消失。没有人知道她的名字，但无论如何，感谢她在压抑的时代给大家带来一刻的慰藉。 http://m.weibo.cn/status/JdIvdo1p3
+
+【一个农村老人自杀的平静与惨烈】
+一个在外打工的儿子请7天假回家，看望病危的父亲。两三天过去，发现父亲没有要死的迹象，这个儿子就问父亲：“你到底死不死啊？我就请了7天假，是把做丧事的时间都算进来的。”老人随后自杀，儿子赶在一周内办完丧事，回城继续打工。 https://www.sohu.com/a/220069097_401596
+
+【Immigration Nation | Netflix Official Site】
+《 https://www.netflix.com/watch/81001615 》会让很多人重新反省美国的价值观和当局的一些政策。甚至会让不少美国人觉得羞耻。也难怪当局想要禁止该片的播出了。
+
+【社区性侵犯第一线的监控者──在威吓与人情间游移的观护人】
+《违宪边缘的治疗之网──台湾性侵犯强制治疗争议》 性犯罪在每个社会与文化中都被置于强烈检视的核心，从2010年台湾的「白玫瑰运动」，万人上街抗议恐龙法官轻判女童性侵案，到2017年后从社交媒体迅速蔓延国际的「MeToo运动」，在创伤叙事中重新建构出受害者的主体性，从在地到国际，一波波对于性暴力事件的控诉愈加激昂。 在勇于发声或沉冤待雪的「受害者」背后，「加害者」的模糊暗影，几乎只有恶狼般狰狞的面貌。在讲求证据法则的法律审判中，往往因为性侵案件事实认定不易、证据力不足等因素，难构成定罪条件，更加深民众普遍对于司法纵放性侵犯，无能为受害者主持正义的印象。 早在20年多前，为了因应这股对于性侵案件「零容忍」的民意，台湾制订出一套针对性侵犯的治疗制度，犹如在司法处遇之外，再多设一道严格的「安全阀」，希望达到预防再犯、使妇幼人身安全更有保障的目的。历经数次修法，此一对于加害者的治疗制度堪称全世界最全面，然而，真的替社会抓出「恶狼」，并成功矫治他们了吗？ 1. https://www.twreporter.org/a/sex-offender-treatment-controversy-probation-officer 2. https://www.twreporter.org/a/sex-offender-treatment-controversy-counselling 3. https://www.twreporter.org/a/sex-offender-treatment-controversy-unconstitutional 4. https://www.twreporter.org/a/sex-offender-treatment-controversy-place
+
+【1971年到底发生了...】
+1971年到底发生了什么？ 黄金美元脱钩，债务扩张，分配上资本碾压了劳动要素。里根上台后愈演愈烈。锚定石油后，美国当起印钞角色，实体产业转移，分配进一步倾向资本。 http://m.weibo.cn/status/JghISEYWM
+
+【圆满西湖】
+圆满西湖 作为一名构图强迫症患者，探索拍摄到的西湖之“圆”。 http://www.douban.com/people/168946756/status/3074854124
+
+【一位中国女大学生理解在中国追求劳动正义的代价】
+当中国劳工观察向伊万卡·特朗普的品牌反映其中国供应商虐待工人的指控时，她的公司拒绝合作。它没有对这些指控进行任何公开调查：强迫加班、最低每小时1美元的工资、粗暴的言语和身体虐待，其中包括用高跟鞋尖处打伤一名男子头部的事件。 伊万卡·特朗普保持了沉默，她对自己的同名品牌仍持有所有权但不再紧密参与管理工作。对此报道，伊万卡本人及其品牌都拒绝发表评论。 http://www.chinalaborwatch.org/cn/newscast/645
