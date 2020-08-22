@@ -8634,3 +8634,17 @@ http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497466&amp;idx=4&am
 
 【新一代农民工“反工厂文化”：“三和大神”的是是非非，勾连起中国发展问题的角落】
 %E6%96%B0%E4%B8%80%E4%BB%A3%E5%86%9C%E6%B0%91%E5%B7%A5%E5%8F%8D%E5%B7%A5%E5%8E%82%E6%96%87%E5%8C%96%E4%B8%89%E5%92%8C%E5%A4%A7%E7%A5%9E%E7%9A%84%E6%98%AF%E6%98%AF%E9%9D%9E%E9%9D%9E%E5%8B%BE%E8%BF%9E%E8%B5%B7%E4%B8%AD%E5%9B%BD%E5%8F%91%E5%B1%95%E9%97%AE%E9%A2%98%E7%9A%84%E8%A7%92%E8%90%BD-08-16-2 | https://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&mid=2650497148&idx=1&sn=26419dd008dd60635b32486254aa64b6
+
+=======
+
+《每日文章精选 2020-08-21》 https://t.me/daily_read 
+
+1. 【三和青年与黑中介：记两次跳楼事件 | 正午书架】https://mp.weixin.qq.com/s/nnNO0zKykz_wLYurIkIneg
+
+2. 【对孩子进行多元性别教育，会使孩子变成同性恋？】http://mp.weixin.qq.com/s?__biz=MzUyODcyMjAxMg==&amp;mid=2247487903&amp;idx=2&amp;sn=be4a5242b8ec1d9e8ccec4953edcd217
+
+3. 【男人们和洗脚水到底什么仇什么怨？】https://www.douban.com/note/774784206
+
+4. 【别把你的镜头对准姐姐们的裙底】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247512902&amp;idx=1&amp;sn=fbe2d2e420f3a8e46825095333f44b72
+
+5. 【托卡尔丘克、齐泽克等人针对波兰对性少数群体压迫事件联合发声】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247486740&amp;idx=2&amp;sn=6ae3840e3d5a75646cc623eb923857d3
