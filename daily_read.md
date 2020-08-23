@@ -8682,3 +8682,17 @@ https://mp.weixin.qq.com/s/PNhBo8oaGTF4pFKNnaPayg
 
 【今天我在内心把我爸开除爸籍】
 但凡一提到女权问题，我能在家疯狂输出，但刘大爷不听我也拿他没办法，我又不是他妈，所以刘大爷一旦开始思想抛锚发表男权理论，我就内心默算，刘大爷现在134斤，猪肉市场价30元一斤，把他拿去卖了能卖4000多块…… 总之，我爸要是不转变态度，我爸在我心里就不是我爸了，我爸是张大爷。我也不是张k了，在此期间我是林k，我跟林毛毛的姓。虽然林毛毛的诸多观点我不认可，但是在仇视中老年男的的水平上我和林毛毛已经达成一致。 https://mp.weixin.qq.com/s/DzSn0oX7nctjnsHRM1DpKQ
+
+=======
+
+《每日文章精选 2020-08-23》 https://t.me/daily_read 
+
+1. 【托卡尔丘克、齐泽克等人针对波兰对性少数群体压迫事件联合发声】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247486740&amp;idx=2&amp;sn=6ae3840e3d5a75646cc623eb923857d3
+
+2. 【记者卧底四个月，揭露美国监狱虐待犯人、利用犯人牟利的黑历史】http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497466&amp;idx=4&amp;sn=01c78170caf876190c5bf543a4a18dbc
+
+3. 【在美国做穷人是什么样的体验】https://www.douban.com/note/774860803
+
+4. 【三和青年与黑中介：记两次跳楼事件 | 正午书架】https://mp.weixin.qq.com/s/nnNO0zKykz_wLYurIkIneg
+
+5. 【专盯女星下体、大腿、臀部猛拍，某台818晚会运镜忒下作！】http://mp.weixin.qq.com/s?__biz=MzAxMzk5MDc2OQ==&amp;mid=2247552419&amp;idx=1&amp;sn=e2803b151e28bbad744a3c5c1db2c59e
