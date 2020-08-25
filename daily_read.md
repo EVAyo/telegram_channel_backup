@@ -8696,3 +8696,51 @@ https://mp.weixin.qq.com/s/PNhBo8oaGTF4pFKNnaPayg
 4. 【三和青年与黑中介：记两次跳楼事件 | 正午书架】https://mp.weixin.qq.com/s/nnNO0zKykz_wLYurIkIneg
 
 5. 【专盯女星下体、大腿、臀部猛拍，某台818晚会运镜忒下作！】http://mp.weixin.qq.com/s?__biz=MzAxMzk5MDc2OQ==&amp;mid=2247552419&amp;idx=1&amp;sn=e2803b151e28bbad744a3c5c1db2c59e
+
+=======
+
+《每日文章精选 2020-08-24》 https://t.me/daily_read 
+
+1. 【【等深线】“偷尸火化”连环案：乡村深处的火化证江湖】http://mp.weixin.qq.com/s?__biz=MzIyNjYyNTk5MA==&amp;mid=2247486010&amp;idx=1&amp;sn=4cbf8b9c6203b89277052a3e62de6f69
+
+2. 【性别暴力案件的标题，为什么总是被动句？】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247513362&amp;idx=1&amp;sn=06f7cf4908764a4608203ecbd8ac63d6
+
+3. 【中国劳工新加坡生死劫：“干不了活，回不了家，看不到尽头”】https://mp.weixin.qq.com/s/tEz_BY7-P3nTRtXT2rRF7w
+
+4. 【托卡尔丘克、齐泽克等人针对波兰对性少数群体压迫事件联合发声】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247486740&amp;idx=2&amp;sn=6ae3840e3d5a75646cc623eb923857d3
+
+5. 【记者卧底四个月，揭露美国监狱虐待犯人、利用犯人牟利的黑历史】http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497466&amp;idx=4&amp;sn=01c78170caf876190c5bf543a4a18dbc
+
+=======
+
+每日文章精选
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【如果一个社会所有的配...】
+如果一个社会所有的配置不考虑普通老年人、小孩、行动不方便的人，那它就是只服务于特权阶级的啊。最可怕的是普通人也毫无察觉地维护这种设置，像一个特权人士挥起大棒，完全忘记了自己也有老的一天，忘记自己也是一个普通人。 http://m.weibo.cn/status/Jhsgu6exs
+
+【Hadda Morr...】
+Hadda Morrison镜头下的南京1944（AI上色） http://www.douban.com/people/1879192/status/3079178326
+
+【Immigration Nation | Netflix Official Site】
+《 https://www.netflix.com/watch/81001615 》会让很多人重新反省美国的价值观和当局的一些政策。甚至会让不少美国人觉得羞耻。也难怪当局想要禁止该片的播出了。
+
+【《不公平的代价》序言...】
+《不公平的代价》序言： 美国银行家、大公司等特殊利益关系的游说已到了极恐怖的程度。2007年，有188名联邦参议员和众议员卸任后正式转任游说客。而在1998至2004年间，半数卸任的参议员、42％的卸任众议员都成了游说客。大公司的老板高干和政治权贵早已混合为一。这时候再说什么「政府有能」，早已成了空谈；「政府失能」已成了常态。 https://telete.in/dushufenxiang/1206
+
+【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】
+https://www.thepaper.cn/newsDetail_forward_8658488
+
+【废弃工厂里的老东西，...】
+废弃工厂里的老东西，那会儿的设计可真好看。 http://www.douban.com/people/21565824/status/3079620751
+
+【白俄罗斯著名女作家、...】
+白俄罗斯著名女作家、2015年诺贝尔文学奖得主、反对派协调委员会成员斯韦特兰娜•阿列克谢耶维奇被卢卡申科当局调查委员会传讯，这是卢卡申科打压反对派的最新行动之一。阿列克谢耶维奇现年72岁，代表性作品包括《二手时间》《切尔诺贝利的祭祷》《锌皮娃娃兵》。 http://www.douban.com/people/49498918/status/3081641164 https://www.euronews.com/2020/08/24/belarus-protests-nobel-laureate-svetlana-alexievich-set-to-be-quizzed-over-opposition-coun
+
+【Welcome to Chechnya】
+【电影：欢迎来到车臣】 https://www.hbo.com/documentaries/welcome-to-chechnya 【简介】2017年俄罗斯联邦共和国车臣被曝开设“同性恋集中营”，引发世界哗然。这是自希特勒之后欧洲首次再出现集中营这样的迫害机构。 据俄罗斯媒体报道，车臣政府开设专门关押和凌虐LGBT的集中营，已经有多人被杀害或永久性失踪。被关押者要接受毒打电击，还要在严刑逼供下交代更多圈内人，帮助当局在车臣“彻底根除同性恋”。 想要申诉根本不可能，因为下令建立集中营的正是当地最高领导人——车臣总统拉姆赞·卡德罗夫，而卡德罗夫的背后是普京。 平权组织俄罗斯同志网络（Russian LGBT Network）称过去两年已经帮助上百名LGBT人士逃离车臣，但还有更多人被关押中；当局销毁了一些人的护照，以阻止他们离境。整个逃离过程被一位美国导演用胶片纪录了下来，就是这部《欢迎来到车臣》。
+
+【【恶毒企业半木家具】...】
+【恶毒企业半木家具】恶毒企业半木家具逼产假中员工每天手写4800字工作心得，一个错字罚款50元，晚交罚款500元。 http://m.weibo.cn/status/JhrjOxnzE https://finance.sina.com.cn/chanjing/gsnews/2020-08-25/doc-iivhuipp0502016.shtml
