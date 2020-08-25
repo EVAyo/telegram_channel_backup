@@ -8744,3 +8744,17 @@ https://www.thepaper.cn/newsDetail_forward_8658488
 
 【【恶毒企业半木家具】...】
 【恶毒企业半木家具】恶毒企业半木家具逼产假中员工每天手写4800字工作心得，一个错字罚款50元，晚交罚款500元。 http://m.weibo.cn/status/JhrjOxnzE https://finance.sina.com.cn/chanjing/gsnews/2020-08-25/doc-iivhuipp0502016.shtml
+
+=======
+
+《每日文章精选 2020-08-25》 https://t.me/daily_read 
+
+1. 【男性女权主义者太少，是因为女性厌男吗？【有点田园】】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247485333&amp;idx=1&amp;sn=fb085d0bfaa1127ceff317ef41a9ec71
+
+2. 【【等深线】“偷尸火化”连环案：乡村深处的火化证江湖】http://mp.weixin.qq.com/s?__biz=MzIyNjYyNTk5MA==&amp;mid=2247486010&amp;idx=1&amp;sn=4cbf8b9c6203b89277052a3e62de6f69
+
+3. 【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】https://www.thepaper.cn/newsDetail_forward_8658488
+
+4. 【性别暴力案件的标题，为什么总是被动句？】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247513362&amp;idx=1&amp;sn=06f7cf4908764a4608203ecbd8ac63d6
+
+5. 【中国劳工新加坡生死劫：“干不了活，回不了家，看不到尽头”】https://mp.weixin.qq.com/s/tEz_BY7-P3nTRtXT2rRF7w
