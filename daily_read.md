@@ -8758,3 +8758,51 @@ https://www.thepaper.cn/newsDetail_forward_8658488
 4. 【性别暴力案件的标题，为什么总是被动句？】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247513362&amp;idx=1&amp;sn=06f7cf4908764a4608203ecbd8ac63d6
 
 5. 【中国劳工新加坡生死劫：“干不了活，回不了家，看不到尽头”】https://mp.weixin.qq.com/s/tEz_BY7-P3nTRtXT2rRF7w
+
+=======
+
+每日文章精选
+
+【【隐形的les】异性...】
+【隐形的les】异性恋霸权与女同性恋的性别角色 http://m.weibo.cn/status/4541552309062864
+
+【如果一个社会所有的配...】
+如果一个社会所有的配置不考虑普通老年人、小孩、行动不方便的人，那它就是只服务于特权阶级的啊。最可怕的是普通人也毫无察觉地维护这种设置，像一个特权人士挥起大棒，完全忘记了自己也有老的一天，忘记自己也是一个普通人。 http://m.weibo.cn/status/Jhsgu6exs
+
+【A math problem stumped experts for 50 years. This grad student from Maine solved it in days】
+困扰专家50多年的数学问题，被一个来自缅因州的研究生几天就解决了: https://www.bostonglobe.com/2020/08/20/magazine/math-problem-stumped-experts-50-years-this-grad-student-maine-solved-it-days
+
+【Views of H...】
+Views of Homosexuality Around the World | Pew Research Center https://www.pewresearch.org/global/2020/06/25/global-divide-on-homosexuality-persists
+
+【Immigration Nation | Netflix Official Site】
+《 https://www.netflix.com/watch/81001615 》会让很多人重新反省美国的价值观和当局的一些政策。甚至会让不少美国人觉得羞耻。也难怪当局想要禁止该片的播出了。
+
+【【恶毒企业半木家具】...】
+【恶毒企业半木家具】恶毒企业半木家具逼产假中员工每天手写4800字工作心得，一个错字罚款50元，晚交罚款500元。 http://m.weibo.cn/status/JhrjOxnzE https://finance.sina.com.cn/chanjing/gsnews/2020-08-25/doc-iivhuipp0502016.shtml
+
+【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】
+https://www.thepaper.cn/newsDetail_forward_8658488
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【油管博主Spawnt...】
+油管博主Spawntaneous把自己开mic玩彩虹6号时，当一众男性玩家发现她是女的，对她的言语攻击剪成了合集。一个失误，就能被骂"女的都不行"。每天都能听到骚扰性言语甚至辱骂。女性玩家在游戏世界会遭遇多少恶意？这段视频也许只是冰山一角。 http://m.weibo.cn/status/JhzvM69qt
+
+【PBS前线 美国大分裂:从奥巴马到特朗普 1/2 ... 来自水山水山水山 - 微博】
+【PBS纪录片】美国大分裂 - 从奥巴马到特朗普 | https://www.weibo.com/5872636712/IsuTyoUvP | https://www.weibo.com/5872636712/ItmjS8DVr | https://telete.in/LiberalegalitarianisminChinese/3950
+
+=======
+
+《每日文章精选 2020-08-26》 https://t.me/daily_read 
+
+1. 【男性女权主义者太少，是因为女性厌男吗？【有点田园】】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247485333&amp;idx=1&amp;sn=fb085d0bfaa1127ceff317ef41a9ec71
+
+2. 【【等深线】“偷尸火化”连环案：乡村深处的火化证江湖】http://mp.weixin.qq.com/s?__biz=MzIyNjYyNTk5MA==&amp;mid=2247486010&amp;idx=1&amp;sn=4cbf8b9c6203b89277052a3e62de6f69
+
+3. 【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】https://www.thepaper.cn/newsDetail_forward_8658488
+
+4. 【性别暴力案件的标题，为什么总是被动句？】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247513362&amp;idx=1&amp;sn=06f7cf4908764a4608203ecbd8ac63d6
+
+5. 【中国劳工新加坡生死劫：“干不了活，回不了家，看不到尽头”】https://mp.weixin.qq.com/s/tEz_BY7-P3nTRtXT2rRF7w
