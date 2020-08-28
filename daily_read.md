@@ -8820,3 +8820,45 @@ https://www.thepaper.cn/newsDetail_forward_8658488
 4. 【中国劳工新加坡生死劫：“干不了活，回不了家，看不到尽头”】https://mp.weixin.qq.com/s/tEz_BY7-P3nTRtXT2rRF7w
 
 5. 【【等深线】“偷尸火化”连环案：乡村深处的火化证江湖】http://mp.weixin.qq.com/s?__biz=MzIyNjYyNTk5MA==&amp;mid=2247486010&amp;idx=1&amp;sn=4cbf8b9c6203b89277052a3e62de6f69
+
+=======
+
+每日文章精选
+
+【对于“我不生育”各类...】
+对于“我不生育”各类逼问的礼尚往来 http://www.douban.com/people/3583019/status/3085820496
+
+【【包皮手术纳入医保】】
+【包皮手术纳入医保】 如果包皮手术纳入报销范围，可以让男人们勤快点去割，那很好，对男女都好。 生殖健康是大事，但为什么在生物科学和大数据都已经显而易见告诉我们【女性已经为生殖健康承担了更多义务】的事实情况下，不仅HPV疫苗一直未被纳入医保报销范围，甚至近期连避孕药都被划出医保！(同时壮阳药被纳入了医保范畴！离谱！) 包皮要割就割，免费就免费，但涉及两性生殖健康的医疗报销系统如此改革从性别视角来看确实糟糕。 既然割包皮壮阳药能报销，HPV疫苗避孕药凭什么不能报销？ 男人割包皮不需要结婚证，女人做人流手术报销凭什么需要结婚证？ HPV不能只让女人打，男人也要打；节育手术不能只让女人做，也要鼓励男人做！是男人就一起结扎！是哥们就一起割包皮！ 不要光进步男人，落下女人。 http://m.weibo.cn/status/JhRmmENBH
+
+【《论性别对立》】
+《论性别对立》 http://m.weibo.cn/status/Ji1f4bYyo
+
+【月经贫困，指买不起卫...】
+月经贫困，指买不起卫生用品，对不少女性而言，卫生巾高昂的价格则成为影响生活开销的困扰。女性卫生用品是女性健康必需品，无论是谁都应该能够轻易使用。 http://m.weibo.cn/status/JhXUoxclQ
+
+【移民加拿大后，我在男子监狱当女狱警，一年有200多天假期】
+移民加拿大后，我在男子监狱当女狱警，一年有200多天假期 - 哈哈哈来加村的同胞总是有这么多稀奇古怪有意思的职业 https://mp.weixin.qq.com/s/eY0xB1nn-SKMofnzqeEaJQ
+
+【Muslimah by Nur Wucha Wulandari - Indonesia,Australia Documentary Short Film | Viddsee】
+关于穆斯林女孩要不要戴hijab的短片，非常个人视角的观察。 https://www.viddsee.com/video/muslimah/i5fhk?channel=reelozind 来源： https://telete.in/mssnbps/913
+
+【荷兰90后作家获2020年国际布克奖：自认性别身份介于男性女性之间】
+http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247487315&amp;idx=4&amp;sn=69357156ad3523bc66eb49b2fd199f3b
+
+【【看见女性在不同行业...】
+【看见女性在不同行业里的更多可能性：第十一期，律师】 智合研究院2019年报告显示，截至2018年底，全国共有执业律师42.3万多人，其中上海执业律师总数约2.4万人，约占全国总数的5.67%；上海女律师约占上海律师的40.23%。而在公益普法方面，女律师的服务比例大致高于男性律师。 http://m.weibo.cn/status/JhSTHli3E
+
+=======
+
+《每日文章精选 2020-08-28》 https://t.me/daily_read 
+
+1. 【移民加拿大后，我在男子监狱当女狱警，一年有200多天假期】https://mp.weixin.qq.com/s/eY0xB1nn-SKMofnzqeEaJQ
+
+2. 【为什么没有谁比今天的美国更需要一场“战争”? | 文化纵横】http://mp.weixin.qq.com/s/mADivw--4SLDuaXkeBjwug
+
+3. 【都在纪念美国妇女选举权100年，但你知道她们真正拥有投票权才56年吗？】http://mp.weixin.qq.com/s?__biz=MzIyMTc1Nzc2OA==&amp;mid=2247530239&amp;idx=1&amp;sn=17cdbf776315e6129089343cb22e6b2a
+
+4. 【荷兰90后作家获2020年国际布克奖：自认性别身份介于男性女性之间】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247487315&amp;idx=4&amp;sn=69357156ad3523bc66eb49b2fd199f3b
+
+5. 【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】https://www.thepaper.cn/newsDetail_forward_8658488
