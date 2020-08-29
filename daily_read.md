@@ -8862,3 +8862,17 @@ http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247487315&amp;idx=4&am
 4. 【荷兰90后作家获2020年国际布克奖：自认性别身份介于男性女性之间】http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247487315&amp;idx=4&amp;sn=69357156ad3523bc66eb49b2fd199f3b
 
 5. 【商品与女性欲望：消费社会强化了男性权威，也对其造成了威胁】https://www.thepaper.cn/newsDetail_forward_8658488
+
+=======
+
+《每日文章精选 2020-08-29》 https://t.me/daily_read 
+
+1. 【移民加拿大后，我在男子监狱当女狱警，一年有200多天假期】https://mp.weixin.qq.com/s/eY0xB1nn-SKMofnzqeEaJQ
+
+2. 【为什么没有谁比今天的美国更需要一场“战争”? | 文化纵横】http://mp.weixin.qq.com/s/mADivw--4SLDuaXkeBjwug
+
+3. 【川普提名演讲的21个谎言】http://mp.weixin.qq.com/s/Oc-E6D77gIlyCDkt3lxTMA
+
+4. 【当女人们开口讲段子】https://mp.weixin.qq.com/s/Qwdmmek4AC09eKf9ctlj0w
+
+5. 【黑命攸关｜一场作秀？NBA三日罢赛背后的劳工政治】https://www.thepaper.cn/newsDetail_forward_8915316

@@ -688,3 +688,17 @@ https://matters.news/%40linsantu/%25E5%25BD%2593%25E6%2588%2591%25E4%25BB%25AC%2
 这两天看《不平等的代价》，愈发觉得企业和政府的透明度很重要。但查了一下，好像没有发现督促企业/政府透明度的项目？（中美都没有查到，不知道大家有知道的吗）
 
 加拿大好像有个 CBC Marketplace 节目，算是政府监管公司的（有时候也监管别的政府部门）。youtube
+
+=======
+
+https://telegra.ph/%E8%AF%84%E8%AE%BA%E5%8C%BA%E5%92%8C%E8%AE%A8%E8%AE%BA%E7%BE%A4%E6%98%AF%E4%B8%8D%E6%98%AF%E6%B2%A1%E6%9C%89%E4%B9%9F%E6%97%A0%E6%89%80%E8%B0%93-08-29
+
+来源： https://t.me/Solitorian/293
+
+=======
+
+大家对安倍晋三怎么看？我看到两个比较矛盾的评价（主要是关于他经济成果上的矛盾）：
+
+1) https://twitter.com/Noahpinion/status/1299489049753739265
+
+2) https://telegra.ph/%E6%9D%8E%E7%99%BB%E8%BE%89%E5%9C%A88%E5%B9%B4%E9%97%B4%E8%AE%A9%E5%8F%B0%E6%B9%BE%E8%B5%B0%E5%90%91%E6%B0%91%E4%B8%BB%E5%AE%89%E5%80%8D%E6%99%8B%E4%B8%89%E7%94%A88%E5%B9%B4%E8%AE%A9%E6%97%A5%E6%9C%AC%E8%B5%B0%E5%90%91%E4%BD%95%E6%96%B9-08-03
