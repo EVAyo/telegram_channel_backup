@@ -8876,3 +8876,37 @@ http://mp.weixin.qq.com/s?__biz=MzUzMDcyOTYyOA==&amp;mid=2247487315&amp;idx=4&am
 4. 【当女人们开口讲段子】https://mp.weixin.qq.com/s/Qwdmmek4AC09eKf9ctlj0w
 
 5. 【黑命攸关｜一场作秀？NBA三日罢赛背后的劳工政治】https://www.thepaper.cn/newsDetail_forward_8915316
+
+=======
+
+每日文章精选
+
+【力导向图很陌生？一张关系图带你揭秘社交网络！| 图表家族#33】
+https://zhuanlan.zhihu.com/p/71217725
+
+【Views of H...】
+Views of Homosexuality Around the World | Pew Research Center https://www.pewresearch.org/global/2020/06/25/global-divide-on-homosexuality-persists
+
+【#森林驿站# 无论是...】
+#森林驿站# 无论是打闹嬉戏，还是极具破坏性的争斗，打斗行为都是动物们日常生活中不可缺少的元素。摄影师们拍下了这些壮观的瞬间，一起来欣赏吧 http://m.weibo.cn/status/JhI4hmxW4
+
+【驱逐(evictio...】
+驱逐(eviction)，是指房东对租户的强制驱赶行为。它集中发生在极端贫困的人群中。对于他们来说，即使是最廉价的房租，也会花费月收入的一半到百分之七十以上。驱逐，这种在几十年前会引发群众公开抗议的现象，在21世纪的美国已经变得制度化、产业化和日常化了，其形式通常也十分简单粗暴：房东对租户下驱逐令以后，搬家公司的雇员和地方行政官随即执行，把租户的所有物品强行搬清。 现在，全美一年被驱逐的租户就有几百万。普林斯顿大学社会学系教授Matthew Desmond根据他的博士论文修改发表的《扫地出门：美国城市的贫穷与暴利》一书对这一现象做了深刻的分析。该书在受到美国各大主流媒体好评以后，因为斩获了今年的普利策非虚构类奖项，而受到了更加广泛的关注。 http://cnpolitics.org/2017/09/evicted
+
+【评论：特朗普完全可能赢得选战】
+DW 中文- 德国之声 | “谁是其中的输家，早已经尘埃落定：那就是美国人民，他们生活在一个已经无法就人类共处的基本准则达成共识的社会中” http://p.dw.com/p/3hdFZ
+
+【PBS前线 美国大分裂:从奥巴马到特朗普 1/2 ... 来自水山水山水山 - 微博】
+【PBS纪录片】美国大分裂 - 从奥巴马到特朗普 | https://www.weibo.com/5872636712/IsuTyoUvP | https://www.weibo.com/5872636712/ItmjS8DVr | https://telete.in/LiberalegalitarianisminChinese/3950
+
+【【公开课】斯坦福大学: 从生物学看人类行为_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/BV1c741167Wx?seid=9150943472185058440
+
+【还是有好消息的。随着...】
+还是有好消息的。随着尼日利亚宣布消除骨髓灰质炎，整个非洲至此实现了对小儿麻痹症的全面防控。 通过普及疫苗，95%的人群达成免疫。真正的群体免疫。不是放任“自然感染”。 http://m.weibo.cn/status/JhC8B24i9
+
+【《不公平的代价：破解...】
+《不公平的代价：破解阶级对立的金权结构》 作者：诺贝尔经济学奖得主斯蒂格利茨
+
+【频道合集】
+频道合集 https://telete.in/channel_push 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书分享 https://telete.in/dushufenxiang 豆瓣精选 https://telete.in/douban_read 英文学习 https://telete.in/english_learning_discuss 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 微博精选 https://telete.in/weibo_read 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）

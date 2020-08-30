@@ -702,3 +702,11 @@ https://telegra.ph/%E8%AF%84%E8%AE%BA%E5%8C%BA%E5%92%8C%E8%AE%A8%E8%AE%BA%E7%BE%
 1) https://twitter.com/Noahpinion/status/1299489049753739265
 
 2) https://telegra.ph/%E6%9D%8E%E7%99%BB%E8%BE%89%E5%9C%A88%E5%B9%B4%E9%97%B4%E8%AE%A9%E5%8F%B0%E6%B9%BE%E8%B5%B0%E5%90%91%E6%B0%91%E4%B8%BB%E5%AE%89%E5%80%8D%E6%99%8B%E4%B8%89%E7%94%A88%E5%B9%B4%E8%AE%A9%E6%97%A5%E6%9C%AC%E8%B5%B0%E5%90%91%E4%BD%95%E6%96%B9-08-03
+
+=======
+
+1. 相对平缓的高税率
+2. 教育，育儿等补助
+3. 鼓励参加工作
+
+https://en.wikipedia.org/wiki/Nordic_model
