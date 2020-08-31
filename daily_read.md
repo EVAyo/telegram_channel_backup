@@ -8910,3 +8910,46 @@ https://www.bilibili.com/video/BV1c741167Wx?seid=9150943472185058440
 
 【频道合集】
 频道合集 https://telete.in/channel_push 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书分享 https://telete.in/dushufenxiang 豆瓣精选 https://telete.in/douban_read 英文学习 https://telete.in/english_learning_discuss 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 微博精选 https://telete.in/weibo_read 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+=======
+
+《每日文章精选 2020-08-30》 https://t.me/daily_read 
+
+1. 【文化圈层 | 饭圈的话术】https://mp.weixin.qq.com/s/uo31nR6V2olbcrL69_9q6w
+
+2. 【移民加拿大后，我在男子监狱当女狱警，一年有200多天假期】https://mp.weixin.qq.com/s/eY0xB1nn-SKMofnzqeEaJQ
+
+3. 【为什么没有谁比今天的美国更需要一场“战争”? | 文化纵横】http://mp.weixin.qq.com/s/mADivw--4SLDuaXkeBjwug
+
+4. 【“散装卫生巾”争议背后：被遮蔽的全球“月经贫困”和女性生理刚需】https://www.douban.com/note/775945700
+
+5. 【请不要把我们遗忘：8月30日是强迫失踪受害者国际日】https://www.douban.com/note/732387363
+
+=======
+
+《每日文章精选 2020-08-30》 https://t.me/daily_read 
+
+1. 【如何看待温铁军教授越来越火？】https://project-gutenberg.github.io/Pincong/post/229ad48efff3a2655a48977cc845926f/
+
+2. 【新冠抗疫与香港人身份认同建构 ---】http://telegra.ph/%25E6%2596%25B0%25E5%2586%25A0%25E6%258A%2597%25E7%2596%25AB%25E4%25B8%258E%25E9%25A6%2599%25E6%25B8%25AF%25E4%25BA%25BA%25E8%25BA%25AB%25E4%25BB%25BD%25E8%25AE%25A4%25E5%2590%258C%25E5%25BB%25BA%25E6%259E%2584------%25E6%2588%2591%25E4%25BB%25AC%25E7%259C%259F%25E7%259A%2584%25E8%25A6%2581%25E8%25B5%25B0%25E5%2590%2591%25E7%25A7%258D%25E6%2597%258F%25E4%25B8%25BB%25E4%25B9%2589%25E5%2590%2597-08-30
+
+3. 【反抗泰國軍政府】https://lausan.hk/2020/against-thailands-military-regime-chinese
+
+4. 【请不要把我们遗忘：8月30日是强迫失踪受害者国际日】https://www.douban.com/note/732387363
+
+5. 【文化圈层 | 饭圈的话术】https://mp.weixin.qq.com/s/uo31nR6V2olbcrL69_9q6w
+
+=======
+
+频道合集 @channel_push
+政治观察 @freedom_watch
+读书分享 @dushufenxiang
+性别议题 @daily_feminist
+读书讨论 @dushufenxiang_chat
+微博精选 @weibo_read
+自由派讨论 @LiberalegalitarianisminChinese
+英文学习 @english_learning_discuss
+豆瓣精选 @douban_read
+消息搜索 @msg_index_bot
+
+（推荐一些频道与群组）
