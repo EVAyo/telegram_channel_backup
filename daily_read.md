@@ -8953,3 +8953,31 @@ https://www.bilibili.com/video/BV1c741167Wx?seid=9150943472185058440
 消息搜索 @msg_index_bot
 
 （推荐一些频道与群组）
+
+=======
+
+《每日文章精选 2020-08-31》 https://t.me/daily_read 
+
+1. 【催泪弹与防暴工业的历史】http://telegra.ph/%25E5%2582%25AC%25E6%25B3%25AA%25E5%25BC%25B9%25E4%25B8%258E%25E9%2598%25B2%25E6%259A%25B4%25E5%25B7%25A5%25E4%25B8%259A%25E7%259A%2584%25E5%258E%2586%25E5%258F%25B2-08-31
+
+2. 【时代游戏】http://telegra.ph/%25E6%2597%25B6%25E4%25BB%25A3%25E6%25B8%25B8%25E6%2588%258F-08-31
+
+3. 【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】https://www.thepaper.cn/newsDetail_forward_5263691
+
+4. 【什么是内务部，它如何改变民众与卢政权之间的力量天平？】https://www.douban.com/note/776194951
+
+5. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
+
+=======
+
+《每日文章精选 2020-08-31》 https://t.me/daily_read 
+
+1. 【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】https://www.thepaper.cn/newsDetail_forward_5263691
+
+2. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
+
+3. 【疫论·社会｜疫情扑灭全球社运薪火，白人右翼垄断抗争者形象】https://www.thepaper.cn/newsDetail_forward_7462272
+
+4. 【崔之元读皮凯蒂｜大象曲线、 婆罗门左派和参与式社会主义】https://www.thepaper.cn/newsDetail_forward_8955837
+
+5. 【文化圈层 | 饭圈的话术】https://mp.weixin.qq.com/s/uo31nR6V2olbcrL69_9q6w
