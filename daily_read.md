@@ -9043,3 +9043,31 @@ https://www.douban.com/note/776328908
 4. 【崔之元读皮凯蒂｜大象曲线、 婆罗门左派和参与式社会主义】https://www.thepaper.cn/newsDetail_forward_8955837
 
 5. 【文化圈层 | 饭圈的话术】https://mp.weixin.qq.com/s/uo31nR6V2olbcrL69_9q6w
+
+=======
+
+《每日文章精选 2020-09-01》 https://t.me/daily_read 
+
+1. 【静悄悄的审查】http://telegra.ph/%25E9%259D%2599%25E6%2582%2584%25E6%2582%2584%25E7%259A%2584%25E5%25AE%25A1%25E6%259F%25A5-09-01
+
+2. 【审查制度对偶然性信息接触的影响：来自维基百科的证据】https://2049post.wordpress.com/2020/08/01/v2study2
+
+3. 【历史遗产，民间网络与劳工运动】http://telegra.ph/%25E5%258E%2586%25E5%258F%25B2%25E9%2581%2597%25E4%25BA%25A7%25E6%25B0%2591%25E9%2597%25B4%25E7%25BD%2591%25E7%25BB%259C%25E4%25B8%258E%25E5%258A%25B3%25E5%25B7%25A5%25E8%25BF%2590%25E5%258A%25A8-09-01
+
+4. 【旁观者的运动】http://telegra.ph/%25E6%2597%2581%25E8%25A7%2582%25E8%2580%2585%25E7%259A%2584%25E8%25BF%2590%25E5%258A%25A8-09-01
+
+5. 【催泪弹与防暴工业的历史】http://telegra.ph/%25E5%2582%25AC%25E6%25B3%25AA%25E5%25BC%25B9%25E4%25B8%258E%25E9%2598%25B2%25E6%259A%25B4%25E5%25B7%25A5%25E4%25B8%259A%25E7%259A%2584%25E5%258E%2586%25E5%258F%25B2-08-31
+
+=======
+
+《每日文章精选 2020-09-01》 https://t.me/daily_read 
+
+1. 【香港大学教授：女性友谊可以成为化解N号房悲剧的解药 | 造就Talk·郭婷】http://mp.weixin.qq.com/s/azz__mvewWbS3OucJs-qiQ
+
+2. 【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】https://www.thepaper.cn/newsDetail_forward_5263691
+
+3. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
+
+4. 【疫论·社会｜疫情扑灭全球社运薪火，白人右翼垄断抗争者形象】https://www.thepaper.cn/newsDetail_forward_7462272
+
+5. 【崔之元读皮凯蒂｜大象曲线、 婆罗门左派和参与式社会主义】https://www.thepaper.cn/newsDetail_forward_8955837
