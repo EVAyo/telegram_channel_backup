@@ -9071,3 +9071,51 @@ https://www.douban.com/note/776328908
 4. 【疫论·社会｜疫情扑灭全球社运薪火，白人右翼垄断抗争者形象】https://www.thepaper.cn/newsDetail_forward_7462272
 
 5. 【崔之元读皮凯蒂｜大象曲线、 婆罗门左派和参与式社会主义】https://www.thepaper.cn/newsDetail_forward_8955837
+
+=======
+
+每日文章精选
+
+【静悄悄的审查】
+相比直截了当的该页无法显示，各种更为隐蔽的审查行为，比如减慢网速，填塞垃圾信息，对信息的流通有着非常明显的抑制作用。事实上，官方从来没有封死所有的信息流通途径，而只是给不同的信息内容加设了不同的获取成本。罗伯茨也发现，只要对信息获取稍加门槛，传播速度和规模就会显著降低，而整个过程中，很多用户压根不会意识到网络审查的存在。 https://gravitysworm.com/post/109380191872/%25E9%259D%2599%25E6%2582%2584%25E6%2582%2584%25E7%259A%2584%25E5%25AE%25A1%25E6%259F%25A5 | https://telete.in/gravitysworm
+
+【自动化，意识形态与幽灵工作的崛起】
+1. 机器使得很多人失去曾经的“好工作”之外，也同时在全球范围内创造出大量低薪和不稳定的“坏工作”。 2. 疫情撕开全球供应链秘而不宣的剥削规则，却并未唤起对底层劳工的关注，而更多成为政治实体和企业主张经济脱钩的理由。 3. 主流政治话语对国际劳权议题的忽略和回避，让坏工作进一步不受制约地跨越边境。 https://gravitysworm.com/post/612235333918212096/%25E8%2587%25AA%25E5%258A%25A8%25E5%258C%2596%25E6%2584%258F%25E8%25AF%2586%25E5%25BD%25A2%25E6%2580%2581%25E4%25B8%258E%25E5%25B9%25BD%25E7%2581%25B5%25E5%25B7%25A5%25E4%25BD%259C%25E7%259A%2584%25E5%25B4%259B%25E8%25B5%25B7 本文作者的频道： https://telete.in/gravitysworm
+
+【旁观者的运动】
+https://gravitysworm.com/post/151665652927/%25E6%2597%2581%25E8%25A7%2582%25E8%2580%2585%25E7%259A%2584%25E8%25BF%2590%25E5%258A%25A8 | https://telete.in/gravitysworm
+
+【Views of H...】
+Views of Homosexuality Around the World | Pew Research Center https://www.pewresearch.org/global/2020/06/25/global-divide-on-homosexuality-persists
+
+【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】
+1. 从主要的藤校到州立工学院，都有大量男性学生定期参与反罢工的动员。不少高校的兄弟会和运动员组织甚至将反罢工宣传成了拓展男性气质的志愿服务。 2. 黑心网络企业谷歌雇佣反工会咨询所，解雇组织工会的员工。 https://www.thepaper.cn/newsDetail_forward_5263691 本文作者的频道： https://telete.in/gravitysworm
+
+【Watch College Behind Bars | A Film by Lynn Novick | PBS | Ken Burns】
+https://www.pbs.org/kenburns/college-behind-bars
+
+【整点阳间的卫生巾广告吧！】
+愿你无论何时，都不必为自己，在经期难堪的时刻感到抱歉。 https://mp.weixin.qq.com/s/fQCdSG3IyAkqvmrhI6D-tw
+
+【【因支付宝要求书籍审...】
+【因支付宝要求书籍审查，Readmoo读墨停止支持支付宝】 http://m.weibo.cn/status/JgXr2AHJJ https://news.readmoo.com/2020/08/21/new-new-update-01
+
+【对漫展偷拍事件背后的男权景观及相关言论的评价】
+https://mp.weixin.qq.com/s/DD8wK5BI7cfxENRqMFSiAw
+
+【台湾转型正义的宪法时刻──专访党产案宪法法庭鉴定人黄丞仪】
+https://www.twreporter.org/a/ill-gotten-party-assets-constitutional-interpretation-interview?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram 来源： https://telete.in/twreporter/884
+
+=======
+
+《每日文章精选 2020-09-02》 https://t.me/daily_read 
+
+1. 【整点阳间的卫生巾广告吧！】https://mp.weixin.qq.com/s/fQCdSG3IyAkqvmrhI6D-tw
+
+2. 【香港大学教授：女性友谊可以成为化解N号房悲剧的解药 | 造就Talk·郭婷】http://mp.weixin.qq.com/s/azz__mvewWbS3OucJs-qiQ
+
+3. 【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】https://www.thepaper.cn/newsDetail_forward_5263691
+
+4. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
+
+5. 【疫论·社会｜疫情扑灭全球社运薪火，白人右翼垄断抗争者形象】https://www.thepaper.cn/newsDetail_forward_7462272
