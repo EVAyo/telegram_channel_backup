@@ -9119,3 +9119,65 @@ https://www.twreporter.org/a/ill-gotten-party-assets-constitutional-interpretati
 4. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
 
 5. 【疫论·社会｜疫情扑灭全球社运薪火，白人右翼垄断抗争者形象】https://www.thepaper.cn/newsDetail_forward_7462272
+
+=======
+
+《每日文章精选 2020-09-03》 https://t.me/daily_read 
+
+1. 【伞运创伤与情感政治】http://telegra.ph/%25E4%25BC%259E%25E8%25BF%2590%25E5%2588%259B%25E4%25BC%25A4%25E4%25B8%258E%25E6%2583%2585%25E6%2584%259F%25E6%2594%25BF%25E6%25B2%25BB-09-03
+
+2. 【「左翼失语」，还是被消声的抗争主体？】http://telegra.ph/%25E5%25B7%25A6%25E7%25BF%25BC%25E5%25A4%25B1%25E8%25AF%25AD%25E8%25BF%2598%25E6%2598%25AF%25E8%25A2%25AB%25E6%25B6%2588%25E5%25A3%25B0%25E7%259A%2584%25E6%258A%2597%25E4%25BA%2589%25E4%25B8%25BB%25E4%25BD%2593-09-03
+
+3. 【我的政卝治卝性卝抑卝郁】https://www.douban.com/note/776215669/
+
+4. 【【評論】陳美霞／新冠病毒照妖鏡：市場導向下的公衛危機現形】https://www.twreporter.org/a/opinion-covid-19-reflect-public-health-problem
+
+5. 【世外桃源或與世隔絕──荷蘭如何處置犯下重罪的精神疾患者？】https://www.twreporter.org/a/netherlands-prison-system-mental-illness
+
+=======
+
+《每日文章精选 2020-09-03》 https://t.me/daily_read 
+
+1. 【卫生巾是女性用品，卫生巾广告却从未放弃服务男性】https://www.thepaper.cn/newsDetail_forward_9009983
+
+2. 【整点阳间的卫生巾广告吧！】https://mp.weixin.qq.com/s/fQCdSG3IyAkqvmrhI6D-tw
+
+3. 【香港大学教授：女性友谊可以成为化解N号房悲剧的解药 | 造就Talk·郭婷】http://mp.weixin.qq.com/s/azz__mvewWbS3OucJs-qiQ
+
+4. 【从私人武装镇压到“工会规避”咨询：美国反工会产业的历史】https://www.thepaper.cn/newsDetail_forward_5263691
+
+5. 【疫论·劳动｜疫情下的美国工作：在家办公，等于在家失业】https://www.thepaper.cn/newsDetail_forward_6698738
+
+=======
+
+每日文章精选
+
+【整点阳间的卫生巾广告吧！】
+愿你无论何时，都不必为自己，在经期难堪的时刻感到抱歉。 https://mp.weixin.qq.com/s/fQCdSG3IyAkqvmrhI6D-tw
+
+【关于温铁军的视频的争...】
+关于温铁军的视频的争论，推荐大家看看《都市里的农家女》一书。以“都市农家女”的个体经验为基础，叙述了她们的生活经历与日常决策。其中有一章专门分析了她们为什么不回乡。经济问题是很重要的因素，但性别因素所占比例不低，而且基本是很多人的决定性因素。我截的图里也有提到土地分配问题，但土地如何分配也受到了性别因素的影响，让年轻女性边缘化了。总之，温大佬和他的追随者们可以来了解一下，农村女性为什么不愿意回到农村。这个问题不是产权分析和经济学分析能完全涵盖的。 http://www.douban.com/people/2179521/status/3092217416
+
+【我的政治性抑郁】
+我的政治性抑郁 https://www.douban.com/note/776215669
+
+【还是有好消息的。随着...】
+还是有好消息的。随着尼日利亚宣布消除骨髓灰质炎，整个非洲至此实现了对小儿麻痹症的全面防控。 通过普及疫苗，95%的人群达成免疫。真正的群体免疫。不是放任“自然感染”。 http://m.weibo.cn/status/JhC8B24i9
+
+【【京都塔亮起彩虹灯，...】
+【京都塔亮起彩虹灯，迎接伴侣宣誓制度】日本京都市的伴侣宣誓制度今日（9月1日）正式生效，允许同性伴侣进行登记。生效首日共有5对同性情侣进行宣誓并领取伴侣关系证明书和卡式证件。为迎接和庆祝伴侣宣誓制度正式生效的日子，京都市的著名地标建筑京都塔在8月31日和9月1日晚间亮起代表着彩虹旗的六色灯光。此外，位于京都市的世界文化遗产，古建筑群二条城也在9月1日晚间被彩色灯光照亮。根据NHK报道，伴侣关系证明在继承、减税等方面没有法律效力，但持有证明文件的伴侣将被视为婚姻配偶，可以顺利办理公宅入住，并拥有在公立医院中为伴侣代签同意书的权利。 http://www.douban.com/people/216788459/status/3091610770 https://www.city.kyoto.lg.jp/bunshi/page/0000272923.html
+
+【【谈论性别暴力时，请...】
+【谈论性别暴力时，请用施害者作主语】 http://m.weibo.cn/status/JiElS0kSC
+
+【【鲸鱼】 鲸的语言】
+【鲸鱼】 鲸的语言 视频整理了19种鲸类的声音 有听着舒心的，有听着烦人的，有听着刺耳的，还有不仔细听听不见的 鲸家正经有几个破锣嗓子[笑cry] 原声未做调整，大部分为水听器录制，原始声音文件及图照大部分来自NOAA。 http://m.weibo.cn/status/JiLsV70o6
+
+【根本不是穿衣自由的问题】
+https://www.douban.com/note/776242449
+
+【在深圳，有20万孩子凌晨5点去香港上学】
+https://m.thepaper.cn/newsDetail_forward_8962887
+
+【【#多位神经学家质疑...】
+【#多位神经学家质疑马斯克脑机接口#：无突破性技术，马斯克回应】8月28日，马斯克通过直播展示其脑机接口公司Neuralink最新进展。发布会结束后，许多专家表示，马斯克的演示实际上有很多毛病。马斯克在设计设备时展现了扎实的工程能力，但对于神经学来说没有突破。 http://m.weibo.cn/status/JiNdjaEgO
