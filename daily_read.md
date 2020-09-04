@@ -9181,3 +9181,37 @@ https://m.thepaper.cn/newsDetail_forward_8962887
 
 【【#多位神经学家质疑...】
 【#多位神经学家质疑马斯克脑机接口#：无突破性技术，马斯克回应】8月28日，马斯克通过直播展示其脑机接口公司Neuralink最新进展。发布会结束后，许多专家表示，马斯克的演示实际上有很多毛病。马斯克在设计设备时展现了扎实的工程能力，但对于神经学来说没有突破。 http://m.weibo.cn/status/JiNdjaEgO
+
+=======
+
+每日文章精选
+
+【福建省公费师范生，限...】
+福建省公费师范生，限男生，免费教育，专职招聘，单列招生。研究生同用此政策 军警校限男生，怎么师范生也限男生了呢？而且还有的是幼儿师范限男生？这是有什么特殊任务吗？ 这得多少女孩的读书机会被挤掉了啊？ http://m.weibo.cn/status/Jj58yaFnM
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【【#多位神经学家质疑...】
+【#多位神经学家质疑马斯克脑机接口#：无突破性技术，马斯克回应】8月28日，马斯克通过直播展示其脑机接口公司Neuralink最新进展。发布会结束后，许多专家表示，马斯克的演示实际上有很多毛病。马斯克在设计设备时展现了扎实的工程能力，但对于神经学来说没有突破。 http://m.weibo.cn/status/JiNdjaEgO
+
+【Tweetable Mathematics】
+可推特的数学: https://mathoverflow.net/questions/268222/tweetable-mathematics
+
+【【京都塔亮起彩虹灯，...】
+【京都塔亮起彩虹灯，迎接伴侣宣誓制度】日本京都市的伴侣宣誓制度今日（9月1日）正式生效，允许同性伴侣进行登记。生效首日共有5对同性情侣进行宣誓并领取伴侣关系证明书和卡式证件。为迎接和庆祝伴侣宣誓制度正式生效的日子，京都市的著名地标建筑京都塔在8月31日和9月1日晚间亮起代表着彩虹旗的六色灯光。此外，位于京都市的世界文化遗产，古建筑群二条城也在9月1日晚间被彩色灯光照亮。根据NHK报道，伴侣关系证明在继承、减税等方面没有法律效力，但持有证明文件的伴侣将被视为婚姻配偶，可以顺利办理公宅入住，并拥有在公立医院中为伴侣代签同意书的权利。 http://www.douban.com/people/216788459/status/3091610770 https://www.city.kyoto.lg.jp/bunshi/page/0000272923.html
+
+【【因支付宝要求书籍审...】
+【因支付宝要求书籍审查，Readmoo读墨停止支持支付宝】 http://m.weibo.cn/status/JgXr2AHJJ https://news.readmoo.com/2020/08/21/new-new-update-01
+
+【《不公平的代价》序言...】
+《不公平的代价》序言： 美国银行家、大公司等特殊利益关系的游说已到了极恐怖的程度。2007年，有188名联邦参议员和众议员卸任后正式转任游说客。而在1998至2004年间，半数卸任的参议员、42％的卸任众议员都成了游说客。大公司的老板高干和政治权贵早已混合为一。这时候再说什么「政府有能」，早已成了空谈；「政府失能」已成了常态。 https://telete.in/dushufenxiang/1206
+
+【猫咪一无所有，为何能给人类安慰？】
+%E7%8C%AB%E5%92%AA%E4%B8%80%E6%97%A0%E6%89%80%E6%9C%89%E4%B8%BA%E4%BD%95%E8%83%BD%E7%BB%99%E4%BA%BA%E7%B1%BB%E5%AE%89%E6%85%B0-09-02-2 来源： https://telete.in/pincongessence
+
+【【评论】陈美霞／新冠病毒照妖镜：市场导向下的公卫危机现形】
+回归公共卫生的本质：公卫体系是一个有组织的、必须由政府承担起来的、促进及维护全民健康及生命的集体事业。 https://www.twreporter.org/a/opinion-covid-19-reflect-public-health-problem | https://telete.in/tw_reporter_org/27
+
+【PBS前线 美国大分裂:从奥巴马到特朗普 1/2 ... 来自水山水山水山 - 微博】
+【PBS纪录片】美国大分裂 - 从奥巴马到特朗普 | https://www.weibo.com/5872636712/IsuTyoUvP | https://www.weibo.com/5872636712/ItmjS8DVr | https://telete.in/LiberalegalitarianisminChinese/3950
