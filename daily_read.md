@@ -9215,3 +9215,45 @@ David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
 
 【PBS前线 美国大分裂:从奥巴马到特朗普 1/2 ... 来自水山水山水山 - 微博】
 【PBS纪录片】美国大分裂 - 从奥巴马到特朗普 | https://www.weibo.com/5872636712/IsuTyoUvP | https://www.weibo.com/5872636712/ItmjS8DVr | https://telete.in/LiberalegalitarianisminChinese/3950
+
+=======
+
+《每日文章精选 2020-09-04》 https://t.me/daily_read 
+
+1. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+2. 【卫生巾是女性用品，卫生巾广告却从未放弃服务男性】https://www.thepaper.cn/newsDetail_forward_9009983
+
+3. 【整点阳间的卫生巾广告吧！】https://mp.weixin.qq.com/s/fQCdSG3IyAkqvmrhI6D-tw
+
+4. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+5. 【在深圳，有20万孩子凌晨5点去香港上学】https://m.thepaper.cn/newsDetail_forward_8962887
+
+=======
+
+《每日文章精选 2020-09-05》 https://t.me/daily_read 
+
+1. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+2. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+3. 【卫生巾是女性用品，卫生巾广告却从未放弃服务男性】https://www.thepaper.cn/newsDetail_forward_9009983
+
+4. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+5. 【在深圳，有20万孩子凌晨5点去香港上学】https://m.thepaper.cn/newsDetail_forward_8962887
+
+=======
+
+《每日文章精选 2020-09-05》 https://t.me/daily_read 
+
+1. 【2020-09-05-高耀洁：我一生几次逃难｜广场｜端传媒 Initium Media】https://u.nu/ns9sk
+
+2. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+3. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+4. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+5. 【端传媒 | 蒙语教学风波：模范自治区不再，北京不要朋友，宁要敌人？】http://telegra.ph/%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592--%25E8%2592%2599%25E8%25AF%25AD%25E6%2595%2599%25E5%25AD%25A6%25E9%25A3%258E%25E6%25B3%25A2%25E6%25A8%25A1%25E8%258C%2583%25E8%2587%25AA%25E6%25B2%25BB%25E5%258C%25BA%25E4%25B8%258D%25E5%2586%258D%25E5%258C%2597%25E4%25BA%25AC%25E4%25B8%258D%25E8%25A6%2581%25E6%259C%258B%25E5%258F%258B%25E5%25AE%2581%25E8%25A6%2581%25E6%2595%258C%25E4%25BA%25BA-09-04
