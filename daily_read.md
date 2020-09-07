@@ -9285,3 +9285,51 @@ David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
 4. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
 
 5. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+=======
+
+每日文章精选
+
+【记者卧底四个月，揭露美国监狱虐待犯人、利用犯人牟利的黑历史】
+http://mp.weixin.qq.com/s?__biz=MjM5NTUxOTc4Mw==&amp;mid=2650497466&amp;idx=4&amp;sn=01c78170caf876190c5bf543a4a18dbc
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【Watch College Behind Bars | A Film by Lynn Novick | PBS | Ken Burns】
+https://www.pbs.org/kenburns/college-behind-bars
+
+【【公开课】斯坦福大学: 从生物学看人类行为_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/BV1c741167Wx?seid=9150943472185058440
+
+【《不公平的代价》序言...】
+《不公平的代价》序言： 美国银行家、大公司等特殊利益关系的游说已到了极恐怖的程度。2007年，有188名联邦参议员和众议员卸任后正式转任游说客。而在1998至2004年间，半数卸任的参议员、42％的卸任众议员都成了游说客。大公司的老板高干和政治权贵早已混合为一。这时候再说什么「政府有能」，早已成了空谈；「政府失能」已成了常态。 https://telete.in/dushufenxiang/1206
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【新浪潮：黑人创作者正在用恐怖片同仇恨对抗】
+https://www.douban.com/note/776328908
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【《不公平的代价：破解...】
+《不公平的代价：破解阶级对立的金权结构》 作者：诺贝尔经济学奖得主斯蒂格利茨
+
+【【因支付宝要求书籍审...】
+【因支付宝要求书籍审查，Readmoo读墨停止支持支付宝】 http://m.weibo.cn/status/JgXr2AHJJ https://news.readmoo.com/2020/08/21/new-new-update-01
+
+=======
+
+《每日文章精选 2020-09-07》 https://t.me/daily_read 
+
+1. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+2. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+3. 【历史性立法！丹麦修订强奸罪定义，坚定捍卫女性平等和安全】https://mp.weixin.qq.com/s/nJTNujJds33QTGGZkhmiaA
+
+4. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+5. 【卫生巾是女性用品，卫生巾广告却从未放弃服务男性】https://www.thepaper.cn/newsDetail_forward_9009983
