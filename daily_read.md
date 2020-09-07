@@ -9260,4 +9260,28 @@ David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
 
 =======
 
-每日文章精选
+《每日文章精选 2020-09-06》 https://t.me/daily_read 
+
+1. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+2. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+3. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
+
+4. 【卫生巾是女性用品，卫生巾广告却从未放弃服务男性】https://www.thepaper.cn/newsDetail_forward_9009983
+
+5. 【在深圳，有20万孩子凌晨5点去香港上学】https://m.thepaper.cn/newsDetail_forward_8962887
+
+=======
+
+《每日文章精选 2020-09-06》 https://t.me/daily_read 
+
+1. 【许煜悼格雷伯：如果你不相信乌托邦，你一定是傻瓜】https://m.thepaper.cn/newsDetail_forward_9043437
+
+2. 【2020-09-05-高耀洁：我一生几次逃难｜广场｜端传媒 Initium Media】https://u.nu/ns9sk
+
+3. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+4. 【“金权政治范式的民粹主义”：美国共和党的当代统治策略】https://www.thepaper.cn/newsDetail_forward_8889315
+
+5. 【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】https://www.thepaper.cn/newsDetail_forward_9025830
