@@ -915,3 +915,11 @@ https://t.me/LiberalegalitarianisminChinese/7388
 =======
 
 对了，大家有没有身边愿意参加BLM游行，居住在加州湾区的朋友？（我一位同学想要找人一起参加游行）
+
+=======
+
+https://t.me/feminist_discuss/5259
+
+=======
+
+一个有趣的对话，欢迎大家加入讨论~
