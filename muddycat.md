@@ -923,3 +923,11 @@ https://t.me/feminist_discuss/5259
 =======
 
 一个有趣的对话，欢迎大家加入讨论~
+
+=======
+
+https://t.me/LiberalegalitarianisminChinese/9919
+
+=======
+
+https://t.me/ProgressiveLighthouse/49
