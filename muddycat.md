@@ -931,3 +931,9 @@ https://t.me/LiberalegalitarianisminChinese/9919
 =======
 
 https://t.me/ProgressiveLighthouse/49
+
+=======
+
+《政治的道德》周保松
+
+1. 左派和右派之争，根本不应视为平等与自由之争，而应视为要什么样的平等和什么样的自由之争。
