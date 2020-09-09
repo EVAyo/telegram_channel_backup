@@ -9343,3 +9343,17 @@ https://www.douban.com/note/776328908
 
 【Land Artis...】
 Land Artist & PixieCast Botanical Eco Resin Artist Hannah Bullen-Ryner http://hannahbullenphotogra.wixsite.com/hannahbullen-ryner-l
+
+=======
+
+《每日文章精选 2020-09-09》 https://t.me/daily_read 
+
+1. 【格雷伯的礼物｜技术减速主义：我们为什么没等来“飞行汽车”】https://www.thepaper.cn/newsDetail_forward_9091236
+
+2. 【越来越火的hentai porn，满足了这届年轻人猎奇又多样的性癖好】https://mp.weixin.qq.com/s/QMhjdpkrGooriiBEcxyC4g
+
+3. 【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】https://www.thepaper.cn/newsDetail_forward_9065116
+
+4. 【历史性立法！丹麦修订强奸罪定义，坚定捍卫女性平等和安全】https://mp.weixin.qq.com/s/nJTNujJds33QTGGZkhmiaA
+
+5. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
