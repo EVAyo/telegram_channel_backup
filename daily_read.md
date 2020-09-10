@@ -9357,3 +9357,51 @@ Land Artist & PixieCast Botanical Eco Resin Artist Hannah Bullen-Ryner http://ha
 4. 【历史性立法！丹麦修订强奸罪定义，坚定捍卫女性平等和安全】https://mp.weixin.qq.com/s/nJTNujJds33QTGGZkhmiaA
 
 5. 【“隐藏选民”假说与民调预测失准——基于2016年美国大选的检验】https://mp.weixin.qq.com/s/azVa8XK4vGzTajPhnlzZ_A
+
+=======
+
+每日文章精选
+
+【我的政治性抑郁】
+我的政治性抑郁 https://www.douban.com/note/776215669
+
+【“反作用假说”认为，...】
+“反作用假说”认为，在辟谣过程中提及错误信息可能会适得其反。人们可能会记住错误信息，而不是辟谣的内容。 一项新的研究 否定 了“反作用假说”。 https://pubmed.ncbi.nlm.nih.gov/32844338
+
+【伞运创伤与情感政治】
+（去年）9月3日于理工大学举办的一个伞运研讨会中，最后一场是几位积极参与的女生讲述她们经受的语言暴力的伤害。网上的攻击并非侧重于她们的政治立场或行动策略，而是集中于评头论足、私人品行，以谩骂贬抑她们的人格、否定她们的存在价值。 这种网络欺凌不仅针对议题的内容，尝试界定什么观点值得讨论，什么观点必须压制；更同时在意于消灭被攻击者的主体，彻底否定他们在公共领域的发言资格，甚至不把他们当作为人。 明报: https://matters.news/%40PK_Hui2020/%25E5%2582%2598%25E9%2581%258B%25E5%2589%25B5%25E5%2582%25B7%25E8%2588%2587%25E6%2583%2585%25E6%2584%259F%25E6%2594%25BF%25E6%25B2%25BB-bafyreiaqflu5qtsaxsi2ovjlai5dnsiahpxlsyhmitggx4x3fkbt42azcq
+
+【「左翼失语」，还是被消声的抗争主体？】
+社会运动的其中一个特色，就是从与民众或（准）抗争者一起参与和学习的过程中，不断发展出新的语言，以更准确地理解他们的声音，并以此介入运动，校正抗争的方向。 正如Stuart Hall所说，「政治并不反映多数、而是建构多数」。 「失语」的说法，只是反映的了「左翼」过于固守其过去的语言，一种于特定的历史和社会脉络下所创建的语言，因而无法或不愿发展出既能符合「左翼」的终极关怀、又能于新时局中回应民众的情感与诉求的论述。 https://matters.news/%40PK_Hui2020/%25E5%25B7%25A6%25E7%25BF%25BC%25E5%25A4%25B1%25E8%25AA%259E-%25E9%2582%2584%25E6%2598%25AF%25E8%25A2%25AB%25E6%25B6%2588%25E8%2581%25B2%25E7%259A%2584%25E6%258A%2597%25E7%2588%25AD%25E4%25B8%25BB%25E9%25AB%2594-bafyreiffnjhocnx4xhqytk7hylbwnp2upoco4iyewm5bift6rxeypnqxte
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【“金权政治范式的民粹主义”：美国共和党的当代统治策略】
+1. 从十九世纪到二十世纪初，欧洲的保守主义政党往往通过同时向富裕阶层提供财产保护和向社会大众推销国族主义双管齐下，来争取广泛的政治拥护和支持。 2. 与历史上的保守主义政党相比，现在的美国共和党对于其大金主的经济利益的回馈可说是到了史无前例的地步。因为以往的保守主义政党在面临人民普遍的不满和抵制情绪时，往往还会做一些妥协，向工薪阶层释出一些经济上的利好，但今日之美国共和党似乎完全无意这样做。 https://www.thepaper.cn/newsDetail_forward_8889315
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【关于如何将女儿培养成...】
+关于如何将女儿培养成为一名女权主义者的15条建议。 ——《亲爱的安吉维拉》奇玛曼达·恩戈兹·阿迪契 | http://m.weibo.cn/status/Jjy12CNoJ
+
+【《不公平的代价：破解...】
+《不公平的代价：破解阶级对立的金权结构》 作者：诺贝尔经济学奖得主斯蒂格利茨
+
+【Corona读书会第6期 | 动物、病毒与人类世】
+http://mp.weixin.qq.com/s/vcHOK12V8UK0DvnjnuUatA
+
+=======
+
+《每日文章精选 2020-09-10》 https://t.me/daily_read 
+
+1. 【选举人团制度将毁掉美国】https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483746&idx=1&sn=fc1d38c5dda62737b7d67739bbfcf751
+
+2. 【格雷伯的礼物｜技术减速主义：我们为什么没等来“飞行汽车”】https://www.thepaper.cn/newsDetail_forward_9091236
+
+3. 【越来越火的hentai porn，满足了这届年轻人猎奇又多样的性癖好】https://mp.weixin.qq.com/s/QMhjdpkrGooriiBEcxyC4g
+
+4. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
+
+5. 【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】https://www.thepaper.cn/newsDetail_forward_9065116
