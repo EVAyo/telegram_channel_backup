@@ -9405,3 +9405,17 @@ http://mp.weixin.qq.com/s/vcHOK12V8UK0DvnjnuUatA
 4. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
 
 5. 【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】https://www.thepaper.cn/newsDetail_forward_9065116
+
+=======
+
+《每日文章精选 2020-09-11》 https://t.me/daily_read 
+
+1. 【格雷伯的礼物︱论领带的权力悖论：一根男性象征物的位移】https://www.thepaper.cn/newsDetail_forward_9119358
+
+2. 【选举人团制度将毁掉美国】https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483746&idx=1&sn=fc1d38c5dda62737b7d67739bbfcf751
+
+3. 【格雷伯的礼物｜技术减速主义：我们为什么没等来“飞行汽车”】https://www.thepaper.cn/newsDetail_forward_9091236
+
+4. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
+
+5. 【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】https://www.thepaper.cn/newsDetail_forward_9065116
