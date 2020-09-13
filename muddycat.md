@@ -1027,3 +1027,7 @@ https://t.me/c/1338699391/14599 入口： @ProgressiveLighthouse
 =======
 
 https://t.me/LiberalegalitarianisminChinese/10602
+
+=======
+
+大家对这篇文章怎么看？ theowl.hk/2020/08/11/紀念廣島長崎大屠殺-｜-cham

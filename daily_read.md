@@ -9419,3 +9419,51 @@ http://mp.weixin.qq.com/s/vcHOK12V8UK0DvnjnuUatA
 4. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
 
 5. 【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】https://www.thepaper.cn/newsDetail_forward_9065116
+
+=======
+
+每日文章精选
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【《不公平的代价》序言...】
+《不公平的代价》序言： 美国银行家、大公司等特殊利益关系的游说已到了极恐怖的程度。2007年，有188名联邦参议员和众议员卸任后正式转任游说客。而在1998至2004年间，半数卸任的参议员、42％的卸任众议员都成了游说客。大公司的老板高干和政治权贵早已混合为一。这时候再说什么「政府有能」，早已成了空谈；「政府失能」已成了常态。 https://telete.in/dushufenxiang/1206
+
+【格雷伯的礼物｜自述：我是怎样成为一个无政府主义者的】
+https://www.thepaper.cn/newsDetail_forward_9025830
+
+【卫生巾争议在日本：无袋运动和拟人漫画都无法消除结构性不安】
+https://www.thepaper.cn/newsDetail_forward_9065116
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【端传媒 | 蒙语教学风波：模范自治区不再，北京不要朋友，宁要敌人？】
+https://theinitium.com/article/20200904-opinion-mongolian-language-protest-china 消息来源: https://telete.in/dc4060a5/3047
+
+【《不公平的代价：破解...】
+《不公平的代价：破解阶级对立的金权结构》 作者：诺贝尔经济学奖得主斯蒂格利茨
+
+【Watch College Behind Bars | A Film by Lynn Novick | PBS | Ken Burns】
+https://www.pbs.org/kenburns/college-behind-bars
+
+【猫咪一无所有，为何能给人类安慰？】
+%E7%8C%AB%E5%92%AA%E4%B8%80%E6%97%A0%E6%89%80%E6%9C%89%E4%B8%BA%E4%BD%95%E8%83%BD%E7%BB%99%E4%BA%BA%E7%B1%BB%E5%AE%89%E6%85%B0-09-02-2 来源： https://telete.in/pincongessence
+
+=======
+
+《每日文章精选 2020-09-12》 https://t.me/daily_read 
+
+1. 【「黑人天生智商低」？从科学理论和实证角度的考察】https://mp.weixin.qq.com/s/YACT-uAhlAiNwll0K3qPKQ
+
+2. 【外卖骑手何处去？破解零工经济困局的三条出路】https://www.thepaper.cn/newsDetail_forward_9131939
+
+3. 【格雷伯的礼物︱论领带的权力悖论：一根男性象征物的位移】https://www.thepaper.cn/newsDetail_forward_9119358
+
+4. 【选举人团制度将毁掉美国】https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483746&idx=1&sn=fc1d38c5dda62737b7d67739bbfcf751
+
+5. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
