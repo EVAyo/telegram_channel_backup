@@ -1031,3 +1031,11 @@ https://t.me/LiberalegalitarianisminChinese/10602
 =======
 
 大家对这篇文章怎么看？ theowl.hk/2020/08/11/紀念廣島長崎大屠殺-｜-cham
+
+=======
+
+“2004年，全美处决的59名死刑犯平均在监狱里关了11年。据统计，佛罗里达州一个死囚从被判处死刑到执行要花费2400万美元，得克萨斯州的死囚年均花费高达230万美元，这个数字相当于关押3个普通犯人40年的花费。”
+
+http://www.iolaw.org.cn/showArticle.aspx?id=1963
+
+关于废除死刑的讨论。来源： https://t.me/LiberalegalitarianisminChinese/12062
