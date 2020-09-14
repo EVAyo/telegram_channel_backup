@@ -9467,3 +9467,37 @@ https://www.pbs.org/kenburns/college-behind-bars
 4. 【选举人团制度将毁掉美国】https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483746&idx=1&sn=fc1d38c5dda62737b7d67739bbfcf751
 
 5. 【姚星亮 | 小姐主体之性问题——兼论敏感问题社会学研究之困与思】https://mp.weixin.qq.com/s/WAWfeyxJgBjkb0UBmab6hQ
+
+=======
+
+每日文章精选
+
+【How Does the Human Soul Survive Atrocity?】
+https://t.me/pincongessence ｜ https://dartcenter.org/resources/how-does-human-soul-survive-atrocity
+
+【【不要再揣测女孩的膝...】
+【不要再揣测女孩的膝盖了】 在中文互联网我们总能看到这样的评论：“看她膝盖就知道她有没有男朋友了”。这样的揣测抱有的对性的污名和对女性的羞辱自不必说，但是问题是这还是个很无知的说法。 男性的皮肤平均比女性的皮肤厚。女生皮肤相对较薄，对皮下血管提供的保护也就更少。淤青通常来自于皮下毛细血管破裂，有研究显示，雌激素可能会阻止血管壁形成、修复，致使血管扩张。这意味着女性皮下出血后会有更多的血液流出，形成更大面积的淤青。 多数情况下，没印象的淤青，不需要太过担心。 http://m.weibo.cn/status/Jk939u7wv
+
+【“反作用假说”认为，...】
+“反作用假说”认为，在辟谣过程中提及错误信息可能会适得其反。人们可能会记住错误信息，而不是辟谣的内容。 一项新的研究 否定 了“反作用假说”。 https://pubmed.ncbi.nlm.nih.gov/32844338
+
+【UNDER A STAR CALLED SUN by cecile richard】
+独立游戏 https://haraiva.itch.io/under-a-star-called-sun 音乐 https://soundcloud.com/haraiva/elegy-for-a-cosmonaut
+
+【天价药也能自己造，美国的生物黑客有多野？】
+https://www.douban.com/note/777514067
+
+【格雷伯的礼物︱论领带的权力悖论：一根男性象征物的位移】
+女性的正装则让穿着者既是一个个体，又是一个被观看的客体。确实，上流社会的时尚风俗，保证了任何穿这种服装的女性都不得不花费大量的时间和精力来监督自己，确认不会过于暴露，而且——更广义地说——时刻想着自己看起来怎么样。 直到现在还是这样。回忆一下你们高中毕业舞会的性战场（sexual battleground）上那种两极分化的时尚吧。男孩全都穿得一模一样。实际上他们就像穿着同一套制服。但如果两个女孩最后穿了同一条裙子，那么，哦，真丢脸。 https://www.thepaper.cn/newsDetail_forward_9119358
+
+【夏天的颜色。】
+夏天的颜色。 http://www.douban.com/people/22271802/status/3105618170
+
+【Powerpoint...】
+Powerpoint作为简单的图片处理工具还挺好用的。3D-Rotation功能，可以把字或者图旋转到与图中物体相似的角度，看起来就像“紧贴”在了图中的物体上一样 给友台 https://telete.in/chwebinars 中文社科资讯讲座试着做个广告牌 ?q=%23%E8%AE%BE%E8%AE%A1 ?q=%23design
+
+【#早读】
+?q=%23%E6%97%A9%E8%AF%BB ?q=%23%E9%9A%90%E7%A7%81 ?q=%23%E7%9B%91%E6%8E%A7 罗培新：只要把人分为三六九等，什么码什么分都不行，即便是以信用管理为名 「民众反对将违法情形赋予一定分值并以文明码对人的文明水平“精准画像”，而对商业平台根据交易状况形成信用分持宽容态度，是因为前者冒犯了人格平等和行动自由，属于社会范畴；而后者，则是市场自主交易之结果，属于商业范畴。直白地说，我能够容忍自己不用支付宝而没有芝麻信用分，但却绝不能接受我被划为三等公民，遭受歧视待遇。」 https://mp.weixin.qq.com/s/HI_htkijzMnhmL8VyViRjA
+
+【关于如何将女儿培养成...】
+关于如何将女儿培养成为一名女权主义者的15条建议。 ——《亲爱的安吉维拉》奇玛曼达·恩戈兹·阿迪契 | http://m.weibo.cn/status/Jjy12CNoJ
