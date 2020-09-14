@@ -1039,3 +1039,15 @@ https://t.me/LiberalegalitarianisminChinese/10602
 http://www.iolaw.org.cn/showArticle.aspx?id=1963
 
 关于废除死刑的讨论。来源： https://t.me/LiberalegalitarianisminChinese/12062
+
+=======
+
+用一个三体的比喻，新自由主义是这个时代的“智子”。
+
+我们可以看到新的app，新的电脑，新材料做成的汽车配件，甚至新的电动汽车，新的支付方式。
+
+但本质上，美国这三十年来的科技创新屈指可数。
+
+教育不均限制了人才的培养，而大部分人才不是投入金融，法律之中，便是汲汲于版权，著作权，专利权。
+
+（欢迎讨论）
