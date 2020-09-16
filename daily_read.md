@@ -9574,3 +9574,37 @@ https://mp.weixin.qq.com/s/h7011iekOLsIVeHhBSK1Lg
 
 【荒谬至极那天看到驾校...】
 荒谬至极那天看到驾校的广告开“女性VIP”班，保证教练不性骚扰、不辱骂。 教练不骚扰人不是最基本的吗？居然也要女人多付钱才能保证，那是不是报普通班的被骚扰了就要怪没报VIP啊？ 【女性受到的价格歧视：被“粉红税”伴随一生】近期，一些商品针对售卖对象不同搞起男女价格差异。同样价格的盒饭，男生版比女生版分量大？这让人联想到曾在国外闹得轰轰烈烈的“粉红税”事件。 http://m.weibo.cn/status/JkIuSfr7W
+
+=======
+
+每日文章精选
+
+【界面新闻 | 找回人民？民粹主义与“民主的悖论”】
+1. 人民的边界难题 （地理边界 / 投票年龄边界 / 移民限制的正当性） 2. 右翼民粹主义追求一种拥有共同文化或种族特征的民族意义上的人民；拉美的左翼民粹主义则试图从阶级的维度构想一种统一的人民。可以说，民粹主义这种对纯粹人民的执着追求恰恰反映了民主之下的 “人民的不确定性 ”所引发的焦虑。 https://www.jiemian.com/article/4916415.html
+
+【「黑人天生智商低」？从科学理论和实证角度的考察】
+「IQ天生」和「市场高效」两个概念，变成了互相合法化的一体两面。一方面，一个人在市场社会中处于不利地位，不是因为不公或压迫，而是能力不足；反过来，也只有自由市场才够高效辨别能力 (IQ) 高下，带来「公正」。用葛兰西的话来说，这正是「文化霸权」的最高体现 —— 统治者把自己的价值观推行为普遍「常识」或「自然状态」。 https://mp.weixin.qq.com/s/YACT-uAhlAiNwll0K3qPKQ
+
+【Watch College Behind Bars | A Film by Lynn Novick | PBS | Ken Burns】
+https://www.pbs.org/kenburns/college-behind-bars
+
+【“反作用假说”认为，...】
+“反作用假说”认为，在辟谣过程中提及错误信息可能会适得其反。人们可能会记住错误信息，而不是辟谣的内容。 一项新的研究 否定 了“反作用假说”。 https://pubmed.ncbi.nlm.nih.gov/32844338
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+【#早读】
+?q=%23%E6%97%A9%E8%AF%BB ?q=%23%E9%9A%90%E7%A7%81 ?q=%23%E7%9B%91%E6%8E%A7 罗培新：只要把人分为三六九等，什么码什么分都不行，即便是以信用管理为名 「民众反对将违法情形赋予一定分值并以文明码对人的文明水平“精准画像”，而对商业平台根据交易状况形成信用分持宽容态度，是因为前者冒犯了人格平等和行动自由，属于社会范畴；而后者，则是市场自主交易之结果，属于商业范畴。直白地说，我能够容忍自己不用支付宝而没有芝麻信用分，但却绝不能接受我被划为三等公民，遭受歧视待遇。」 https://mp.weixin.qq.com/s/HI_htkijzMnhmL8VyViRjA
+
+【程天君 | 权位的象征：开学典礼的社会逻辑】
+对学生而言，开学了，告别假期，步入学习轨道，练就社会本领，以备将来融入社会生活……这种看似自然而然的“求知识”、“学文化”的过程，若以社会学——社会学眼中没有“自然”，只有文化——的透镜来审视，则可发现它同时也是一种对受教育者驯顺、使之远离家庭与父辈的过程，一种使其对祖先与自我日渐背叛与双重谋杀的过程。一如布迪厄基于亲身体悟之后的感喟：开学仪式批准了在漫长的变革中完成归依的过程，每一次学业神圣化行动（如尖子主义）只是加深最初的裂痕，并且把这种裂痕建立在现实中和意识里；在这个意义上，获取文化便成了一种葬礼——它埋葬的是老人，而在此情景中，我们可以说它埋葬的是青年（和儿童），连同他的激情，他的欲望，简言之，他的本性。 https://mp.weixin.qq.com/s/lyc8_sGmAQj0mBorcPZvvw
+
+【市场不完全，尤其是资...】
+市场不完全，尤其是资讯不完全和「不理性」在经济模型中扮演十分重要的角色。 但相反的概念「只要政府不插手，市场就运作得很好」，却在某些公共论述中生根茁壮。 — 诺贝尔奖得主斯蒂格利茨《不公平的代价》
+
+【革时代的命 | 读者投稿 | 立场新闻】
+所谓时代革命，是我们认识到香港的沉沦，认识到时代的邪恶，于是我们必须起来，拯救自己。这不但要革政府的命，革制度的命，革社区的命，革关系的命，革文化的命，第一步我们首先要革自己的命。狠心地告诉自己：其实你从小就在谎言长大，你在收音机上所听，电视机上所见，教科书上所写的是时代给你的谎言，请撕开画布，直视背后的黑暗。 https://www.thestandnews.com/politics/%25E9%259D%25A9%25E6%2599%2582%25E4%25BB%25A3%25E7%259A%2584%25E5%2591%25BD
