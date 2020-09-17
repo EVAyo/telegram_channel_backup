@@ -9608,3 +9608,17 @@ Championing human rights in the face of violent racism, Patrisse is a survivor. 
 
 【革时代的命 | 读者投稿 | 立场新闻】
 所谓时代革命，是我们认识到香港的沉沦，认识到时代的邪恶，于是我们必须起来，拯救自己。这不但要革政府的命，革制度的命，革社区的命，革关系的命，革文化的命，第一步我们首先要革自己的命。狠心地告诉自己：其实你从小就在谎言长大，你在收音机上所听，电视机上所见，教科书上所写的是时代给你的谎言，请撕开画布，直视背后的黑暗。 https://www.thestandnews.com/politics/%25E9%259D%25A9%25E6%2599%2582%25E4%25BB%25A3%25E7%259A%2584%25E5%2591%25BD
+
+=======
+
+《每日文章精选 2020-09-17》 https://t.me/daily_read 
+
+1. 【David Graeber | 过于关怀是工人阶级的诅咒】https://mp.weixin.qq.com/s/rxTnhhE2Wd5mPHtPQTDzbA
+
+2. 【程天君 | 权位的象征：开学典礼的社会逻辑】https://mp.weixin.qq.com/s/lyc8_sGmAQj0mBorcPZvvw
+
+3. 【菅义伟没挑明的潜规则: 平民想做日本首相有多难? | 文化纵横】http://mp.weixin.qq.com/s/8EyTCYMfr_T_u6B5bClxOQ
+
+4. 【当个人信息掌握在一群疯子手里】https://www.douban.com/note/777751389
+
+5. 【如果美国队长是女人，我们会看到另一场艳照门吗？】https://mp.weixin.qq.com/s/h1Dh_MjsWg51BtAQRshV1w
