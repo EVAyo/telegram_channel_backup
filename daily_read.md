@@ -9653,3 +9653,65 @@ https://mp.weixin.qq.com/s/h7011iekOLsIVeHhBSK1Lg
 
 【我有个朋友说过，什么...】
 我有个朋友说过，什么时候出现原配和女小三儿联手干老公，什么时候主创人员的思维就进入发达社会意识序列了。 “别再拍独立女性打小三了。” http://m.weibo.cn/status/JkVYb8eFk
+
+=======
+
+《每日文章精选 2020-09-18》 https://t.me/daily_read 
+
+1. 【格雷伯的礼物｜（反）全球化运动与新新左派】https://www.thepaper.cn/newsDetail_forward_9204901
+
+2. 【David Graeber | 过于关怀是工人阶级的诅咒】https://mp.weixin.qq.com/s/rxTnhhE2Wd5mPHtPQTDzbA
+
+3. 【程天君 | 权位的象征：开学典礼的社会逻辑】https://mp.weixin.qq.com/s/lyc8_sGmAQj0mBorcPZvvw
+
+4. 【菅义伟没挑明的潜规则: 平民想做日本首相有多难? | 文化纵横】http://mp.weixin.qq.com/s/8EyTCYMfr_T_u6B5bClxOQ
+
+5. 【恐同教材是高校制度性恐同的一部分】https://mp.weixin.qq.com/s/h7011iekOLsIVeHhBSK1Lg
+
+=======
+
+《每日文章精选 2020-09-18》 https://t.me/daily_read 
+
+1. 【潘毅：中国工厂里的月经政治 - 红歌会网】http://m.szhgh.com/show.php?classid=49&id=248100
+
+2. 【特朗普政府将在美国应用商店中封禁微信和TikTok】https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban/
+
+3. 【数字工人主义：技术，平台和工人挣扎的循环】http://telegra.ph/%25E6%2595%25B0%25E5%25AD%2597%25E5%25B7%25A5%25E4%25BA%25BA%25E4%25B8%25BB%25E4%25B9%2589%25E6%258A%2580%25E6%259C%25AF%25E5%25B9%25B3%25E5%258F%25B0%25E5%2592%258C%25E5%25B7%25A5%25E4%25BA%25BA%25E6%258C%25A3%25E6%2589%258E%25E7%259A%2584%25E5%25BE%25AA%25E7%258E%25AF-09-18
+
+4. 【「停学不停课」】http://telegra.ph/%25E5%2581%259C%25E5%25AD%25A6%25E4%25B8%258D%25E5%2581%259C%25E8%25AF%25BE-09-18
+
+5. 【「生存政治」之外 改變新加坡的外傭制度】http://lausan.hk/2020/beyond-politics-of-survival-chinese
+
+=======
+
+每日文章精选
+
+【PBS前线 美国大分裂:从奥巴马到特朗普 1/2 ... 来自水山水山水山 - 微博】
+【PBS纪录片】美国大分裂 - 从奥巴马到特朗普 | https://www.weibo.com/5872636712/IsuTyoUvP | https://www.weibo.com/5872636712/ItmjS8DVr | https://telete.in/LiberalegalitarianisminChinese/3950
+
+【「停学不停课」】
+1. 学校扭曲了学童的自然成长，把他们改造为习惯服从以至于追求指令的被动消费者，依赖规章建制，以分数排比作为存在的价值指针。因此，学校不仅无法帮助学生解决问题，它本身就不断制造问题，而唯一的出路，就是打破学校对教育的垄断，解除文凭证书与强迫课程和考试，也就是他所指的废校（deschooling），据此来重新想像新的教育安排。 2. 从愈来愈普遍的「在家自学」（home-schooling），到遍地开花的网上或线下演讲、沙龙以至民间课程，以至内容广泛、数量繁多的网上学习资源，这些都足以构成废校以后的另类教育出路，也可以作为「Be realistic: ask for the impossible」的重要注脚。 https://matters.news/%40PK_Hui2020/%25E5%2581%259C%25E5%25AD%25B8%25E4%25B8%258D%25E5%2581%259C%25E8%25AA%25B2-bafyreiawtipvfj4o3rqw53lapb6t65k33ormobhvvazwg3qsdsacgp675q
+
+【性别对健康的影响到底有多大？《柳叶刀》全面综述，发病、诊断、治疗都存在广泛差异】
+https://mp.weixin.qq.com/s/LD1XLZCodJoqfrxLNHmO2g
+
+【How Does the Human Soul Survive Atrocity?】
+https://t.me/pincongessence ｜ https://dartcenter.org/resources/how-does-human-soul-survive-atrocity
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【特朗普政府将在美国应用商店中封禁微信和TikTok】
+这个【纽约时报】关于封禁TikTok、WeChat的报道是中文的，可能更清楚一点。TikTok的封禁日期是11月12日（但在9月20日以后将无法更新App）、WeChat是9月20日。 https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban
+
+【西藏阿里】
+西藏阿里 http://m.weibo.cn/status/Jl16VAiEl
+
+【【泛哲学】父权红利：无所不在的文化活化石】
+1. 女性主义倡议女性权益与男女平等，其实就跟因为个人主义兴起而出现废除奴隶制浪潮一样，我们不再把社会或是家庭视作最小的利益单位，而是「个人」。个体为最基础的利益单位就是个人主义，这也是为什么个人主义会发展出人权的概念，因为我们相信个人是不可化约或合并的利益单位。我可以为了自己的成绩熬夜，但是我没有义务为了别人的成绩，牺牲自己的睡眠，因为我跟别人是不一样的利益单位。 2. 当异性恋家庭作为一种利益单位， 男性的社会资源必须与女性共享。家庭作为一个利益单位时，就会出现女性以外貌，竞争高社会地位的男性，竞争成功的女性从中所截取的社会资源，甚至比低社会地位的男性多。（解释所谓的女性“父权红利”） https://philomedium.com/blog/80280
+
+【测试你的细节感知度的...】
+测试你的细节感知度的网站 http://cantunsee.space
+
+【现实：支援武汉医护7...】
+现实：支援武汉医护70%为女性。 电视：男的一起上去情愿，女人全部缩卵，男领导动员“女同志也出一个”。 现实：男童癫痫发病扯下护士面罩，护士立刻去做暴露处理。 电视：女童任性拉下护士面罩，护士惊慌地用手捂嘴。 这不是挑动对立，是PUA。 就骂得你女性什么都不是，没勇气、不专业，从儿童起就祸国殃民，男的肯要你你还不谢天谢地？ 主流媒体的影响力是巨大的，尤其对保守人群、受教育程度较低的人群。 现在大家懂得“敏感”是很好的，主流媒体矮化女性的行为必须停止。 http://www.douban.com/people/1145437/status/3110330745
