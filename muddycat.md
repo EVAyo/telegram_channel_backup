@@ -1051,3 +1051,13 @@ http://www.iolaw.org.cn/showArticle.aspx?id=1963
 教育不均限制了人才的培养，而大部分人才不是投入金融，法律之中，便是汲汲于版权，著作权，专利权。
 
 （欢迎讨论）
+
+=======
+
+学几个词： 
+
+- marginalized genders
+
+- racialized as (e.g. racialized as Black)
+
+- US empire (这是我第一次在英文出版物理看到“美帝”，查了查，发现 Jacobin 有些文章也会用这个词）

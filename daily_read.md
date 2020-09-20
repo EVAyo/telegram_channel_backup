@@ -9672,7 +9672,7 @@ https://mp.weixin.qq.com/s/h7011iekOLsIVeHhBSK1Lg
 
 《每日文章精选 2020-09-18》 https://t.me/daily_read 
 
-1. 【潘毅：中国工厂里的月经政治 - 红歌会网】http://m.szhgh.com/show.php?classid=49&id=248100
+1. 【潘毅：中国工厂里的月经政治】http://m.szhgh.com/show.php?classid=49&id=248100
 
 2. 【特朗普政府将在美国应用商店中封禁微信和TikTok】https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban/
 
@@ -9715,3 +9715,31 @@ David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
 
 【现实：支援武汉医护7...】
 现实：支援武汉医护70%为女性。 电视：男的一起上去情愿，女人全部缩卵，男领导动员“女同志也出一个”。 现实：男童癫痫发病扯下护士面罩，护士立刻去做暴露处理。 电视：女童任性拉下护士面罩，护士惊慌地用手捂嘴。 这不是挑动对立，是PUA。 就骂得你女性什么都不是，没勇气、不专业，从儿童起就祸国殃民，男的肯要你你还不谢天谢地？ 主流媒体的影响力是巨大的，尤其对保守人群、受教育程度较低的人群。 现在大家懂得“敏感”是很好的，主流媒体矮化女性的行为必须停止。 http://www.douban.com/people/1145437/status/3110330745
+
+=======
+
+《每日文章精选 2020-09-19》 https://t.me/daily_read 
+
+1. 【格雷伯的礼物｜（反）全球化运动与新新左派】https://www.thepaper.cn/newsDetail_forward_9204901
+
+2. 【为什么所有人都爱“声名狼藉”的大法官RBG？】https://www.douban.com/note/710309223
+
+3. 【David Graeber | 过于关怀是工人阶级的诅咒】https://mp.weixin.qq.com/s/rxTnhhE2Wd5mPHtPQTDzbA
+
+4. 【程天君 | 权位的象征：开学典礼的社会逻辑】https://mp.weixin.qq.com/s/lyc8_sGmAQj0mBorcPZvvw
+
+5. 【菅义伟没挑明的潜规则: 平民想做日本首相有多难? | 文化纵横】http://mp.weixin.qq.com/s/8EyTCYMfr_T_u6B5bClxOQ
+
+=======
+
+《每日文章精选 2020-09-19》 https://t.me/daily_read 
+
+1. 【凉小翠的广播】http://www.douban.com/people/2426251/status/3111019353/
+
+2. 【我們在一場支持香港的集會中站在對立的陣營 後來卻成為了朋友】https://lausan.hk/2019/we-stood-on-opposite-sides-at-a-pro-hong-kong-rally-and-became-friends-chinese
+
+3. 【潘毅：中国工厂里的月经政治】http://m.szhgh.com/show.php?classid=49&id=248100
+
+4. 【特朗普政府将在美国应用商店中封禁微信和TikTok】https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban/
+
+5. 【数字工人主义：技术，平台和工人挣扎的循环】http://telegra.ph/%25E6%2595%25B0%25E5%25AD%2597%25E5%25B7%25A5%25E4%25BA%25BA%25E4%25B8%25BB%25E4%25B9%2589%25E6%258A%2580%25E6%259C%25AF%25E5%25B9%25B3%25E5%258F%25B0%25E5%2592%258C%25E5%25B7%25A5%25E4%25BA%25BA%25E6%258C%25A3%25E6%2589%258E%25E7%259A%2584%25E5%25BE%25AA%25E7%258E%25AF-09-18
