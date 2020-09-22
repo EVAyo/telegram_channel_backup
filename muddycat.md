@@ -1061,3 +1061,9 @@ http://www.iolaw.org.cn/showArticle.aspx?id=1963
 - racialized as (e.g. racialized as Black)
 
 - US empire (这是我第一次在英文出版物理看到“美帝”，查了查，发现 Jacobin 有些文章也会用这个词）
+
+=======
+
+https://telegra.ph/%E4%BB%BB%E5%85%B6%E7%84%B6%E5%B7%A6%E7%BF%BC%E5%8A%A9%E9%95%BF%E4%BA%86%E6%96%B0%E8%87%AA%E7%94%B1%E4%B8%BB%E4%B9%89-09-22 请问大家怎么看这篇文章？
+
+主旨思想是在左翼对抗下，右翼会齐心协力搞经济，而不是互相打意识形态。拿英美德法举了例子。（作者现在是端传媒的编辑）
