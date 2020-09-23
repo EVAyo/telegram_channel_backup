@@ -9839,3 +9839,17 @@ https://www.pbs.org/kenburns/college-behind-bars
 
 【分享一首短诗，作者是...】
 分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+=======
+
+《每日文章精选 2020-09-23》 https://t.me/daily_read 
+
+1. 【【澎湃思想市场】努斯鲍姆：被视作一个女人而非一个人，是她们悲剧的开端】https://www.thepaper.cn/newsDetail_forward_9273450
+
+2. 【生门：一个麻醉医师目睹的分娩巨痛】https://mp.weixin.qq.com/s?__biz=MzIwNzM2MjA4OA==&mid=2247524509&idx=1&sn=653c8d98edfc741955103def8509f60f
+
+3. 【改变新冠诊断标准的女医生张笑春：疫情结束了，我的家散了】https://mp.weixin.qq.com/s/ASAm6HeeZ7h-uqouyiPe1A
+
+4. 【一篇药娘日记，记录了数万药娘的悲惨命运】https://mp.weixin.qq.com/s/fmFZnH9hZevvr0_mIcUBiw
+
+5. 【格雷伯的礼物丨访谈：“直接行动”与“预兆性政治”】https://www.thepaper.cn/newsDetail_forward_9180111
