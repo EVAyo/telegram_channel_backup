@@ -9853,3 +9853,37 @@ https://www.pbs.org/kenburns/college-behind-bars
 4. 【一篇药娘日记，记录了数万药娘的悲惨命运】https://mp.weixin.qq.com/s/fmFZnH9hZevvr0_mIcUBiw
 
 5. 【格雷伯的礼物丨访谈：“直接行动”与“预兆性政治”】https://www.thepaper.cn/newsDetail_forward_9180111
+
+=======
+
+每日文章精选
+
+【新浪潮：黑人创作者正在用恐怖片同仇恨对抗】
+https://www.douban.com/note/776328908
+
+【周保松，香港中文大学...】
+周保松，香港中文大学哲学系毕业，英国伦敦政治及经济学院博士，现为香港中文大学政治与行政学系副教授。研究兴趣为当代政治哲学，尤其是自由主义和社会正义理论。 本书尝试探究以下问题：政治为什么离不开道德？什么是自由主义的政治道德观？这种观点为何值得追求？作者以分析哲学的方法，检视和论证自由主义的核心理念，包括正当性、自由、权利、平等、民主、社会正义和市场等，并积极回应各种挑战。
+
+【上海外滩建筑群】
+上海外滩建筑群 http://www.douban.com/people/168946756/status/3115400321
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【林垚《“我也是”：作...】
+林垚《“我也是”：作为集体行动的公共舆论运动》 本文是计划中一系列两篇文章的上篇，旨在对MeToo运动质疑者的各种常见观点及论述加以较为全面系统的辨析及回应。第一节以美国与中国为例，梳理反性侵扰运动的地方脉络，及在各自脉络中发展出的问题意识与面临的挑战；在此基础上，总结MeToo运动追责、赋能与促变之三重诉求，并将质疑者的论调归纳为三大类型：“群氓批判”、“弱女子批判”与“道学家批判”。第二至四节针对“群氓批判”的不同版本做出回应，第五节着力批驳“弱女子批判”，至于“道学家批判”则留待系列的下篇再行讨论。
+
+【啊啊啊，在Pinte...】
+啊啊啊，在Pinterest上无意逛到一个超喜欢的画家——野地美树子。 色彩太戳我了，太好看了太好看了 附上官网地址： http://nojimikiko.jp
+
+【群组频道滚动推荐】
+推荐频道合集，欢迎大家关注： https://telete.in/channel_push
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
