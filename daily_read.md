@@ -9887,3 +9887,37 @@ David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
 
 【分享一首短诗，作者是...】
 分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+=======
+
+每日文章精选
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+【1989年，46岁的...】
+1989年，46岁的席慕容人生第一次踏上故乡的草原时泪如如下。从来只在父母的诉说中想象的地方，第一次呈现在眼前时，她说自己心中烧着一团火。她遗憾：“我会说国语、粤语、英语和法语，可是却不能用蒙古语唱完一首歌。在故乡这座课堂里，我既没有学籍也没有课本，只能是个迟来的旁听生。”“尽管后来用汉语写作，但我十分羡慕能用母语写作的年轻人，这种坚守民族文化本色的精神是现代社会极为欠缺的。” http://m.weibo.cn/status/JitEK6wtm
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【请转个身，面对黑暗，...】
+请转个身，面对黑暗，一开始你什么都看不到，但是等你的眼睛适应了，你就会发现黑暗的夜幕下群星闪烁。 我喜欢多丽丝·莱辛的《金色笔记》，喜欢安吉拉·卡特的《黑色维纳斯》，还有莉迪亚·戴维斯，阿特伍德，门罗和伍尔芙，还有几乎没人知道的女诗人Susan Hawthorne；中文的可以读一读王安忆和迟子建。 男作家只喜欢Salman Rushdie，他说莫言只是体制内的懦夫，这话真只有他配说。 https://telete.in/weibo_read/29313
+
+【群组频道滚动推荐】
+推荐频道合集，欢迎大家关注： https://telete.in/channel_push
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【周保松，香港中文大学...】
+周保松，香港中文大学哲学系毕业，英国伦敦政治及经济学院博士，现为香港中文大学政治与行政学系副教授。研究兴趣为当代政治哲学，尤其是自由主义和社会正义理论。 本书尝试探究以下问题：政治为什么离不开道德？什么是自由主义的政治道德观？这种观点为何值得追求？作者以分析哲学的方法，检视和论证自由主义的核心理念，包括正当性、自由、权利、平等、民主、社会正义和市场等，并积极回应各种挑战。
+
+【林垚《“我也是”：作...】
+林垚《“我也是”：作为集体行动的公共舆论运动》 本文是计划中一系列两篇文章的上篇，旨在对MeToo运动质疑者的各种常见观点及论述加以较为全面系统的辨析及回应。第一节以美国与中国为例，梳理反性侵扰运动的地方脉络，及在各自脉络中发展出的问题意识与面临的挑战；在此基础上，总结MeToo运动追责、赋能与促变之三重诉求，并将质疑者的论调归纳为三大类型：“群氓批判”、“弱女子批判”与“道学家批判”。第二至四节针对“群氓批判”的不同版本做出回应，第五节着力批驳“弱女子批判”，至于“道学家批判”则留待系列的下篇再行讨论。
