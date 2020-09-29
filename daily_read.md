@@ -10051,3 +10051,17 @@ https://theinitium.com/article/20200927-opinion-notes-public-life
 
 【哲学笔记1: 如何讨论民主】
 设计抽签系统去选择符合选民的人口特点的一群人来做议会代表，让她们任期内全职成为议员。 她们可以跳过费心费时的政治，有更多时间去学习重要的社会问题，不需要被缺乏思考的冲动民意绑架，不需要担心连任（不可以连任），可以作出更长远的选择而不是担心这对她们连任的影响。 1. https://matters.news/%40DriftIsland/%25E5%2593%25B2%25E5%25AD%25A6%25E7%25AC%2594%25E8%25AE%25B01-%25E5%25A6%2582%25E4%25BD%2595%25E8%25AE%25A8%25E8%25AE%25BA%25E6%25B0%2591%25E4%25B8%25BB-zdpuAs2VD6iP1cAzie9cBm9bM4vTkayjo48X9H75govg7hVfF 2. https://aeon.co/essays/forget-voting-it-s-time-to-start-choosing-our-leaders-by-lottery
+
+=======
+
+《每日文章精选 2020-09-29》 https://t.me/daily_read 
+
+1. 【未来没有金斯伯格，只有我们自己 | 随机波动】https://mp.weixin.qq.com/s/hFjU-DiNZi-wVDLgTU0E9w
+
+2. 【周保松：公共生活的意义】http://telegra.ph/%25E5%2591%25A8%25E4%25BF%259D%25E6%259D%25BE%25E5%2585%25AC%25E5%2585%25B1%25E7%2594%259F%25E6%25B4%25BB%25E7%259A%2584%25E6%2584%258F%25E4%25B9%2589-09-27
+
+3. 【1923年12月27日，日本东京虎门公园...】https://m.weibo.cn/detail/4544047940905350
+
+4. 【盲道上的盲人去哪了？】https://www.huxiu.com/article/384555.html
+
+5. 【2020-09-25-专访华裔智库学者：中澳关系入冬时，他们给澳洲办了一份“内参”｜深度｜端传媒 Initium Media】https://u.nu/ypqjo
