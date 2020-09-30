@@ -10065,3 +10065,65 @@ https://theinitium.com/article/20200927-opinion-notes-public-life
 4. 【盲道上的盲人去哪了？】https://www.huxiu.com/article/384555.html
 
 5. 【2020-09-25-专访华裔智库学者：中澳关系入冬时，他们给澳洲办了一份“内参”｜深度｜端传媒 Initium Media】https://u.nu/ypqjo
+
+=======
+
+每日文章精选
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【跳出“（反）政治正确”论述框架的思维陷阱】
+1. “华盛顿是国父，没有华盛顿就没有美国，拆除华盛顿雕像就等于否认整个美国历史”这样的叙事，难道不正是主流社会尊奉迄今的“政治正确”？从这个角度看，拆除华盛顿雕像，同样恰恰是在“反政治正确”，而不是在“搞政治正确”；即便你认为主张拆除华盛顿雕像的人是“无理取闹”，也应该说他们是“反政治正确反过了头”，而不是“搞政治正确搞过了头”。 2. 正是在这些意义上说，“（反）政治正确”这个论述框架本身其实完全是一种话术。它不但无助于推动更深入的关于表达自由与身份政治等议题的公共讨论，而且通过其笼统性与选择性，让习惯了这个论述框架的人陷入思维盲区，看不到现实案例中的种种复杂性，并且下意识地在社会文化议题上采取保守姿态，拥抱现状、抗拒变革。 https://matters.news/%40linsantu/%25E8%25B7%25B3%25E5%2587%25BA-%25E5%258F%258D-%25E6%2594%25BF%25E6%25B2%25BB%25E6%25AD%25A3%25E7%25A1%25AE-%25E8%25AE%25BA%25E8%25BF%25B0%25E6%25A1%2586%25E6%259E%25B6%25E7%259A%2584%25E6%2580%259D%25E7%25BB%25B4%25E9%2599%25B7%25E9%2598%25B1-bafyreiec445srmfvacj4akltodpq3o7scxw7gah44qgfrcecvmpnlukvgy
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【【澎湃】与金斯伯格同样值得被哀悼的，是美国最初就被压制的制宪权】
+https://www.thepaper.cn/newsDetail_forward_9312367
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【#社会】
+?q=%23%E7%A4%BE%E4%BC%9A ?q=%23%E6%95%99%E8%82%B2 绩点为王：中国顶尖高校年轻人的囚徒困境 「 “教育最重要的是动手、动心、动脑，但他们往往只会动脑。书本里的东西需要和自己的人生经验、人生困惑结合在一起，才能变成自己的东西。很多孩子在方法上很熟练，你给他们一个复杂的文本，他们会画思维导图，拆解一套逻辑结构给你，很像那么回事，可实际上他们无法把书本和经验联系在一起。我必须让他们举两个例子，把理论变成一个故事，再用自己的话讲给我听，反复倒腾几遍，我才能确认他们是不是真的懂了。”」 https://m.sohu.com/a/419676894_105067/?pvid=000115_3w_a
+
+【#喝下百草枯后一周内...】
+#喝下百草枯后一周内的反应#为什么百草枯中毒能够排上死亡痛苦程度前三？百草枯不仅毒性极大，无特效解药，更恐怖的是发作的过程非常漫长，慢慢蚕食呼吸道，中毒的人将在无比清醒的情况下，眼睁睁看着自己被憋死。换句话说，虽然有足够的时间后悔，但却完全没了活命的机会。 http://m.weibo.cn/status/JmgyElatA
+
+【2020-09-21...】
+2020-09-21-【书摘】台湾民主史之：选举暂时停止，国民党鹰派准备整肃｜广场｜端传媒 Initium Media https://theinitium.com/article/20200921-note-book-digest-taiwan-democracy-history | http://whitecats.dip.jp/up/info/1600643572 | https://files.catbox.moe/2wne8s.pdf | https://anonfiles.com/fdP4weXao2
+
+【【陈纯】钦定的社会性死亡】
+https://matters.news/%40byron808/%25E9%2592%25A6%25E5%25AE%259A%25E7%259A%2584%25E7%25A4%25BE%25E4%25BC%259A%25E6%2580%25A7%25E6%25AD%25BB%25E4%25BA%25A1-bafyreifipwor6yj2gfmny7wefywwjfb6v2udrbrn7gr7vjlnira7s7w3zi
+
+【周保松，香港中文大学...】
+周保松，香港中文大学哲学系毕业，英国伦敦政治及经济学院博士，现为香港中文大学政治与行政学系副教授。研究兴趣为当代政治哲学，尤其是自由主义和社会正义理论。 本书尝试探究以下问题：政治为什么离不开道德？什么是自由主义的政治道德观？这种观点为何值得追求？作者以分析哲学的方法，检视和论证自由主义的核心理念，包括正当性、自由、权利、平等、民主、社会正义和市场等，并积极回应各种挑战。
+
+=======
+
+《每日文章精选 2020-09-30》 https://t.me/daily_read 
+
+1. 【学人说｜女性教育崛起背景下的性别关系动态】https://mp.weixin.qq.com/s/4xCGClL7nJb5-yiKi35TCw
+
+2. 【三联 | 我为什么劝基层女性慎重进入婚姻？】https://mp.weixin.qq.com/s/VzdrVvVhUpX8CCdgvMP9eQ
+
+3. 【女性主义波涛中的男性与爱情 | 随机信箱002】https://mp.weixin.qq.com/s/04Kst-6_VLGYkPPXetvrDw
+
+4. 【学人说｜“马赛克”中国式亲密关系】https://mp.weixin.qq.com/s/SlV-hko8oHa2WTAf7NSJKw
+
+5. 【后悔成为母亲，但我不敢说出口】https://mp.weixin.qq.com/s/o6biAUIbnDd4S9bnfptBUA
+
+=======
+
+《每日文章精选 2020-09-30》 https://t.me/daily_read 
+
+1. 【农民工、高铁与民族主义】http://telegra.ph/%25E5%2586%259C%25E6%25B0%2591%25E5%25B7%25A5%25E9%25AB%2598%25E9%2593%2581%25E4%25B8%258E%25E6%25B0%2591%25E6%2597%258F%25E4%25B8%25BB%25E4%25B9%2589-09-30
+
+2. 【寫在許志永被逮捕的100天：我雖勢弱言輕，決不虛作無聲】https://seriousli.home.blog/2020/09/30/100
+
+3. 【未来没有金斯伯格，只有我们自己 | 随机波动】https://mp.weixin.qq.com/s/hFjU-DiNZi-wVDLgTU0E9w
+
+4. 【周保松：公共生活的意义】http://telegra.ph/%25E5%2591%25A8%25E4%25BF%259D%25E6%259D%25BE%25E5%2585%25AC%25E5%2585%25B1%25E7%2594%259F%25E6%25B4%25BB%25E7%259A%2584%25E6%2584%258F%25E4%25B9%2589-09-27
+
+5. 【1923年12月27日，日本东京虎门公园...】https://m.weibo.cn/detail/4544047940905350
