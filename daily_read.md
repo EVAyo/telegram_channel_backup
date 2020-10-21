@@ -10127,3 +10127,837 @@ https://matters.news/%40byron808/%25E9%2592%25A6%25E5%25AE%259A%25E7%259A%2584%2
 4. 【周保松：公共生活的意义】http://telegra.ph/%25E5%2591%25A8%25E4%25BF%259D%25E6%259D%25BE%25E5%2585%25AC%25E5%2585%25B1%25E7%2594%259F%25E6%25B4%25BB%25E7%259A%2584%25E6%2584%258F%25E4%25B9%2589-09-27
 
 5. 【1923年12月27日，日本东京虎门公园...】https://m.weibo.cn/detail/4544047940905350
+
+=======
+
+每日文章精选
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【林垚《“我也是”：作...】
+林垚《“我也是”：作为集体行动的公共舆论运动》 本文是计划中一系列两篇文章的上篇，旨在对MeToo运动质疑者的各种常见观点及论述加以较为全面系统的辨析及回应。第一节以美国与中国为例，梳理反性侵扰运动的地方脉络，及在各自脉络中发展出的问题意识与面临的挑战；在此基础上，总结MeToo运动追责、赋能与促变之三重诉求，并将质疑者的论调归纳为三大类型：“群氓批判”、“弱女子批判”与“道学家批判”。第二至四节针对“群氓批判”的不同版本做出回应，第五节着力批驳“弱女子批判”，至于“道学家批判”则留待系列的下篇再行讨论。
+
+【群组频道滚动推荐】
+推荐频道合集，欢迎大家关注： https://telete.in/channel_push
+
+【【影评】《大佛普拉斯》：大佛里传出的敲响声……】
+https://mp.weixin.qq.com/s/rIqQcFkEKGU1tYDp84d1vA 在线观看： https://www.olevod.com/?m=vod-detail-id-5366.html
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【新浪潮：黑人创作者正在用恐怖片同仇恨对抗】
+https://www.douban.com/note/776328908
+
+【1989年，46岁的...】
+1989年，46岁的席慕容人生第一次踏上故乡的草原时泪如如下。从来只在父母的诉说中想象的地方，第一次呈现在眼前时，她说自己心中烧着一团火。她遗憾：“我会说国语、粤语、英语和法语，可是却不能用蒙古语唱完一首歌。在故乡这座课堂里，我既没有学籍也没有课本，只能是个迟来的旁听生。”“尽管后来用汉语写作，但我十分羡慕能用母语写作的年轻人，这种坚守民族文化本色的精神是现代社会极为欠缺的。” http://m.weibo.cn/status/JitEK6wtm
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【从白玉兰广场开始，沿...】
+从白玉兰广场开始，沿着黄浦江一路向外滩方向出发。到了黄浦江和苏州河交汇处，转而沿苏河漫步。多部热播剧的取景地，扑面而来。#魅力滨江游拍# http://m.weibo.cn/status/JmzyYjNxh
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+=======
+
+《每日文章精选 2020-10-03》 https://t.me/daily_read 
+
+1. 【反家暴本质上是在一切关系中反暴力——由拉姆想到的 | 随机波动】https://mp.weixin.qq.com/s/O4765hmBv7hdgwQgrMZGlw
+
+2. 【“男女都一样”里的陷阱：从杨笠脱口秀说起】https://mp.weixin.qq.com/s?__biz=MjM5MzczMTE5NA==&mid=2649790734&idx=1&sn=eaad105aa0614901d138d9d3aadb0b5c
+
+3. 【波黑 | 读《视觉快感与叙事电影》：也谈男性凝视】https://mp.weixin.qq.com/s/gIsQYOdEI2SrK1qMqpGicg
+
+4. 【学人说｜女性教育崛起背景下的性别关系动态】https://mp.weixin.qq.com/s/4xCGClL7nJb5-yiKi35TCw
+
+5. 【学人说｜“马赛克”中国式亲密关系】https://mp.weixin.qq.com/s/SlV-hko8oHa2WTAf7NSJKw
+
+=======
+
+每日文章精选
+
+【一块笨拙不堪的木头，...】
+一块笨拙不堪的木头，经过两周的雕琢，便能成为一把演奏歌曲的乐器，为人们带来音乐。劳动者的双手和艺人的双手，因为一把琴而连接，再通过它和听众连接，这件事本身就非常美好。 在藏语中，手工艺也被称作ལག་ཤེས། 直译到中文是「手知道」的意思。也许对于白玛桑珠这样的人来说，双手知道了许多，嘴便不需要说太多罢。于是，我们决定将这次的视频项目命名为「知手草记」，藏语名为བཟོ་རིག་ལག་དེབ། https://mp.weixin.qq.com/s/kyj4NeO9gsAKuA-jfpkHJA
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【新浪潮：黑人创作者正在用恐怖片同仇恨对抗】
+https://www.douban.com/note/776328908
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【群组频道滚动推荐】
+推荐频道合集，欢迎大家关注： https://telete.in/channel_push
+
+【1989年，46岁的...】
+1989年，46岁的席慕容人生第一次踏上故乡的草原时泪如如下。从来只在父母的诉说中想象的地方，第一次呈现在眼前时，她说自己心中烧着一团火。她遗憾：“我会说国语、粤语、英语和法语，可是却不能用蒙古语唱完一首歌。在故乡这座课堂里，我既没有学籍也没有课本，只能是个迟来的旁听生。”“尽管后来用汉语写作，但我十分羡慕能用母语写作的年轻人，这种坚守民族文化本色的精神是现代社会极为欠缺的。” http://m.weibo.cn/status/JitEK6wtm
+
+【林垚《“我也是”：作...】
+林垚《“我也是”：作为集体行动的公共舆论运动》 本文是计划中一系列两篇文章的上篇，旨在对MeToo运动质疑者的各种常见观点及论述加以较为全面系统的辨析及回应。第一节以美国与中国为例，梳理反性侵扰运动的地方脉络，及在各自脉络中发展出的问题意识与面临的挑战；在此基础上，总结MeToo运动追责、赋能与促变之三重诉求，并将质疑者的论调归纳为三大类型：“群氓批判”、“弱女子批判”与“道学家批判”。第二至四节针对“群氓批判”的不同版本做出回应，第五节着力批驳“弱女子批判”，至于“道学家批判”则留待系列的下篇再行讨论。
+
+【请转个身，面对黑暗，...】
+请转个身，面对黑暗，一开始你什么都看不到，但是等你的眼睛适应了，你就会发现黑暗的夜幕下群星闪烁。 我喜欢多丽丝·莱辛的《金色笔记》，喜欢安吉拉·卡特的《黑色维纳斯》，还有莉迪亚·戴维斯，阿特伍德，门罗和伍尔芙，还有几乎没人知道的女诗人Susan Hawthorne；中文的可以读一读王安忆和迟子建。 男作家只喜欢Salman Rushdie，他说莫言只是体制内的懦夫，这话真只有他配说。 https://telete.in/weibo_read/29313
+
+=======
+
+每日文章精选
+
+【景军丨麻风村：一个历史制度论的阐释】
+随着“大跃进”涌现而出的大食堂、托儿所、敬老院以及农业生产集体化浪潮，以家庭为载体的生活格局和劳动方式被集体化取代，农村群众既往恐惧麻风病的心理压力，随之被放大扩散。 “大跃进”时期针对麻风病人的收容隔离措施既包括耐心的劝说动员，也包括粗暴的捆绑押送。在这两个极点中间是夸大麻风病传染性的宣传和 送药上门导致的病人身份暴露 。在公众对麻风病的恐惧被大大加剧的社区生活氛围，一旦病情被邻里知晓，社会歧视接踵而来，病人和病人的家庭必然陷入遭受社会排斥的困境，所以即便在自愿报名搬到麻风村的患者之中，最终决定离开故土的选择伴随着帮助家人少受歧视的强烈愿望。值得反思的是夸大麻风病传染性的社区宣传和防疫站工作人员送药上门的举措，恰恰使得长期以来在民间存在的麻风恐惧文化得以巩固，在“大跃进”期间升级到草木皆兵的境地。 https://mp.weixin.qq.com/s/CnaQCsuB0hKSuZM56LgoNg
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【请转个身，面对黑暗，...】
+请转个身，面对黑暗，一开始你什么都看不到，但是等你的眼睛适应了，你就会发现黑暗的夜幕下群星闪烁。 我喜欢多丽丝·莱辛的《金色笔记》，喜欢安吉拉·卡特的《黑色维纳斯》，还有莉迪亚·戴维斯，阿特伍德，门罗和伍尔芙，还有几乎没人知道的女诗人Susan Hawthorne；中文的可以读一读王安忆和迟子建。 男作家只喜欢Salman Rushdie，他说莫言只是体制内的懦夫，这话真只有他配说。 https://telete.in/weibo_read/29313
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【从白玉兰广场开始，沿...】
+从白玉兰广场开始，沿着黄浦江一路向外滩方向出发。到了黄浦江和苏州河交汇处，转而沿苏河漫步。多部热播剧的取景地，扑面而来。#魅力滨江游拍# http://m.weibo.cn/status/JmzyYjNxh
+
+【如果你生活中遇到这样...】
+如果你生活中遇到这样的男的...你会怎么想？ http://m.weibo.cn/status/Jnj6F2Ud8
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+=======
+
+每日文章精选
+
+【浸润着水汽、延绵数里...】
+浸润着水汽、延绵数里的桂花甜香 http://www.douban.com/people/57419345/status/3121884111
+
+【当你用VR看片时，印度人正拿它祈福】
+https://www.huxiu.com/article/383232.html
+
+【SubPlayer - An online subtitle editor】
+在线加字幕 https://subplayer.js.org
+
+【“女性在这个时代还很...】
+“女性在这个时代还很难独立生活，是时代和法律的耻辱，而不是促销婚姻的借口。” http://m.weibo.cn/status/Jn9xe7U5l
+
+【调整了工艺和配比，在...】
+调整了工艺和配比，在丝巾上原大原工艺还原了唐代这件著名的《狩猎图》，喜滋滋 http://www.douban.com/people/2490962/status/3119584277
+
+【Corona读书会第28期 | 大坝与水利政治】
+1. 控制洪水，应该先考虑端源控制，而不是在形成洪水后用大坝来堵。端源控制成本更低，大坝成本高昂。 2. 大坝有社会文化物的内涵，例如对于技术发展的普遍崇拜。 3. 大坝有政治的内涵，比如与民族自豪感有关联。 https://mp.weixin.qq.com/s/arreFFszN-KAfFHPqiCMTA | https://telete.in/theLiterate/1480
+
+【频道合集】
+频道合集 https://telete.in/channel_push 读书分享 https://telete.in/dushufenxiang 英文学习 https://telete.in/english_learning_discuss 微博精选 https://telete.in/weibo_read 豆瓣精选 https://telete.in/douban_read 自由派讨论 https://telete.in/LiberalegalitarianisminChinese 性别议题 https://telete.in/daily_feminist 政治观察 https://telete.in/freedom_watch 读书讨论 https://telete.in/dushufenxiang_chat 消息搜索 https://telete.in/msg_index_bot （推荐一些频道与群组）
+
+【为什么打工子弟好像特别爱国？我们在职校里找到了答案】
+这些离开父母辛苦生活的留守儿童最后可以诉诸的，就是被民族主义政治工程所催生的这种爱国情感，这种政治工程宣扬“工匠精神”，让他们为自己的劳动感到光荣。这是一种被错置的、误认的爱。 https://matters.news/%40masses2020/%25E4%25B8%25BA%25E4%25BB%2580%25E4%25B9%2588%25E6%2589%2593%25E5%25B7%25A5%25E5%25AD%2590%25E5%25BC%259F%25E5%25A5%25BD%25E5%2583%258F%25E7%2589%25B9%25E5%2588%25AB%25E7%2588%25B1%25E5%259B%25BD-%25E6%2588%2591%25E4%25BB%25AC%25E5%259C%25A8%25E8%2581%258C%25E6%25A0%25A1%25E9%2587%258C%25E6%2589%25BE%25E5%2588%25B0%25E4%25BA%2586%25E7%25AD%2594%25E6%25A1%2588-bafyreiemqy6knifjvyhcszn7qcs7shao7bfs4n4rwsjf63iw3tzjqohtvq | https://telete.in/masses2020
+
+【可能这就是美术生吧】
+可能这就是美术生吧 COOLGIRLS http://m.weibo.cn/status/JlYkAf3X8
+
+【一块笨拙不堪的木头，...】
+一块笨拙不堪的木头，经过两周的雕琢，便能成为一把演奏歌曲的乐器，为人们带来音乐。劳动者的双手和艺人的双手，因为一把琴而连接，再通过它和听众连接，这件事本身就非常美好。 在藏语中，手工艺也被称作ལག་ཤེས། 直译到中文是「手知道」的意思。也许对于白玛桑珠这样的人来说，双手知道了许多，嘴便不需要说太多罢。于是，我们决定将这次的视频项目命名为「知手草记」，藏语名为བཟོ་རིག་ལག་དེབ། https://mp.weixin.qq.com/s/kyj4NeO9gsAKuA-jfpkHJA
+
+=======
+
+《每日文章精选 2020-10-05》 https://t.me/daily_read 
+
+1. 【拒绝割席】https://mp.weixin.qq.com/s/CPR7XvKlML_rt8mqc8Qi-A
+
+2. 【Corona读书会第28期 | 大坝与水利政治】https://mp.weixin.qq.com/s/arreFFszN-KAfFHPqiCMTA
+
+3. 【景军丨麻风村：一个历史制度论的阐释】https://mp.weixin.qq.com/s/CnaQCsuB0hKSuZM56LgoNg
+
+4. 【姑娘，「正常」的性高潮可能和你想得不太一样……】https://mp.weixin.qq.com/s/nKAePSxX08wTTtYWIvQEqQ
+
+5. 【建议大家都看一下这个成人动画，它值得被全国推广】https://mp.weixin.qq.com/s/Oz_jCC1piJpxZ8pfL4lfnA
+
+=======
+
+每日文章精选
+
+【美国搞懂王vs拜登d...】
+美国搞懂王vs拜登debate的同一天，新西兰也搞了女总理vs反对党女领袖的首脑debate。看热闹不怕事大的英国卫报剪辑了精彩瞬间，让大家感受两场debates之间的区别。 http://m.weibo.cn/status/4555327524314836
+
+【【投书】「她看起来很幸福」？我们对女性人生的想像，依旧充满局限｜陈姝蓉／多元发声．读者投书｜独立评论】
+https://opinion.cw.com.tw/blog/profile/52/article/9986
+
+【有一个关于红糖的冷知...】
+有一个关于红糖的冷知识不知道当讲不当讲 蔗糖的工艺，是把甘蔗榨汁然后加热浓缩一顿操作，蔗糖晶体析出，其他杂质留在液态的“糖蜜”里面。但是，糖蜜要怎么和蔗糖分开呢？ 传统的做法是把混合物灌进漏斗，让糖蜜一点点漏走，至少要花好几天，而且不可能漏干净，最后得到的糖里还留着一部分带杂质的糖蜜，泛黄且潮湿，这就是红糖。 后来工业进步了，有了离心机，可以把糖蜜甩得很干净，才有了晶莹剔透的白砂糖。 但是再后来红糖又因为各种宣传而复兴了，需求量也不算小。那咋办，回归传统吗？ 怎么可能，一罐糖等好几天，慢都慢死了，谁有这个工夫啊，成本还高。 所以，按照《剑桥食物史》的说法，市面上绝大部分红糖，论工艺都是“假冒”的：先用现代离心手段做出白砂糖来，然后画蛇添足，重新把甩掉的杂质加一些回去。 http://m.weibo.cn/status/Jn2ki36T9
+
+【景军丨麻风村：一个历史制度论的阐释】
+随着“大跃进”涌现而出的大食堂、托儿所、敬老院以及农业生产集体化浪潮，以家庭为载体的生活格局和劳动方式被集体化取代，农村群众既往恐惧麻风病的心理压力，随之被放大扩散。 “大跃进”时期针对麻风病人的收容隔离措施既包括耐心的劝说动员，也包括粗暴的捆绑押送。在这两个极点中间是夸大麻风病传染性的宣传和 送药上门导致的病人身份暴露 。在公众对麻风病的恐惧被大大加剧的社区生活氛围，一旦病情被邻里知晓，社会歧视接踵而来，病人和病人的家庭必然陷入遭受社会排斥的困境，所以即便在自愿报名搬到麻风村的患者之中，最终决定离开故土的选择伴随着帮助家人少受歧视的强烈愿望。值得反思的是夸大麻风病传染性的社区宣传和防疫站工作人员送药上门的举措，恰恰使得长期以来在民间存在的麻风恐惧文化得以巩固，在“大跃进”期间升级到草木皆兵的境地。 https://mp.weixin.qq.com/s/CnaQCsuB0hKSuZM56LgoNg
+
+【【怀火】岛屿的尊严与力量：济州岛与香港的抗争对话】
+1. 我们只看到「国民」，而在所有的「国民」身上，我们作为「地球公民」的身分全然丧失了。 2. 我可以没有军事力量，但我看到不公义的事情，我可不可以先表态？而不是要让美国搞一个台湾关系法、香港关系法什么的。我们也是国际公民，为什么要放弃自己参与国际的权力？该说的话就应该说，不应该是让大国来帮你说，搞得好像自己没有办法说话，这个是需要跳脱的。 3. 我们放任只有日本一个国家有和平宪法，只有他们需要去守护这个和平宪法。大家不会觉得很奇怪吗？应该是所有国家都有和平宪法。 4. 核电其实被国际认为是一种昂贵的电力，大家之所以还想要去建核电厂，是因为要维持核武的发展，背后是有军事主义的脉络。 https://www.reignitepress.com/post/anti-military-base
+
+【周保松，香港中文大学...】
+周保松，香港中文大学哲学系毕业，英国伦敦政治及经济学院博士，现为香港中文大学政治与行政学系副教授。研究兴趣为当代政治哲学，尤其是自由主义和社会正义理论。 本书尝试探究以下问题：政治为什么离不开道德？什么是自由主义的政治道德观？这种观点为何值得追求？作者以分析哲学的方法，检视和论证自由主义的核心理念，包括正当性、自由、权利、平等、民主、社会正义和市场等，并积极回应各种挑战。
+
+【为什么打工子弟好像特别爱国？我们在职校里找到了答案】
+这些离开父母辛苦生活的留守儿童最后可以诉诸的，就是被民族主义政治工程所催生的这种爱国情感，这种政治工程宣扬“工匠精神”，让他们为自己的劳动感到光荣。这是一种被错置的、误认的爱。 https://matters.news/%40masses2020/%25E4%25B8%25BA%25E4%25BB%2580%25E4%25B9%2588%25E6%2589%2593%25E5%25B7%25A5%25E5%25AD%2590%25E5%25BC%259F%25E5%25A5%25BD%25E5%2583%258F%25E7%2589%25B9%25E5%2588%25AB%25E7%2588%25B1%25E5%259B%25BD-%25E6%2588%2591%25E4%25BB%25AC%25E5%259C%25A8%25E8%2581%258C%25E6%25A0%25A1%25E9%2587%258C%25E6%2589%25BE%25E5%2588%25B0%25E4%25BA%2586%25E7%25AD%2594%25E6%25A1%2588-bafyreiemqy6knifjvyhcszn7qcs7shao7bfs4n4rwsjf63iw3tzjqohtvq | https://telete.in/masses2020
+
+【‎The Guardian's Audio Long Reads: Fashion's dirty secret: how sexual assault took hold in jeans factories on Apple Podcasts】
+1. 很多牛仔裤女工是按日结算的，工头常常以工作机会为由，性侵女工。（比如levis的工厂） 2. 女工一个月的工资买不起一条牛仔裤。 3. 新冠之后，工作机会减少，性侵变多，员工拿不到工资。 4. 很多女工因性侵感染HIV。 https://podcasts.apple.com/us/podcast/the-guardians-audio-long-reads/id587347784?i=1000493342101
+
+【American Murder: The Family Next Door | Netflix Official Site】
+https://www.netflix.com/watch/81130130
+
+【姑娘，「正常」的性高潮可能和你想得不太一样……】
+https://mp.weixin.qq.com/s/nKAePSxX08wTTtYWIvQEqQ | https://telete.in/theLiterate/1488
+
+=======
+
+每日文章精选
+
+【林垚《“我也是”：作...】
+林垚《“我也是”：作为集体行动的公共舆论运动》 本文是计划中一系列两篇文章的上篇，旨在对MeToo运动质疑者的各种常见观点及论述加以较为全面系统的辨析及回应。第一节以美国与中国为例，梳理反性侵扰运动的地方脉络，及在各自脉络中发展出的问题意识与面临的挑战；在此基础上，总结MeToo运动追责、赋能与促变之三重诉求，并将质疑者的论调归纳为三大类型：“群氓批判”、“弱女子批判”与“道学家批判”。第二至四节针对“群氓批判”的不同版本做出回应，第五节着力批驳“弱女子批判”，至于“道学家批判”则留待系列的下篇再行讨论。
+
+【陈嘉映：教育与洗脑】
+https://zhuanlan.zhihu.com/p/32239699
+
+【The Sackler Family’s Plan to Keep Its Billions】
+https://t.me/pincongessence ｜ https://www.newyorker.com/news/news-desk/the-sackler-familys-plan-to-keep-its-billions Many pharmaceutical companies had a hand in creating the opioid crisis, an ongoing public-health emergency in which as many as half a million Americans have lost their lives. But Purdue, which is owned by the Sackler family, played a special role because it was the first to set out, in the nineteen-nineties, to persuade the American medical establishment that strong opioids should be much more widely prescribed—and that physicians’ longstanding fears about the addictive nature of such drugs were overblown.
+
+【周保松，香港中文大学...】
+周保松，香港中文大学哲学系毕业，英国伦敦政治及经济学院博士，现为香港中文大学政治与行政学系副教授。研究兴趣为当代政治哲学，尤其是自由主义和社会正义理论。 本书尝试探究以下问题：政治为什么离不开道德？什么是自由主义的政治道德观？这种观点为何值得追求？作者以分析哲学的方法，检视和论证自由主义的核心理念，包括正当性、自由、权利、平等、民主、社会正义和市场等，并积极回应各种挑战。
+
+【‎The Guardian's Audio Long Reads: Fashion's dirty secret: how sexual assault took hold in jeans factories on Apple Podcasts】
+1. 很多牛仔裤女工是按日结算的，工头常常以工作机会为由，性侵女工。（比如levis的工厂） 2. 女工一个月的工资买不起一条牛仔裤。 3. 新冠之后，工作机会减少，性侵变多，员工拿不到工资。 4. 很多女工因性侵感染HIV。 https://podcasts.apple.com/us/podcast/the-guardians-audio-long-reads/id587347784?i=1000493342101
+
+【可能这就是美术生吧】
+可能这就是美术生吧 COOLGIRLS http://m.weibo.cn/status/JlYkAf3X8
+
+【从白玉兰广场开始，沿...】
+从白玉兰广场开始，沿着黄浦江一路向外滩方向出发。到了黄浦江和苏州河交汇处，转而沿苏河漫步。多部热播剧的取景地，扑面而来。#魅力滨江游拍# http://m.weibo.cn/status/JmzyYjNxh
+
+【为什么打工子弟好像特别爱国？我们在职校里找到了答案】
+这些离开父母辛苦生活的留守儿童最后可以诉诸的，就是被民族主义政治工程所催生的这种爱国情感，这种政治工程宣扬“工匠精神”，让他们为自己的劳动感到光荣。这是一种被错置的、误认的爱。 https://matters.news/%40masses2020/%25E4%25B8%25BA%25E4%25BB%2580%25E4%25B9%2588%25E6%2589%2593%25E5%25B7%25A5%25E5%25AD%2590%25E5%25BC%259F%25E5%25A5%25BD%25E5%2583%258F%25E7%2589%25B9%25E5%2588%25AB%25E7%2588%25B1%25E5%259B%25BD-%25E6%2588%2591%25E4%25BB%25AC%25E5%259C%25A8%25E8%2581%258C%25E6%25A0%25A1%25E9%2587%258C%25E6%2589%25BE%25E5%2588%25B0%25E4%25BA%2586%25E7%25AD%2594%25E6%25A1%2588-bafyreiemqy6knifjvyhcszn7qcs7shao7bfs4n4rwsjf63iw3tzjqohtvq | https://telete.in/masses2020
+
+【伦敦劳埃德保险大厦（...】
+伦敦劳埃德保险大厦（Lloyd's of London），由高技派的领军建筑师理查德·罗杰斯设计，建成于1986年，英国最年轻的一级保护建筑。类似罗杰斯与伦佐·皮亚诺共同设计的蓬皮杜中心，劳埃德大厦所有的服务功能被移出室内，并被放置在建筑的外部。这不仅使电梯、管道等设施的维护更为方便，还解放了室内空间，为改建提供可能。在现场仰视冷峻的钢铁立面，是一种非常新奇的审美体验，甚至会想：有这样的现代建筑革古典主义的命真是太好了（我可是那么爱古典建筑的人。 http://www.douban.com/people/81271834/status/3119029893
+
+【美国搞懂王vs拜登d...】
+美国搞懂王vs拜登debate的同一天，新西兰也搞了女总理vs反对党女领袖的首脑debate。看热闹不怕事大的英国卫报剪辑了精彩瞬间，让大家感受两场debates之间的区别。 http://m.weibo.cn/status/4555327524314836
+
+=======
+
+《每日文章精选 2020-10-07》 https://t.me/daily_read 
+
+1. 【那些让女生害怕的追求者】https://www.douban.com/note/780037810
+
+2. 【我想你知道】https://www.douban.com/note/779923152
+
+3. 【拒绝割席】https://mp.weixin.qq.com/s/CPR7XvKlML_rt8mqc8Qi-A
+
+4. 【陈嘉映：教育与洗脑】https://zhuanlan.zhihu.com/p/32239699
+
+5. 【姑娘，「正常」的性高潮可能和你想得不太一样……】https://mp.weixin.qq.com/s/nKAePSxX08wTTtYWIvQEqQ
+
+=======
+
+每日文章精选
+
+【分享一首短诗，作者是...】
+分享一首短诗，作者是一位优秀的蒙古族当代女性诗人。遗憾的是，这位姐姐在2015年结束了自己的生命。 《 ᠦᠨᠳᠦᠰᠦ 》 ᠪᠣᠷᠵᠢᠭᠢᠨ ᠴᠠᠬᠢᠷᠮᠠ ᠬᠥᠷᠥᠰᠥ ᠶ᠋ᠢ ᠪᠠᠲᠤ ᠲᠣᠭᠲᠠᠭᠠᠬᠤ ᠶ᠋ᠢᠨ ᠲᠦᠯᠦᠭᠡ ᠳᠣᠲᠣᠭᠰᠢ ᠪᠠᠨ ᠯᠡ ᠤᠷᠭᠤᠬᠤ ᠬᠡᠷᠡᠭᠲᠡᠢ ᠦᠭᠡᠢ ᠪᠣᠯ ᠰᠠᠨᠰᠠᠷ ᠠᠮᠢᠰᠬᠤᠭᠠ ᠪᠠᠨ ᠠᠯᠳᠠᠨᠠ 《根源》 包·查海日玛（名字是“兰花”的意思） 为了周围土地更加坚实 只有向更深处生长 否则宇宙将失去呼吸 http://weibo.com/7498198278/JiFOf7ujz
+
+【大卫·格雷伯（196...】
+大卫·格雷伯（1961年2月12日－2020年9月2日） 美国人类学家，无政府主义活动家。伦敦政治经济学院教授。2011年占领华尔街运动的关键人物之一。 2005年5月，耶鲁大学人类学系决定不与他续约。格雷伯指责这是由于政治立场原因。有4500多名同事和学生在支持他的请愿书上签名。
+
+【为什么打工子弟好像特别爱国？我们在职校里找到了答案】
+这些离开父母辛苦生活的留守儿童最后可以诉诸的，就是被民族主义政治工程所催生的这种爱国情感，这种政治工程宣扬“工匠精神”，让他们为自己的劳动感到光荣。这是一种被错置的、误认的爱。 https://matters.news/%40masses2020/%25E4%25B8%25BA%25E4%25BB%2580%25E4%25B9%2588%25E6%2589%2593%25E5%25B7%25A5%25E5%25AD%2590%25E5%25BC%259F%25E5%25A5%25BD%25E5%2583%258F%25E7%2589%25B9%25E5%2588%25AB%25E7%2588%25B1%25E5%259B%25BD-%25E6%2588%2591%25E4%25BB%25AC%25E5%259C%25A8%25E8%2581%258C%25E6%25A0%25A1%25E9%2587%258C%25E6%2589%25BE%25E5%2588%25B0%25E4%25BA%2586%25E7%25AD%2594%25E6%25A1%2588-bafyreiemqy6knifjvyhcszn7qcs7shao7bfs4n4rwsjf63iw3tzjqohtvq | https://telete.in/masses2020
+
+【‎The Guardian's Audio Long Reads: Fashion's dirty secret: how sexual assault took hold in jeans factories on Apple Podcasts】
+1. 很多牛仔裤女工是按日结算的，工头常常以工作机会为由，性侵女工。（比如levis的工厂） 2. 女工一个月的工资买不起一条牛仔裤。 3. 新冠之后，工作机会减少，性侵变多，员工拿不到工资。 4. 很多女工因性侵感染HIV。 https://podcasts.apple.com/us/podcast/the-guardians-audio-long-reads/id587347784?i=1000493342101
+
+【请转个身，面对黑暗，...】
+请转个身，面对黑暗，一开始你什么都看不到，但是等你的眼睛适应了，你就会发现黑暗的夜幕下群星闪烁。 我喜欢多丽丝·莱辛的《金色笔记》，喜欢安吉拉·卡特的《黑色维纳斯》，还有莉迪亚·戴维斯，阿特伍德，门罗和伍尔芙，还有几乎没人知道的女诗人Susan Hawthorne；中文的可以读一读王安忆和迟子建。 男作家只喜欢Salman Rushdie，他说莫言只是体制内的懦夫，这话真只有他配说。 https://telete.in/weibo_read/29313
+
+【对 T 友好的普及：性别与性别认同】
+【性别专题】 1. https://www.douban.com/note/770194874 2. https://www.douban.com/note/770176814 3. http://www.glaad.org/amp/debunking-10-intersex-myths
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【《火星救援》里的一段...】
+《火星救援》里的一段。 这件事发生在上世纪30年代中叶，是一个真实的事件（图2）。 五个学生的名单(图3) 是不是看到了一个熟悉的名字…… http://www.douban.com/people/132295742/status/3110790824
+
+【厨房，猫，窗外夏和冬...】
+厨房，猫，窗外夏和冬。 http://www.douban.com/people/123538508/status/3131718017
+
+【The Sackler Family’s Plan to Keep Its Billions】
+https://t.me/pincongessence ｜ https://www.newyorker.com/news/news-desk/the-sackler-familys-plan-to-keep-its-billions Many pharmaceutical companies had a hand in creating the opioid crisis, an ongoing public-health emergency in which as many as half a million Americans have lost their lives. But Purdue, which is owned by the Sackler family, played a special role because it was the first to set out, in the nineteen-nineties, to persuade the American medical establishment that strong opioids should be much more widely prescribed—and that physicians’ longstanding fears about the addictive nature of such drugs were overblown.
+
+=======
+
+《每日文章精选 2020-10-08》 https://t.me/daily_read 
+
+1. 【后生价值 | 谢烨之死：天才神话下的性别暴力】https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+2. 【LGBT权促会 | 浴室：欲望、性和社会交往】https://mp.weixin.qq.com/s/pktUharFnnJ1dIWqjkj2AQ
+
+3. 【那些让女生害怕的追求者】https://www.douban.com/note/780037810
+
+4. 【我想你知道】https://www.douban.com/note/779923152
+
+5. 【对 T 友好的普及：性别与性别认同】https://www.douban.com/note/770194874
+
+=======
+
+每日文章精选
+
+【有一个关于红糖的冷知...】
+有一个关于红糖的冷知识不知道当讲不当讲 蔗糖的工艺，是把甘蔗榨汁然后加热浓缩一顿操作，蔗糖晶体析出，其他杂质留在液态的“糖蜜”里面。但是，糖蜜要怎么和蔗糖分开呢？ 传统的做法是把混合物灌进漏斗，让糖蜜一点点漏走，至少要花好几天，而且不可能漏干净，最后得到的糖里还留着一部分带杂质的糖蜜，泛黄且潮湿，这就是红糖。 后来工业进步了，有了离心机，可以把糖蜜甩得很干净，才有了晶莹剔透的白砂糖。 但是再后来红糖又因为各种宣传而复兴了，需求量也不算小。那咋办，回归传统吗？ 怎么可能，一罐糖等好几天，慢都慢死了，谁有这个工夫啊，成本还高。 所以，按照《剑桥食物史》的说法，市面上绝大部分红糖，论工艺都是“假冒”的：先用现代离心手段做出白砂糖来，然后画蛇添足，重新把甩掉的杂质加一些回去。 http://m.weibo.cn/status/Jn2ki36T9
+
+【拒绝割席】
+你眼中那些需要割席的“坏同性恋“今天是喜欢去同志浴室的人，明天可能是别的人，我们真的有办法不断割席下去，最终真正成为一个”他们“眼中标准的好同性恋吗？ 而最后当我们每个人费尽心机，终于成为了好同性恋的样子，让所有人都找不出毛病的时候，却有没有想过，你同性恋这个身份本身，一直都是”他们“眼中需要割席的对象？ 平权的方式有很多，有温和派，有激进派，但没有任何一种平权，是跪着求来的。 当你需要一而再再而三标榜着自己的听话和价值，才能换来尊重和认可的时候，就已经注定了双方从一开始就没有站在同一平面上进行对话，以后也不会。 .............. LGBTQIA+平权中常说的一个关键词是“骄傲”，不是因为我是性少数而“骄傲”，而是我能够勇敢地做自己而“骄傲”。 这个“骄傲”没有任何附加条件，不用有高学历，不用有多成功，不用达到什么社会地位，更不用成为谁心中的“好同性恋”。 https://mp.weixin.qq.com/s/CPR7XvKlML_rt8mqc8Qi-A
+
+【此时此刻，雨雾山林】
+此时此刻，雨雾山林 http://www.douban.com/people/154335028/status/3113302099
+
+【不允许成年女性自主决...】
+不允许成年女性自主决定是否撑开阴道瓣来治疗子宫疾病，这和禁止女性堕胎没有什么区别，因为同样是在剥夺女人对自己身体的决定权，并且是保护自己健康的这样一个正向的权利。 让我比较生气的点，是医生这样一个本该中立的医疗和服务机构，却绑架女性患者的意志，规定那层所谓的膜比她的病痛和健康更重要，甚至让一名les找男朋友签字，（我真的很好奇，有男科手术是必须要女朋友签字同意的吗？）并且收回所有其他的选择。而如果想要独立去做，则需要支付多一万的费用，这就是赤裸裸的，women are more expensive to live. 那么多的大手术，躺在手术台上的人们面临着死亡、残疾、无法苏醒等等巨大的风险，可他们却能自己决定是否去实施，只要签了合同认可了风险，医生不会再有任何犹豫。 其实也不新鲜，不过是几千年来一直如此的，置女人的贞洁于身体健康、疼痛和生命之上。“因为害怕处女膜破裂男朋友不喜欢自己而选择不做子宫手术，任凭疼痛和恶化”，这可能就是2020年的当代贞洁烈女牌坊吧。 http://m.weibo.cn/status/Jo78dgVfb
+
+【LGBT权促会 | 浴室：欲望、性和社会交往】
+真正的（男）同志天堂不是可以乱性的淫乱地方, 而是普遍大众的接受与社会的认同, 同志无须在漆黑的桑拿房间里偷偷摸摸的无安全的性行为, 而是能与自己真爱的伴侣一同生活在大众社会, 甚至在大街上牵手拥抱亦不需要畏畏缩缩回避。 1. https://mp.weixin.qq.com/s/pktUharFnnJ1dIWqjkj2AQ 2. http://html.rhhz.net/society/html/20090404.htm
+
+【【精选书摘】持续走在「回家」的路上：重返山林，找回原住民知识的「栖地」】
+https://www.twreporter.org/a/bookreview-studying-the-south-the-south-studying?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram | https://telete.in/tw_reporter_org/232
+
+【【影评】《大佛普拉斯》：大佛里传出的敲响声……】
+https://mp.weixin.qq.com/s/rIqQcFkEKGU1tYDp84d1vA 在线观看： https://www.olevod.com/?m=vod-detail-id-5366.html
+
+【AE｜Parallax Effect 视差效果】
+https://matters.news/%40Jhane_Chou/ae-parallax-effect-%25E8%25A6%2596%25E5%25B7%25AE%25E6%2595%2588%25E6%259E%259C-bafyreihfdwban5pi7ztbxqhb7nsvjjzqe5jra46ysrxjqazqo3etmtxfte
+
+【The Sackler Family’s Plan to Keep Its Billions】
+https://t.me/pincongessence ｜ https://www.newyorker.com/news/news-desk/the-sackler-familys-plan-to-keep-its-billions Many pharmaceutical companies had a hand in creating the opioid crisis, an ongoing public-health emergency in which as many as half a million Americans have lost their lives. But Purdue, which is owned by the Sackler family, played a special role because it was the first to set out, in the nineteen-nineties, to persuade the American medical establishment that strong opioids should be much more widely prescribed—and that physicians’ longstanding fears about the addictive nature of such drugs were overblown.
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+=======
+
+每日文章精选
+
+【《火星救援》里的一段...】
+《火星救援》里的一段。 这件事发生在上世纪30年代中叶，是一个真实的事件（图2）。 五个学生的名单(图3) 是不是看到了一个熟悉的名字…… http://www.douban.com/people/132295742/status/3110790824
+
+【AE｜Parallax Effect 视差效果】
+https://matters.news/%40Jhane_Chou/ae-parallax-effect-%25E8%25A6%2596%25E5%25B7%25AE%25E6%2595%2588%25E6%259E%259C-bafyreihfdwban5pi7ztbxqhb7nsvjjzqe5jra46ysrxjqazqo3etmtxfte
+
+【Championin...】
+Championing human rights in the face of violent racism, Patrisse is a survivor. She transformed her personal pain into political power, giving voice to a people suffering inequality and a movement fueled by her strength and love to tell the country―and the world―that Black Lives Matter.
+
+【来看一段流畅丝滑的钻...】
+来看一段流畅丝滑的钻石切冰块视频~展示了金刚石超高的导热性能。 http://m.weibo.cn/status/JopdD57Ug
+
+【湖南东江湖，深谷沧绿...】
+湖南东江湖，深谷沧绿。 http://www.douban.com/people/44723009/status/2972562059
+
+【David Grae...】
+David Graeber - CULTURE IS NOT YOUR FRIEND https://davidgraeber.industries
+
+【Ethan Mich...】
+Ethan Michelson量化了河南和浙江09-16年近15万份离婚诉讼判决书，发现法院在判决时遵循的原则是“破裂主义”而非“过错主义”，大部分首次离婚申请都会被驳回，即使女性有充分的证据证明曾遭遇家暴，只要男性被告拒绝离婚，法院基本都会认定夫妻感情未完全破裂。首次申请时间和最终离婚判决时间之间的间隔平均为接近1年，所以诉讼离婚也有非常长的“冷静期”。在回归模型中，作者发现女性家暴经历对离婚结果已经基本没有影响，主要影响变量就是男性是否同意离婚。从整体上看，2012年之后诉讼离婚率呈现大幅下滑。造成上述结果的原因除了父权制和政治意识形态的影响之外，还有法官对职业生涯的考虑，因为男性被告常常就判决结果作出威胁。 http://www.douban.com/doubanapp/dispatch?uri=/status/3133595545/%26dt_dapp%3D1
+
+【这篇浅显易懂的科普可...】
+这篇浅显易懂的科普可以读一读： 抑郁症是由连续不断的多巴胺抑制而造成的功能性的损伤甚至永久丧失，是因为大脑无法正常分泌多巴胺。 人们总是陷入一种误区，认为抑郁症的患者心理因素大于精神（机体功能）因素；如果因为心理治疗而忽略了药物治疗，对于严重的抑郁症患者来说无异于南辕北辙。 http://www.douban.com/people/26226046/status/3132957449
+
+【教头条新闻小编写标题...】
+教头条新闻小编写标题 (九月篇) http://m.weibo.cn/status/JonKndrVV
+
+【#新疆】
+?q=%23%E6%96%B0%E7%96%86 ?q=%23%E4%BA%BA%E6%9D%83 The Atlantic - Saving Uighur Culture from Genocide 拯救面临种族屠杀的维吾尔文化 “保护一种文化不仅仅是简单地保存其存在的历史记录。毕竟，文化不能像博物馆的文物一样被放在玻璃后面；就像居住在文化中的人一样，文化是要成长、适应和发展的。” 全文阅读： https://bit.ly/34DrpPx 图源：ig http://yette.su
+
+=======
+
+《每日文章精选 2020-10-10》 https://t.me/daily_read 
+
+1. 【所有人都应该知道这个网站,它能减少上万起未成年性侵案的发生】https://www.douban.com/note/780320932
+
+2. 【后生价值 | 谢烨之死：天才神话下的性别暴力】https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+3. 【LGBT权促会 | 浴室：欲望、性和社会交往】https://mp.weixin.qq.com/s/pktUharFnnJ1dIWqjkj2AQ
+
+4. 【对 T 友好的普及：性别与性别认同】https://www.douban.com/note/770194874
+
+5. 【那些让女生害怕的追求者】https://www.douban.com/note/780037810
+
+=======
+
+每日文章精选
+
+【后生价值 | 谢烨之死：天才神话下的性别暴力】
+但在理解顾城之前，我们何曾以同样的努力，尝试理解谢烨处在人身威胁阴影下的不安？何曾怀着同样的兴趣，了解她丰富鲜活的一生？摘下神话滤镜，尝试看见罹难者的处境，是我们对谢烨最起码的尊重。 https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+【手把手教你找到可靠的医学科普资源】
+https://www.douban.com/note/780289793
+
+【让我们一起将非有毒男...】
+让我们一起将非有毒男子气概的特征正常化 ✨ Normalize non-toxic masculinity ✨ http://m.weibo.cn/status/JoFV5CQpI
+
+【来看一段流畅丝滑的钻...】
+来看一段流畅丝滑的钻石切冰块视频~展示了金刚石超高的导热性能。 http://m.weibo.cn/status/JopdD57Ug
+
+【【大麻，真的只是一种...】
+【大麻，真的只是一种毒品吗？】在谈麻色变的当下，为什么你的面膜出现了大麻成分？新兴产业工业大麻了解一下。 http://m.weibo.cn/status/JoAQ772st
+
+https://%E3%80%90telegra.ph...%E3%80%91
+https://www.douban.com/note/779884833 【注】端点星事件，是指2020年4月19日起，端点星网站的志愿者陈玫、蔡伟及其女友被警察拘押，以“涉嫌寻衅滋事罪、包庇罪”为由执行指定居所监视居住。 http://zh.wikipedia.org/wiki/%25E7%25AB%25AF%25E7%2582%25B9%25E6%2598%259F%25E4%25BA%258B%25E4%25BB%25B6
+
+【【影评】《大佛普拉斯》：大佛里传出的敲响声……】
+https://mp.weixin.qq.com/s/rIqQcFkEKGU1tYDp84d1vA 在线观看： https://www.olevod.com/?m=vod-detail-id-5366.html
+
+【重返金星：寻找人类未来家园】
+纽约时报中文网 | 美国天文学家卡尔·萨根曾经说过，金星是我们太阳系中最像地狱的行星。那么，我们什么时候能重返那里呢？ https://nyti.ms/3dekWi1
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【American Murder: The Family Next Door | Netflix Official Site】
+https://www.netflix.com/watch/81130130
+
+=======
+
+《每日文章精选 2020-10-11》 https://t.me/daily_read 
+
+1. 【所有人都应该知道这个网站,它能减少上万起未成年性侵案的发生】https://www.douban.com/note/780320932
+
+2. 【后生价值 | 谢烨之死：天才神话下的性别暴力】https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+3. 【LGBT权促会 | 浴室：欲望、性和社会交往】https://mp.weixin.qq.com/s/pktUharFnnJ1dIWqjkj2AQ
+
+4. 【对 T 友好的普及：性别与性别认同】https://www.douban.com/note/770194874
+
+5. 【那些让女生害怕的追求者】https://www.douban.com/note/780037810
+
+=======
+
+每日文章精选
+
+【【大麻，真的只是一种...】
+【大麻，真的只是一种毒品吗？】在谈麻色变的当下，为什么你的面膜出现了大麻成分？新兴产业工业大麻了解一下。 http://m.weibo.cn/status/JoAQ772st
+
+【此时此刻，雨雾山林】
+此时此刻，雨雾山林 http://www.douban.com/people/154335028/status/3113302099
+
+【重返金星：寻找人类未来家园】
+纽约时报中文网 | 美国天文学家卡尔·萨根曾经说过，金星是我们太阳系中最像地狱的行星。那么，我们什么时候能重返那里呢？ https://nyti.ms/3dekWi1
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【人们身上有许多「无用...】
+人们身上有许多「无用」的器官，比如脑子（不对）比如，把你的大拇指和小指握住，手腕上会凸起一根韧带，有的人有、有的人没有。为什么呢？这其实跟我们灵长类祖先的运动模式有关。 http://m.weibo.cn/status/Jon2tpDq7
+
+【这辈子的功课：接受自...】
+这辈子的功课：接受自己的身体并与其和解。 http://m.weibo.cn/status/4405157166904032
+
+【手把手教你找到可靠的医学科普资源】
+https://www.douban.com/note/780289793
+
+【只用普通设备拍摄，如...】
+只用普通设备拍摄，如何利用巧妙的运镜或简单的道具，就拍摄出大片的效果？法国摄影师wonguy的这些操作手法可以学一下 http://m.weibo.cn/status/JoymGFh6y
+
+【诗歌散落在街头巷尾。】
+诗歌散落在街头巷尾。 http://m.weibo.cn/status/JoAK2Ev1a
+
+【后生价值 | 谢烨之死：天才神话下的性别暴力】
+但在理解顾城之前，我们何曾以同样的努力，尝试理解谢烨处在人身威胁阴影下的不安？何曾怀着同样的兴趣，了解她丰富鲜活的一生？摘下神话滤镜，尝试看见罹难者的处境，是我们对谢烨最起码的尊重。 https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+=======
+
+《每日文章精选 2020-10-12》 https://t.me/daily_read 
+
+1. 【不为赚钱和竞争：体育和进步政治的历史】https://www.douban.com/note/773088038
+
+2. 【橙雨伞 | “不就是个荤段子，你这么敏感干嘛？”】https://mp.weixin.qq.com/s/Z6UBU_c29w-8ZOAFFDUWWQ
+
+3. 【圆桌丨平台困局②：算法如何塑造骑手与消费者之间的敌意】https://www.thepaper.cn/newsDetail_forward_9520041
+
+4. 【尖椒部落 | 不喜欢运动，是我太懒了吗？】https://mp.weixin.qq.com/s/pYkS4cywmSVfknU4BAMuCQ
+
+5. 【所有人都应该知道这个网站,它能减少上万起未成年性侵案的发生】https://www.douban.com/note/780320932
+
+=======
+
+每日文章精选
+
+【后生价值 | 谢烨之死：天才神话下的性别暴力】
+但在理解顾城之前，我们何曾以同样的努力，尝试理解谢烨处在人身威胁阴影下的不安？何曾怀着同样的兴趣，了解她丰富鲜活的一生？摘下神话滤镜，尝试看见罹难者的处境，是我们对谢烨最起码的尊重。 https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+【手把手教你找到可靠的医学科普资源】
+https://www.douban.com/note/780289793
+
+【圆桌丨平台困局③：神秘算法背后，资本流动的时间与空间】
+1. MIT的Nathan Wilmers对美国过去几十年的产业结构做过一个定量分析，就发现亚马逊这种大的零售商和科技企业的崛起、兼并都大大降低了普通劳动者工资，相比之下公司内部工资的分化反而没那么重要。 2. 一群憋屈的（没有劳动关系的）骑手去找一群外包、没有权限的客服（可能也是派遣工）吵架，然后大家都把对方骂的狗血淋头，问题却没有解决，平台是什么，平台在哪里谁也不知道。真是现代不稳定劳动用工的一个绝佳展现，一层一层的外包和零工的结果。 3. “时间套利“：平台在迎合了城市中产对高效、可控服务的需求的同时，剥夺了来自底层的、农村的外卖员组织和控制自己劳动时间的权利，使得他们的劳动时间碎片化 https://www.thepaper.cn/newsDetail_forward_9541784
+
+【「我们是人，却要做神的决定」：司法精神医学的鉴定与治疗｜李俊宏主讲、吴立萍整理／大爱电视《人文讲堂》｜独立评论】
+https://opinion.cw.com.tw/blog/profile/466/article/10004
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【重返金星：寻找人类未来家园】
+纽约时报中文网 | 美国天文学家卡尔·萨根曾经说过，金星是我们太阳系中最像地狱的行星。那么，我们什么时候能重返那里呢？ https://nyti.ms/3dekWi1
+
+【此时此刻，雨雾山林】
+此时此刻，雨雾山林 http://www.douban.com/people/154335028/status/3113302099
+
+【只用普通设备拍摄，如...】
+只用普通设备拍摄，如何利用巧妙的运镜或简单的道具，就拍摄出大片的效果？法国摄影师wonguy的这些操作手法可以学一下 http://m.weibo.cn/status/JoymGFh6y
+
+【一张图：你以为的tr...】
+一张图：你以为的trans群体如何去洗手间。 事实上的trans群体如何去洗手间。 http://m.weibo.cn/status/JoKOtq8N8
+
+【#lgbtq】
+?q=%23lgbtq ?q=%23%E5%85%AC%E6%B0%91%E6%84%8F%E8%AF%86 “出柜日”，你也许需要了解这些 「 从1988年起，每年的10月11日被西方一些国家的公众正式承认为“全国出柜日”（National Coming Out Day）。」 「 多项官方调查和统计表明，中国至少有5%的非异性恋与非顺性别人口，其中大多数并未公开身份。你身边必定存在着处境相似的人，因而你的勇气以及求助经历也会为他们亮起明灯。 如果你刚出柜没多久，请留给自己充分的时间消化和适应出柜以来生活中的各种变化，必要时主动求助于友人、性少数社群、心理工作者和公益团体，争取顺利度过这个敏感的阶段。」 https://bit.ly/34KFZ86
+
+=======
+
+《每日文章精选 2020-10-13》 https://t.me/daily_read 
+
+1. 【澎湃 | 林垚 | 是男性，是父亲，也是女权主义者】https://www.thepaper.cn/newsDetail_forward_9532577
+
+2. 【圆桌丨平台困局③：神秘算法背后，资本流动的时间与空间】https://www.thepaper.cn/newsDetail_forward_9541784
+
+3. 【不为赚钱和竞争：体育和进步政治的历史】https://www.douban.com/note/773088038
+
+4. 【橙雨伞 | “不就是个荤段子，你这么敏感干嘛？”】https://mp.weixin.qq.com/s/Z6UBU_c29w-8ZOAFFDUWWQ
+
+5. 【圆桌丨平台困局②：算法如何塑造骑手与消费者之间的敌意】https://www.thepaper.cn/newsDetail_forward_9520041
+
+=======
+
+每日文章精选
+
+【美国新一代超音速测试客机亮相】
+DW 中文- 德国之声 | 今后如果美国新一代超音速客机实现量产化，那么从伦敦到纽约不再是7个小时，而只需3小时15分钟；从旧金山到东京只需5个半小时，而不是11小时。 http://p.dw.com/p/3jgwh
+
+【纽约的MOMA美术馆...】
+纽约的MOMA美术馆特别推出了5个免费的线上课程。其中包括了： 1.Fashion As Design ： 邀请设计师或者时装制作的专家，带大家了解从面料、制作以及设计的过程，可以说很适合对时装感兴趣对朋友了，课时大约21小时。 http://www.coursera.org/learn/fashion-design 2.Seeing Through Photography ： 通过器材、灵感、技巧等多层次带大家了解摄影艺术，发掘视觉传达的技巧与艺术性之间的关联。课程时常16小时。 http://www.coursera.org/learn/photography 3.What Is Contemporary Art? 带大家了解80年代开始的当代艺术以及艺术家背后的心路历程，一副艺术品是如何诞生的种种思考与细节。课程时常17小时。 http://www.coursera.org/learn/contemporary-art 4.In The Studio：Abstract Post-War Painting 7位艺术家为你剖析艺术背后的文化与历史，了解对于技法和想法的产生与融合的过程，课程时常27小时。 http://www.coursera.org/learn/painting 5.Modern Art And Ideas 可以从影像中认识更多的艺术家，从灵感到艺术与社会的关系。带大家深入解读当代艺术，适合爱逛画廊的你。课程时常12小时。 http://www.coursera.org/learn/modern-art-ideas
+
+【澎湃 | 林垚 | 是男性，是父亲，也是女权主义者】
+我们的两个孩子，女儿随我姓林，儿子随爱人姓袁。好玩的是，对这件事第一个表示不理解的，其实是林宝，因为她认为弟弟应该跟姐姐姓才对。我就跟她说，女孩跟爸爸姓，男孩跟妈妈姓，这样将来家里四个人玩游戏，就总是可以平均地分成两队，没有人被单独抛在一边：按照男女，就是爸爸弟弟一队，妈妈姐姐一队；按照姓林姓袁，是爸爸姐姐一队，妈妈弟弟一队；按照大人小孩，是爸爸妈妈一队，姐姐弟弟一队。林宝听完后很高兴，对弟弟姓袁表示支持。这个解释听起来可能有点像开玩笑，但本质上是用小孩听得懂的语言，让她感受到平等的精神。 https://www.thepaper.cn/newsDetail_forward_9532577
+
+【悉尼先驱晨报 | 因为我是一个娇小玲珑的亚裔，我被一些白人迷恋着】
+对于每一个新的交往对象，我都需要做这样焦灼的评估：你对我感兴趣是因为我这个人，还是我的皮肤色号，抑或是我这张亚洲脸？我总是不知如何回答。 https://m.weibo.cn/detail/4558811736577702 https://cn.nytimes.com/opinion/20180109/alt-right-asian-fetish
+
+【中国科学家称新冠病毒系人工合成，引发学界批评】
+纽约时报中文网 | 上周，关于新冠病毒的源头之争，又一篇毫无根据、具有误导性的文章加入了论战：一篇研究报告声称，该病毒系人工合成，是中国的科研人员放出来的一种“不受限制的生物武器”。 这篇文章发表在网上，作者是中国科学家闫丽梦领导的研究小组。但专家表示，该结论并没有科学依据。 https://nyti.ms/3dod6lU
+
+【¬ 这是最好懂的逻辑学入门 ∨ 你将受用终身（上）_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+【逻辑性入门】 https://www.bilibili.com/video/BV1RK4y147no https://www.bilibili.com/video/BV1Nz4y1R7sv
+
+【镰仓の海，一定要去一...】
+镰仓の海，一定要去一次呀 http://m.weibo.cn/status/JoYeazlfX
+
+【黑龙江那个吃了冷冻自...】
+黑龙江那个吃了冷冻自制酸汤子死亡7人事件，从新闻稿里我一直很不明白，为什么冷冻酸汤子，会有黄曲霉？冷冻本身，是不会造成黄曲霉的产生。看看营养学家范志红老师说的，终于明白了 http://www.douban.com/people/2728100/status/3136001863
+
+【#lgbtq】
+?q=%23lgbtq ?q=%23%E5%85%AC%E6%B0%91%E6%84%8F%E8%AF%86 “出柜日”，你也许需要了解这些 「 从1988年起，每年的10月11日被西方一些国家的公众正式承认为“全国出柜日”（National Coming Out Day）。」 「 多项官方调查和统计表明，中国至少有5%的非异性恋与非顺性别人口，其中大多数并未公开身份。你身边必定存在着处境相似的人，因而你的勇气以及求助经历也会为他们亮起明灯。 如果你刚出柜没多久，请留给自己充分的时间消化和适应出柜以来生活中的各种变化，必要时主动求助于友人、性少数社群、心理工作者和公益团体，争取顺利度过这个敏感的阶段。」 https://bit.ly/34KFZ86
+
+【你在网上买的可降解塑料袋，可能都是智商税】
+https://www.douban.com/note/774675188
+
+=======
+
+《每日文章精选 2020-10-15》 https://t.me/daily_read 
+
+1. 【结绳志 | Graeber | 大学死了吗？人类学与职业管理阶层的兴起】https://mp.weixin.qq.com/s?__biz=MzAxOTAyNzYxMA==&mid=2247484811&idx=1&sn=b4ca90f6901ee9c7cafb48317331847b
+
+2. 【女性服下的药，竟然大多数是为男人设计的】https://mp.weixin.qq.com/s/tRBv2_CxRGp33Z1orpm8IQ
+
+3. 【澎湃 | 林垚 | 是男性，是父亲，也是女权主义者】https://www.thepaper.cn/newsDetail_forward_9532577
+
+4. 【圆桌丨平台困局③：神秘算法背后，资本流动的时间与空间】https://www.thepaper.cn/newsDetail_forward_9541784
+
+5. 【不为赚钱和竞争：体育和进步政治的历史】https://www.douban.com/note/773088038
+
+=======
+
+每日文章精选
+
+【¬ 这是最好懂的逻辑学入门 ∨ 你将受用终身（上）_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+【逻辑性入门】 https://www.bilibili.com/video/BV1RK4y147no https://www.bilibili.com/video/BV1Nz4y1R7sv
+
+【诗歌散落在街头巷尾。】
+诗歌散落在街头巷尾。 http://m.weibo.cn/status/JoAK2Ev1a
+
+【尖椒部落 | 不喜欢运动，是我太懒了吗？】
+运动是一个教育问题，是一个性别问题，也是一个阶级问题。在现实中，它恰恰不是“懒”的问题，因为不去运动的背后藏着太多不友好的社会环境、太多被压榨的工作时间和太多工作压力造成的疲累。 https://mp.weixin.qq.com/s/pYkS4cywmSVfknU4BAMuCQ
+
+【湖南东江湖，深谷沧绿...】
+湖南东江湖，深谷沧绿。 http://www.douban.com/people/44723009/status/2972562059
+
+【圆桌丨平台困局③：神秘算法背后，资本流动的时间与空间】
+1. MIT的Nathan Wilmers对美国过去几十年的产业结构做过一个定量分析，就发现亚马逊这种大的零售商和科技企业的崛起、兼并都大大降低了普通劳动者工资，相比之下公司内部工资的分化反而没那么重要。 2. 一群憋屈的（没有劳动关系的）骑手去找一群外包、没有权限的客服（可能也是派遣工）吵架，然后大家都把对方骂的狗血淋头，问题却没有解决，平台是什么，平台在哪里谁也不知道。真是现代不稳定劳动用工的一个绝佳展现，一层一层的外包和零工的结果。 3. “时间套利“：平台在迎合了城市中产对高效、可控服务的需求的同时，剥夺了来自底层的、农村的外卖员组织和控制自己劳动时间的权利，使得他们的劳动时间碎片化 https://www.thepaper.cn/newsDetail_forward_9541784
+
+【一块笨拙不堪的木头，...】
+一块笨拙不堪的木头，经过两周的雕琢，便能成为一把演奏歌曲的乐器，为人们带来音乐。劳动者的双手和艺人的双手，因为一把琴而连接，再通过它和听众连接，这件事本身就非常美好。 在藏语中，手工艺也被称作ལག་ཤེས། 直译到中文是「手知道」的意思。也许对于白玛桑珠这样的人来说，双手知道了许多，嘴便不需要说太多罢。于是，我们决定将这次的视频项目命名为「知手草记」，藏语名为བཟོ་རིག་ལག་དེབ། https://mp.weixin.qq.com/s/kyj4NeO9gsAKuA-jfpkHJA
+
+【【大麻，真的只是一种...】
+【大麻，真的只是一种毒品吗？】在谈麻色变的当下，为什么你的面膜出现了大麻成分？新兴产业工业大麻了解一下。 http://m.weibo.cn/status/JoAQ772st
+
+【ww...】
+https://www.facebook.com/madmax6678/posts/10224186805041064
+
+【一张图：你以为的tr...】
+一张图：你以为的trans群体如何去洗手间。 事实上的trans群体如何去洗手间。 http://m.weibo.cn/status/JoKOtq8N8
+
+【你在网上买的可降解塑料袋，可能都是智商税】
+https://www.douban.com/note/774675188
+
+=======
+
+每日文章精选
+
+【后生价值 | 谢烨之死：天才神话下的性别暴力】
+但在理解顾城之前，我们何曾以同样的努力，尝试理解谢烨处在人身威胁阴影下的不安？何曾怀着同样的兴趣，了解她丰富鲜活的一生？摘下神话滤镜，尝试看见罹难者的处境，是我们对谢烨最起码的尊重。 https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+【American Murder: The Family Next Door | Netflix Official Site】
+https://www.netflix.com/watch/81130130
+
+【橙雨伞 | “三代还宗”都上热搜了，还有理由不重视冠姓权吗？】
+https://mp.weixin.qq.com/s/QIyfaajAZdm7L_6ul-0hUQ
+
+【诗歌散落在街头巷尾。】
+诗歌散落在街头巷尾。 http://m.weibo.cn/status/JoAK2Ev1a
+
+【在张培萌家暴的话题广...】
+在张培萌家暴的话题广场里看到了 #紫丝带妈妈# 这个超话，发现里面都是些孩子被暴力抢走和藏匿起来的维权妈妈，她们都求助无门，只能在超话里日复一日地记录着她们为自己争取权利和找回孩子的过程...... 这不就是活脱脱的“合法”绑架犯和人贩子吗？！真的太魔幻了！！！妈妈们辛苦怀胎十月承受着生理和心理创伤生下来的孩子，轻易就被别人抢走，连母亲见上自己孩子一面的自由都被剥夺，骨肉分离莫过如此，希望大家能多关注下这个群体！！ ！ http://m.weibo.cn/status/Jpspugxxy
+
+【结绳志 | Graeber | 大学死了吗？人类学与职业管理阶层的兴起】
+1. 美国典型家庭的二分之一收入都被FIRE产业（金融finance，保险insurance，房地产real estate）直接挪走。 2. 我们其实从没见过金融行业被“放任自流”（deregulation），这个行业受到严格监管。只是大部分监管银行的法规是由银行自己制定的，利用政权暴力和警察暴力为行业牟利。 3. 你在晚上在街头看见警察，因此更有安全感，而不是相反，你可能就是中产阶级。 4. 预兆性政治：坚持要表现得像是已经获得自由。任何真正有效的改革实践中都必须含有自信和愉悦的感受，并且要能通向一个让所有人都能感受到这种自信和愉悦的新世界。 https://mp.weixin.qq.com/s?__biz=MzAxOTAyNzYxMA==&mid=2247484811&idx=1&sn=b4ca90f6901ee9c7cafb48317331847b
+
+【美国新一代超音速测试客机亮相】
+DW 中文- 德国之声 | 今后如果美国新一代超音速客机实现量产化，那么从伦敦到纽约不再是7个小时，而只需3小时15分钟；从旧金山到东京只需5个半小时，而不是11小时。 http://p.dw.com/p/3jgwh
+
+【圆桌丨平台困局③：神秘算法背后，资本流动的时间与空间】
+1. MIT的Nathan Wilmers对美国过去几十年的产业结构做过一个定量分析，就发现亚马逊这种大的零售商和科技企业的崛起、兼并都大大降低了普通劳动者工资，相比之下公司内部工资的分化反而没那么重要。 2. 一群憋屈的（没有劳动关系的）骑手去找一群外包、没有权限的客服（可能也是派遣工）吵架，然后大家都把对方骂的狗血淋头，问题却没有解决，平台是什么，平台在哪里谁也不知道。真是现代不稳定劳动用工的一个绝佳展现，一层一层的外包和零工的结果。 3. “时间套利“：平台在迎合了城市中产对高效、可控服务的需求的同时，剥夺了来自底层的、农村的外卖员组织和控制自己劳动时间的权利，使得他们的劳动时间碎片化 https://www.thepaper.cn/newsDetail_forward_9541784
+
+【你见过这种拉手风琴的...】
+你见过这种拉手风琴的藻类吗？ 我在池塘里舀了一瓶水，看到一个丰富的微观世界 http://m.weibo.cn/status/JoRsAkhHg
+
+【黑龙江那个吃了冷冻自...】
+黑龙江那个吃了冷冻自制酸汤子死亡7人事件，从新闻稿里我一直很不明白，为什么冷冻酸汤子，会有黄曲霉？冷冻本身，是不会造成黄曲霉的产生。看看营养学家范志红老师说的，终于明白了 http://www.douban.com/people/2728100/status/3136001863
+
+=======
+
+每日文章精选
+
+【American Murder: The Family Next Door | Netflix Official Site】
+https://www.netflix.com/watch/81130130
+
+【镰仓の海，一定要去一...】
+镰仓の海，一定要去一次呀 http://m.weibo.cn/status/JoYeazlfX
+
+【你见过这种拉手风琴的...】
+你见过这种拉手风琴的藻类吗？ 我在池塘里舀了一瓶水，看到一个丰富的微观世界 http://m.weibo.cn/status/JoRsAkhHg
+
+【湖南东江湖，深谷沧绿...】
+湖南东江湖，深谷沧绿。 http://www.douban.com/people/44723009/status/2972562059
+
+【女性服下的药，竟然大多数是为男人设计的】
+https://mp.weixin.qq.com/s/tRBv2_CxRGp33Z1orpm8IQ
+
+【一个大学生被筛查出了抑郁症，然后呢？】
+https://mp.weixin.qq.com/s/Q5IHHiToinxdRqCURWrdtA
+
+【奇异果和猕猴桃到底什...】
+奇异果和猕猴桃到底什么区别？凭什么说猕猴桃可以吊打奇异果？ 奇异果音译自kiwi fruit，国内一般用来指国外产的猕猴桃，可以说是新西兰的国果，新西兰因此赚得盆满钵满，至今仍占领了世界主流的猕猴桃市场，去国外随便问一个路人，奇异果哪里的？ 毫无疑问答案是新西兰，似乎是常识，但没几个人知道奇异果老家在中国。它的学名是中华猕猴桃。 全世界猕猴桃一共大概54个种，中国就有52个，还有21个变种，在猕猴桃资源这块，中国毫无疑问具有绝对的优势。 1904年新西兰人从中国湖北宜昌带走了一小把中华猕猴桃的种子，回去选育出了世界上目前的主流栽培品种”海沃德“。 后续新西兰又推出的”Tomua“ ”早金“（Hort16A）、意大利选育的”Autar“、”最佳明星“（”Top star“）、日本推出的”细道“、”攒绿“、”小林39“等品种都是直接或者间接通过中华猕猴桃选育的品种。 奇异果一般能买到的只有绿果和金果，国内不仅仅有绿的、黄的，还有红的、橙的。（见图） http://m.weibo.cn/status/JpppgdcoC
+
+【¬ 这是最好懂的逻辑学入门 ∨ 你将受用终身（上）_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+【逻辑性入门】 https://www.bilibili.com/video/BV1RK4y147no https://www.bilibili.com/video/BV1Nz4y1R7sv
+
+【Graeber | 大学死了吗？人类学与职业管理阶层的兴起】
+Graeber--%E5%A4%A7%E5%AD%A6%E6%AD%BB%E4%BA%86%E5%90%97%E4%BA%BA%E7%B1%BB%E5%AD%A6%E4%B8%8E%E8%81%8C%E4%B8%9A%E7%AE%A1%E7%90%86%E9%98%B6%E5%B1%82%E7%9A%84%E5%85%B4%E8%B5%B7-10-15-3 | https://mp.weixin.qq.com/s?__biz=MzAxOTAyNzYxMA==&mid=2247484811&idx=1&sn=b4ca90f6901ee9c7cafb48317331847b
+
+【ww...】
+https://www.facebook.com/madmax6678/posts/10224186805041064
+
+=======
+
+每日文章精选
+
+【你在网上买的可降解塑料袋，可能都是智商税】
+https://www.douban.com/note/774675188
+
+【【影评】《大佛普拉斯》：大佛里传出的敲响声……】
+https://mp.weixin.qq.com/s/rIqQcFkEKGU1tYDp84d1vA 在线观看： https://www.olevod.com/?m=vod-detail-id-5366.html
+
+【女性服下的药，竟然大多数是为男人设计的】
+https://mp.weixin.qq.com/s/tRBv2_CxRGp33Z1orpm8IQ
+
+【NYT | 我的中国自由派朋友对特朗普的认知误区】
+纽约时报中文网 | 不少中文评论人士坚信特朗普是反共的，毕竟在他任内出台了很多惩罚中共与中国政府利益相关者的政策，因此支持他连任。 这个在中文舆论圈出现的独特现象，从深层次暴露了中国的一些自由派对美国以及美国民主制度的许多糊涂认知。 https://nyti.ms/3lJWok5
+
+【奇异果和猕猴桃到底什...】
+奇异果和猕猴桃到底什么区别？凭什么说猕猴桃可以吊打奇异果？ 奇异果音译自kiwi fruit，国内一般用来指国外产的猕猴桃，可以说是新西兰的国果，新西兰因此赚得盆满钵满，至今仍占领了世界主流的猕猴桃市场，去国外随便问一个路人，奇异果哪里的？ 毫无疑问答案是新西兰，似乎是常识，但没几个人知道奇异果老家在中国。它的学名是中华猕猴桃。 全世界猕猴桃一共大概54个种，中国就有52个，还有21个变种，在猕猴桃资源这块，中国毫无疑问具有绝对的优势。 1904年新西兰人从中国湖北宜昌带走了一小把中华猕猴桃的种子，回去选育出了世界上目前的主流栽培品种”海沃德“。 后续新西兰又推出的”Tomua“ ”早金“（Hort16A）、意大利选育的”Autar“、”最佳明星“（”Top star“）、日本推出的”细道“、”攒绿“、”小林39“等品种都是直接或者间接通过中华猕猴桃选育的品种。 奇异果一般能买到的只有绿果和金果，国内不仅仅有绿的、黄的，还有红的、橙的。（见图） http://m.weibo.cn/status/JpppgdcoC
+
+【《为什么长大》：给少年的你】
+1. 有没有一种“与屈从妥协无关的成熟状态”？ 2. 成长是一种理想，一个过程，也是一场无休止的革命。 Matters站长张洁平： https://www.wainao.me/wainao-reads/ZhangJiePing-why-grow-up-10142020 来源： https://telete.in/VoiceofCN/3963
+
+【¬ 这是最好懂的逻辑学入门 ∨ 你将受用终身（上）_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+【逻辑性入门】 https://www.bilibili.com/video/BV1RK4y147no https://www.bilibili.com/video/BV1Nz4y1R7sv
+
+【2020年了，居然还有人在炒作“男女同厕”议题】
+http://moreless.medium.com/%25E5%25B1%2585%25E7%2584%25B6%25E5%2588%25B0%25E4%25BA%25862020%25E5%25B9%25B4%25E8%25BF%2598%25E6%259C%2589%25E4%25BA%25BA%25E5%259C%25A8%25E7%2582%2592%25E4%25BD%259C-%25E7%2594%25B7%25E5%25A5%25B3%25E5%2590%258C%25E5%258E%2595-%25E8%25AE%25AE%25E9%25A2%2598-cb43db9016bc
+
+【source】
+http://m.weibo.cn/status/JpvpvkWUX
+
+【ww...】
+https://www.facebook.com/madmax6678/posts/10224186805041064
+
+=======
+
+《每日文章精选 2020-10-18》 https://t.me/daily_read 
+
+1. 【快递罢工大作战，行业血拼一线劳动者买单｜马各庄田野】https://mp.weixin.qq.com/s/xckO8mDXvLYop-oaxTl71Q
+
+2. 【澎湃 | 日本反家暴法小史：“驯化”公权救济者而非受害者】https://mp.weixin.qq.com/s/_aJH2eD5DwVOCJQFBNwXmg
+
+3. 【困在系统里的美国工人—谈加州公投提案Prop 22】https://mp.weixin.qq.com/s/okgkSezRAwPllLeQzUwoaw
+
+4. 【女孩别怕 | 田静 | 我爆肝三天扒的「处女野史」,发现当处女原来这么危险】https://mp.weixin.qq.com/s/GHIYrl7opD-jUUNUipbttg
+
+5. 【橙雨伞 | 她们的伤痛，不该被写成“都市艳情故事”】https://mp.weixin.qq.com/s/v7mtdVIA9xzKyPF9rEajaw
+
+=======
+
+每日文章精选
+
+【你在网上买的可降解塑料袋，可能都是智商税】
+https://www.douban.com/note/774675188
+
+【纽约的MOMA美术馆...】
+纽约的MOMA美术馆特别推出了5个免费的线上课程。其中包括了： 1.Fashion As Design ： 邀请设计师或者时装制作的专家，带大家了解从面料、制作以及设计的过程，可以说很适合对时装感兴趣对朋友了，课时大约21小时。 http://www.coursera.org/learn/fashion-design 2.Seeing Through Photography ： 通过器材、灵感、技巧等多层次带大家了解摄影艺术，发掘视觉传达的技巧与艺术性之间的关联。课程时常16小时。 http://www.coursera.org/learn/photography 3.What Is Contemporary Art? 带大家了解80年代开始的当代艺术以及艺术家背后的心路历程，一副艺术品是如何诞生的种种思考与细节。课程时常17小时。 http://www.coursera.org/learn/contemporary-art 4.In The Studio：Abstract Post-War Painting 7位艺术家为你剖析艺术背后的文化与历史，了解对于技法和想法的产生与融合的过程，课程时常27小时。 http://www.coursera.org/learn/painting 5.Modern Art And Ideas 可以从影像中认识更多的艺术家，从灵感到艺术与社会的关系。带大家深入解读当代艺术，适合爱逛画廊的你。课程时常12小时。 http://www.coursera.org/learn/modern-art-ideas
+
+【正视女性体毛】
+正视女性体毛 http://m.weibo.cn/status/4561104778575648
+
+【source】
+http://m.weibo.cn/status/JpvpvkWUX
+
+【每次发照片，都偶尔会...】
+每次发照片，都偶尔会看到‘居然是女生’这类评论。我无法阻止有人就是喜欢讨论别人的性别，也当然知道大多时候并无恶意，但还是想提醒一下——至少我本人看到这种评论会觉得不舒服，希望大家尽量不要这样。 一个是我并不喜欢被人尤其是陌生人无意义地讨论我的性别，二是默认我是男性，不管有无恶意，都其实是一种深层次的性别歧视。 是，每个人都会对一些意外的事情惊讶感叹，这不奇怪，但判断要不要说出来，值不值得去打扰人家，才决定你是不是个礼貌的人。 博主的性别和你的脑洞不符，是你的问题，和我是没有关系的。 不是说上网就不用注意边界感了，网线背后我是个真实的人。你只要想想，自己走在街上会不会抓住路过的人问人家是男是女？ 不会，那你在网上也就不应该这么做；会，那别人揍你也是活该。 当然，至于还有下图这种对我 ‘怎么是个女的’ 的质问，就更莫名其妙了。这类人对自己是有多少内在恐怖的愤怒？这语气好像宁愿把我塞回妈妈肚子里，都无法承认自己不过只是对一件小事情判断失误而已。人生还有更多搞不懂的事情在前面等着，要不别活了。 如果是觉得自己很幽默，那我希望能帮你解开这种误会。 http://m.weibo.cn/status/Jp8mI67Rg
+
+【Vol.138【如何...】
+Vol.138【如何用 DNA 追捕真凶?】 ⁣ ⁣ 不同人的 DNA 到底有什么差异？对于像白银杀手这样数十年未破的悬案，DNA 刑侦技术如何在茫茫人海中锁定凶手？ http://m.weibo.cn/status/JoA5NiaIO
+
+【ww...】
+https://www.quantamagazine.org/how-godels-incompleteness-theorems-work-20200714
+
+【湖南东江湖，深谷沧绿...】
+湖南东江湖，深谷沧绿。 http://www.douban.com/people/44723009/status/2972562059
+
+【镰仓の海，一定要去一...】
+镰仓の海，一定要去一次呀 http://m.weibo.cn/status/JoYeazlfX
+
+【女性服下的药，竟然大多数是为男人设计的】
+https://mp.weixin.qq.com/s/tRBv2_CxRGp33Z1orpm8IQ
+
+=======
+
+《每日文章精选 2020-10-20》 https://t.me/daily_read 
+
+1. 【“拼单名媛”如一道芒刺，戳穿了消费主义的虚伪】https://mp.weixin.qq.com/s/bSlObFsbMGzVIt6bw2CsSw
+
+2. 【快递罢工大作战，行业血拼一线劳动者买单｜马各庄田野】https://mp.weixin.qq.com/s/xckO8mDXvLYop-oaxTl71Q
+
+3. 【在职场，补上一堂性教育课】https://mp.weixin.qq.com/s/nVM7NpdGM3NkLyPh8P0Eyg
+
+4. 【橙雨伞 | 更年期不是病，也绝不该被用来骂人】https://mp.weixin.qq.com/s/5SwOBj-izUBVGGJqZPsmow
+
+5. 【16年旧文 | 选美 | 你问我答：为什么保守派总统会提名自由派大法官？】https://zhuanlan.zhihu.com/p/20501641
+
+=======
+
+每日文章精选
+
+【橙雨伞 | 更年期不是病，也绝不该被用来骂人】
+https://mp.weixin.qq.com/s/5SwOBj-izUBVGGJqZPsmow
+
+【《为什么长大》：给少年的你】
+1. 有没有一种“与屈从妥协无关的成熟状态”？ 2. 成长是一种理想，一个过程，也是一场无休止的革命。 Matters站长张洁平： https://www.wainao.me/wainao-reads/ZhangJiePing-why-grow-up-10142020 来源： https://telete.in/VoiceofCN/3963
+
+【结绳志 | Graeber | 大学死了吗？人类学与职业管理阶层的兴起】
+1. 美国典型家庭的二分之一收入都被FIRE产业（金融finance，保险insurance，房地产real estate）直接挪走。 2. 我们其实从没见过金融行业被“放任自流”（deregulation），这个行业受到严格监管。只是大部分监管银行的法规是由银行自己制定的，利用政权暴力和警察暴力为行业牟利。 3. 你在晚上在街头看见警察，因此更有安全感，而不是相反，你可能就是中产阶级。 4. 预兆性政治：坚持要表现得像是已经获得自由。任何真正有效的改革实践中都必须含有自信和愉悦的感受，并且要能通向一个让所有人都能感受到这种自信和愉悦的新世界。 https://mp.weixin.qq.com/s?__biz=MzAxOTAyNzYxMA==&mid=2247484811&idx=1&sn=b4ca90f6901ee9c7cafb48317331847b
+
+【☁️】
+☁️ 「[大佛普拉斯] 电影配乐」 ?q=%23n484056997 ?q=%23mp3 ?q=%23320kbps ?q=%23%E6%9E%97%E7%94%9F%E7%A5%A5
+
+【正视女性体毛】
+正视女性体毛 http://m.weibo.cn/status/4561104778575648
+
+【纽约的MOMA美术馆...】
+纽约的MOMA美术馆特别推出了5个免费的线上课程。其中包括了： 1.Fashion As Design ： 邀请设计师或者时装制作的专家，带大家了解从面料、制作以及设计的过程，可以说很适合对时装感兴趣对朋友了，课时大约21小时。 http://www.coursera.org/learn/fashion-design 2.Seeing Through Photography ： 通过器材、灵感、技巧等多层次带大家了解摄影艺术，发掘视觉传达的技巧与艺术性之间的关联。课程时常16小时。 http://www.coursera.org/learn/photography 3.What Is Contemporary Art? 带大家了解80年代开始的当代艺术以及艺术家背后的心路历程，一副艺术品是如何诞生的种种思考与细节。课程时常17小时。 http://www.coursera.org/learn/contemporary-art 4.In The Studio：Abstract Post-War Painting 7位艺术家为你剖析艺术背后的文化与历史，了解对于技法和想法的产生与融合的过程，课程时常27小时。 http://www.coursera.org/learn/painting 5.Modern Art And Ideas 可以从影像中认识更多的艺术家，从灵感到艺术与社会的关系。带大家深入解读当代艺术，适合爱逛画廊的你。课程时常12小时。 http://www.coursera.org/learn/modern-art-ideas
+
+【诗歌散落在街头巷尾。】
+诗歌散落在街头巷尾。 http://m.weibo.cn/status/JoAK2Ev1a
+
+【ww...】
+https://www.quantamagazine.org/how-godels-incompleteness-theorems-work-20200714
+
+【每次发照片，都偶尔会...】
+每次发照片，都偶尔会看到‘居然是女生’这类评论。我无法阻止有人就是喜欢讨论别人的性别，也当然知道大多时候并无恶意，但还是想提醒一下——至少我本人看到这种评论会觉得不舒服，希望大家尽量不要这样。 一个是我并不喜欢被人尤其是陌生人无意义地讨论我的性别，二是默认我是男性，不管有无恶意，都其实是一种深层次的性别歧视。 是，每个人都会对一些意外的事情惊讶感叹，这不奇怪，但判断要不要说出来，值不值得去打扰人家，才决定你是不是个礼貌的人。 博主的性别和你的脑洞不符，是你的问题，和我是没有关系的。 不是说上网就不用注意边界感了，网线背后我是个真实的人。你只要想想，自己走在街上会不会抓住路过的人问人家是男是女？ 不会，那你在网上也就不应该这么做；会，那别人揍你也是活该。 当然，至于还有下图这种对我 ‘怎么是个女的’ 的质问，就更莫名其妙了。这类人对自己是有多少内在恐怖的愤怒？这语气好像宁愿把我塞回妈妈肚子里，都无法承认自己不过只是对一件小事情判断失误而已。人生还有更多搞不懂的事情在前面等着，要不别活了。 如果是觉得自己很幽默，那我希望能帮你解开这种误会。 http://m.weibo.cn/status/Jp8mI67Rg
+
+【2020年巴黎教師斬首案】
+http://zh.wikipedia.org/wiki/2020%25E5%25B9%25B4%25E5%25B7%25B4%25E9%25BB%258E%25E6%2595%2599%25E5%25B8%25AB%25E6%2596%25AC%25E9%25A6%2596%25E6%25A1%2588
+
+=======
+
+每日文章精选
+
+【女强人/妻管严/妇孺...】
+女强人/妻管严/妇孺皆知/男人婆/婆婆妈妈/直男审美... 当我们把这些说出口时，到底意味着什么？ “不就是一个词吗？” “大家都这么说！” “说的人没有恶意啊。” 但...纠正它们是否真的重要？ 这些约定俗成的语言，隐含着“性别偏见”。 如果你也追求“性别平等”， 请点击视频，完成【性别平等语法测试】 http://m.weibo.cn/status/4499148252700745
+
+【被称为“挂在瀑布上的...】
+被称为“挂在瀑布上的千年古镇”的王村 http://m.weibo.cn/status/Jq2dhscY3
+
+【橙雨伞 | 更年期不是病，也绝不该被用来骂人】
+https://mp.weixin.qq.com/s/5SwOBj-izUBVGGJqZPsmow
+
+【【影评】《大佛普拉斯》：大佛里传出的敲响声……】
+https://mp.weixin.qq.com/s/rIqQcFkEKGU1tYDp84d1vA 在线观看： https://www.olevod.com/?m=vod-detail-id-5366.html
+
+【在职场，补上一堂性教育课】
+https://mp.weixin.qq.com/s/nVM7NpdGM3NkLyPh8P0Eyg 工具包： https://shimo.im/docs/cyKNXnV22GUEoiWT
+
+【橙雨伞 | 身为一个男性，我为什么更想在女性领导的团队里工作？】
+“向前一步（lean in）”是一个容易适得其反的号召：摆一些成功的女性案例在那里，表面上可以鼓励更多的女性在职场上拼搏，仿佛那道玻璃天花板已经被打破；但实际上，其塑造的“什么事情都能协调好”的“女性模板”，只是程度更深的规劝，给人一种女性靠自身努力就可以与结构性的性别不平等相抗衡的错觉。 https://mp.weixin.qq.com/s/UFwLO8jVJ9AwrmVL52x_RQ
+
+【American Murder: The Family Next Door | Netflix Official Site】
+https://www.netflix.com/watch/81130130
+
+【后生价值 | 谢烨之死：天才神话下的性别暴力】
+但在理解顾城之前，我们何曾以同样的努力，尝试理解谢烨处在人身威胁阴影下的不安？何曾怀着同样的兴趣，了解她丰富鲜活的一生？摘下神话滤镜，尝试看见罹难者的处境，是我们对谢烨最起码的尊重。 https://mp.weixin.qq.com/s/G2J0q3VkPsn21Lcz7fkwBA
+
+【纽约的MOMA美术馆...】
+纽约的MOMA美术馆特别推出了5个免费的线上课程。其中包括了： 1.Fashion As Design ： 邀请设计师或者时装制作的专家，带大家了解从面料、制作以及设计的过程，可以说很适合对时装感兴趣对朋友了，课时大约21小时。 http://www.coursera.org/learn/fashion-design 2.Seeing Through Photography ： 通过器材、灵感、技巧等多层次带大家了解摄影艺术，发掘视觉传达的技巧与艺术性之间的关联。课程时常16小时。 http://www.coursera.org/learn/photography 3.What Is Contemporary Art? 带大家了解80年代开始的当代艺术以及艺术家背后的心路历程，一副艺术品是如何诞生的种种思考与细节。课程时常17小时。 http://www.coursera.org/learn/contemporary-art 4.In The Studio：Abstract Post-War Painting 7位艺术家为你剖析艺术背后的文化与历史，了解对于技法和想法的产生与融合的过程，课程时常27小时。 http://www.coursera.org/learn/painting 5.Modern Art And Ideas 可以从影像中认识更多的艺术家，从灵感到艺术与社会的关系。带大家深入解读当代艺术，适合爱逛画廊的你。课程时常12小时。 http://www.coursera.org/learn/modern-art-ideas
+
+【总统制的危害】
+议会制民主政体平均58年崩溃一次，每年崩溃的可能性是1.71%；而总统制民主政体平均24年崩溃一次，每年崩溃的可能性是4.16%。从两个数据的比较看出来，议会制远比总统制更加稳定。另一个数据是从1946年到2002年，全球共发生157次政体变更，而拉美一个地方就占到58次，比例为37%，而拉美大部分国家都是总统制。所以，这些经验研究的证据都支持林茨的观点，总体上讲与议会制相比，总统制更不稳定。 http://telegra.ph/%25E6%2580%25BB%25E7%25BB%259F%25E5%2588%25B6%25E7%259A%2584%25E5%258D%25B1%25E5%25AE%25B3-10-15 | https://telete.in/gujinpintan1/273
