@@ -11057,3 +11057,17 @@ https://www.twreporter.org/a/high-academic-achievement-students-psychological-di
 
 【困在系统里的美国工人—谈加州公投提案Prop 22】
 https://mp.weixin.qq.com/s/okgkSezRAwPllLeQzUwoaw
+
+=======
+
+《每日文章精选 2020-10-23》 https://t.me/daily_read 
+
+1. 【葬礼上的遗孀，和她所遭遇的男性凝视】https://mp.weixin.qq.com/s/aEIykFl7eqJLFcQK52j7GA
+
+2. 【女性与极右（上）】https://zhuanlan.zhihu.com/p/267867203
+
+3. 【澎湃 | 纽约书评 | 阿彩的故事：加州淘金热中，反抗种族与性别压迫的华人妓女】https://www.thepaper.cn/newsDetail_forward_9519439
+
+4. 【文化纵横 | 王芊霓 | 污名与冲突：时代夹缝中的广场舞】https://mp.weixin.qq.com/s/ElRiPAwt36FbMFVd8HXpKw
+
+5. 【水瓶纪元 | 在两性平等浪潮中，为什么西方女人依旧随夫姓?】https://mp.weixin.qq.com/s?__biz=Mzg5NDQ2MzIwNw==&mid=2247483764&idx=1&sn=9d841597e8b6d305bacbab9ca4279b3d
