@@ -1358,7 +1358,3 @@ https://t.me/theLiterate/1545
 大家对版权怎么看？
 
 https://t.me/web_record/27465
-
-=======
-
-一个小时后有个讲座 https://www.youtube.com/watch?v=Y_Wa_yCSkVs
