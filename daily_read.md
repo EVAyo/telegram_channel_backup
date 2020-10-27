@@ -11173,3 +11173,17 @@ https://www.facebook.com/madmax6678/posts/10224186805041064
 
 【女性与极右（上）】
 1. 受压迫的经历并不一定会让女性与遭受歧视的其他社会阶层团结在一起。这甚至不意味着受压迫者总会被逼反抗压迫自己的人。有时，压迫会导致疏远和无力感，人们会觉得造成自己处境的根源是来自身边的人，而不是社会组织方式相关的抽象的结构性原因。 2. 很多极右政党不仅仅走向了女性选民，还将性别观念，追求平等打造成为武器，服务于他们种族歧视的内核，以攻击穆斯林。 3. 一个受压迫的群体永远不会在进一步压迫另一群体的行动中获利。 木棉浪潮原文： 1. https://zhuanlan.zhihu.com/p/267867203 2. https://zhuanlan.zhihu.com/p/268214186
+
+=======
+
+《每日文章精选 2020-10-27》 https://t.me/daily_read 
+
+1. 【翻转电台 | “打工人”这个新词汇：这次突破自恋与冷漠】https://mp.weixin.qq.com/s/ILeXH6N6rRNedMTTcmZTkg
+
+2. 【苏醒的赫耳玛佛洛狄忒—双性人觉醒日的标志性意义】https://mp.weixin.qq.com/s/MXgFhcynXmjRmZgH-NdXzw
+
+3. 【被禁忌的妇科手术】https://mp.weixin.qq.com/s/wdVdmHbN1D-ypv3OycIlug
+
+4. 【橙雨伞 | 请不要拿你的性快感，来类比我的月经痛苦】https://mp.weixin.qq.com/s/MIFb5j67It81g1NwzyvWTA
+
+5. 【荆棘原 | 这些电影对老年的解读并不统一，但始终尊重生命 | 重阳节片单】https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
