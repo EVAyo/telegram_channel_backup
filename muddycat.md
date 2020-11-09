@@ -1421,7 +1421,7 @@ I don't know who needs to hear this, but you are allowed to be a leftist with a 
 
 一个更好的社会结构是，①作者得到生活补贴，②大家平时没有什么理由需要盗版，③违反作者意愿分发作品的行为被谴责和/或自动追究，④但大部分作者愿意在大部分情况下（可能加一些附加条款）分发自己的作品。
 
-（欢迎大家补充，评论，反驳）
+（选节已获AB授权，欢迎大家补充，评论，反驳）
 
 =======
 
@@ -1430,3 +1430,9 @@ https://t.me/daily_feminist/2936
 =======
 
 这一段是从自由主义角度，对“天赋人权”的批评。批评的点不在于“人权”，而在于“天”。 https://t.me/dushufenxiang_chat/46019
+
+=======
+
+https://uyghursfoundation.org/
+
+请问这个项目有人了解吗？我打算给他们捐钱，想多了解一下~
