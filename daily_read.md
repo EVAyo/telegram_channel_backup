@@ -11739,3 +11739,17 @@ DW 中文- 德国之声 | 水貂：我做错了什么…… ?q=%23Covid_19 ?q=%2
 
 【教你看懂美国大选！v...】
 教你看懂美国大选！vanity fair请来FBI里肢体语言专家分析候选人的肢体语言。服装，出场，何时微笑，握手等等看似不经意的举动都是精心排练设计的，就看你能不能看懂了 http://m.weibo.cn/status/JssNMwzUq
+
+=======
+
+《每日文章精选 2020-11-10》 https://t.me/daily_read 
+
+1. 【家庭妇女抑或全职太太，都是“不被看见”的失语女性】https://www.thepaper.cn/newsDetail_forward_9815371
+
+2. 【哲学社 | 什么是压迫？】https://mp.weixin.qq.com/s/fLbvJhsKcaCHMo0eSk3F9Q
+
+3. 【橙雨伞 | 从古至今的杀妻文化，还会伤害多少女性？】https://mp.weixin.qq.com/s/EcdqllG3PjkqmZMfbgxYVg
+
+4. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+5. 【为什么不在厕所里喂奶？那我也在厕所里料理你的奶茶】https://mp.weixin.qq.com/s/Zqhx4Og6Wp0z6Mwk7bSU2g
