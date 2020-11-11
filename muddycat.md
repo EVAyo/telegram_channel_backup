@@ -1430,9 +1430,3 @@ https://t.me/daily_feminist/2936
 =======
 
 这一段是从自由主义角度，对“天赋人权”的批评。批评的点不在于“人权”，而在于“天”。 https://t.me/dushufenxiang_chat/46019
-
-=======
-
-https://uyghursfoundation.org/
-
-请问这个项目有人了解吗？我打算给他们捐钱，想多了解一下~
