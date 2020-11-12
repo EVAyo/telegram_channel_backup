@@ -11835,3 +11835,17 @@ https://www.ipkmedia.com/%25E3%2580%2590%25E9%25A6%2596%25E5%258F%2591%25E3%2580
 
 【刚刚辉瑞公司发布了重...】
 刚刚辉瑞公司发布了重磅信息，这是迄今COVID-19疫苗开发最好的信息，辉瑞公司COVID-19疫苗BNT162b2的人群保护力远超预期。 辉瑞刚刚报道了COVID-19疫苗BNT162b2临床试验进展，这是第一个被公布的COVID-19疫苗人群保护力数据。目前辉瑞的BNT162b2 mRNA疫苗3期临床试验有43538人在全球范围内参与受试。中期分析显示，相比安慰剂，间隔21天两次接种该mRNA疫苗可以使有症状的新型冠状病毒SARS-CoV-2感染率下降90%。而我之前谈过， https://m.weibo.cn/status/4552609090246158 ，因此，目前的临床试验结果大大超过了预期。 辉瑞公司指出，目前的临床试验中已有94人感染，因此药监机构DMC建议辉瑞根据之前的试验 。 我几周前给在辉瑞公司工作的美国同事打了电话，她表示在本月中下旬该公司可能就会向FDA提交申请。而辉瑞公司刚刚宣布，该公司已经向FDA提交了紧急授权（EUA），并准备在预计的164人感染后结束临床试验。
+
+=======
+
+《每日文章精选 2020-11-12》 https://t.me/daily_read 
+
+1. 【橙雨伞 | 对标《花花公子》的女性向杂志，受众还是男人？】https://mp.weixin.qq.com/s/8A4xaPKECH9dHvqv9piZtg
+
+2. 【家庭妇女抑或全职太太，都是“不被看见”的失语女性】https://www.thepaper.cn/newsDetail_forward_9815371
+
+3. 【橙雨伞 | 粉红税，可能是生为女性的你避不开的坑】https://mp.weixin.qq.com/s/6GIaPDEYmIl-EZiJCxp9Xg
+
+4. 【橙雨伞 | 从古至今的杀妻文化，还会伤害多少女性？】https://mp.weixin.qq.com/s/EcdqllG3PjkqmZMfbgxYVg
+
+5. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
