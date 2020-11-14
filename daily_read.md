@@ -11897,3 +11897,37 @@ https://seriousli.home.blog/2020/11/08/118
 
 【教你看懂美国大选！v...】
 教你看懂美国大选！vanity fair请来FBI里肢体语言专家分析候选人的肢体语言。服装，出场，何时微笑，握手等等看似不经意的举动都是精心排练设计的，就看你能不能看懂了 http://m.weibo.cn/status/JssNMwzUq
+
+=======
+
+每日文章精选
+
+【【首发】常玮平父亲：我儿无罪！为何以酷刑伺候？】
+https://www.ipkmedia.com/%25E3%2580%2590%25E9%25A6%2596%25E5%258F%2591%25E3%2580%2591%25E5%25B8%25B8%25E7%258E%25AE%25E5%25B9%25B3%25E7%2588%25B6%25E4%25BA%25B2%25EF%25BC%259A%25E6%2588%2591%25E5%2584%25BF%25E6%2597%25A0%25E7%25BD%25AA%25EF%25BC%2581%25E4%25B8%25BA%25E4%25BD%2595%25E4%25BB%25A5%25E9%2585%25B7%25E5%2588%2591%25E4%25BC%25BA%25E5%2580%2599
+
+【刚刚辉瑞公司发布了重...】
+刚刚辉瑞公司发布了重磅信息，这是迄今COVID-19疫苗开发最好的信息，辉瑞公司COVID-19疫苗BNT162b2的人群保护力远超预期。 辉瑞刚刚报道了COVID-19疫苗BNT162b2临床试验进展，这是第一个被公布的COVID-19疫苗人群保护力数据。目前辉瑞的BNT162b2 mRNA疫苗3期临床试验有43538人在全球范围内参与受试。中期分析显示，相比安慰剂，间隔21天两次接种该mRNA疫苗可以使有症状的新型冠状病毒SARS-CoV-2感染率下降90%。而我之前谈过， https://m.weibo.cn/status/4552609090246158 ，因此，目前的临床试验结果大大超过了预期。 辉瑞公司指出，目前的临床试验中已有94人感染，因此药监机构DMC建议辉瑞根据之前的试验 。 我几周前给在辉瑞公司工作的美国同事打了电话，她表示在本月中下旬该公司可能就会向FDA提交申请。而辉瑞公司刚刚宣布，该公司已经向FDA提交了紧急授权（EUA），并准备在预计的164人感染后结束临床试验。
+
+【South African man capitalizes off of racially charged disinformation】
+“南非白人屠杀”谎言的背后，是巨大的利益。 幕后黑手制造大量相似的网站，通过搜索引擎关键词和跨平台连接来引流。并且使用与知名网站相似的域名。 而后，流量通过贩卖域名或广告的方式，转化为资本。 https://medium.com/dfrlab/south-african-man-capitalizes-off-of-racially-charged-disinformation-cccf2920a1aa
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【金雁：苏联二战时期的官僚体制】
+官僚主义并不是国家身上的赘疣，赘疣是可以割掉的，这种官僚制度所以特别可怕，因为官僚制度就是国家。 %E9%87%91%E9%9B%81%E8%8B%8F%E8%81%94%E4%BA%8C%E6%88%98%E6%97%B6%E6%9C%9F%E7%9A%84%E5%AE%98%E5%83%9A%E4%BD%93%E5%88%B6-11-02
+
+【性义工：是公益，还是嫖娼？】
+https://mp.weixin.qq.com/s?__biz=MzA5MjA1OTMxOQ==&mid=2652002465&idx=1&sn=4390c5891be4a07bcc050a0a7cd56a8c
+
+【【书评】《菁英暴政》与民粹的反扑】
+https://philomedium.com/blog/81366
+
+【ww...】
+https://www.facebook.com/madmax6678/posts/10224186805041064
+
+【德农业部重申天津新冠病例“不太可能是德国产猪肘造成”】
+DW 中文- 德国之声 | 德国农业部强调，研究发现，新冠病毒无法在食物内或者表面复制繁殖。病毒繁殖需要活体动物或者人类作为宿主。根据目前对新冠病毒的科学认知，德国猪肘不太可能是造成中国天津新疫情发生的原因 ?q=%23%E7%8C%AA%E8%82%98%E6%96%B0%E5%86%A0%E8%B0%9C%E5%9B%A2 ?q=%23%E5%BE%B7%E5%9B%BD ?q=%23%E4%B8%AD%E5%9B%BD http://p.dw.com/p/3l6oT
+
+【编译 | 国际贸易的赢家和输家：对美国大选的影响】
+国际贸易能否直接影响美国总统选举。本文探讨了美国服务贸易性的提高和巨大顺差对选举的影响，表明制造业进口竞争带来的工作不安全感会削弱对现任政府的支持。我们使用涵盖几乎所有美国经济活动的establishment-level data，构建了衡量行业贸易性的新方式。在高技术贸易行业工人多的县，现任党投票率会增加，而低技术制造业工人多的县，现任党投票率会下降。在低技能工人多的摇摆州，现任党尤其容易失去选票。国家层面模型中，我们首次发现进口（出口）的增加与现任党得票率的减少（增加）相关。国家层面的影响巨大且有政治影响。我们还发现总统选举团的一个动机是保护制造业部门和反对贸易协定。 https://mp.weixin.qq.com/s/OTiWV2W3ReXMY3P6F-vkRg
