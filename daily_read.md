@@ -11849,3 +11849,51 @@ https://www.ipkmedia.com/%25E3%2580%2590%25E9%25A6%2596%25E5%258F%2591%25E3%2580
 4. 【橙雨伞 | 从古至今的杀妻文化，还会伤害多少女性？】https://mp.weixin.qq.com/s/EcdqllG3PjkqmZMfbgxYVg
 
 5. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+=======
+
+《每日文章精选 2020-11-13》 https://t.me/daily_read 
+
+1. 【橙雨伞 | 对标《花花公子》的女性向杂志，受众还是男人？】https://mp.weixin.qq.com/s/8A4xaPKECH9dHvqv9piZtg
+
+2. 【橙雨伞 | “消失”的女性：都2020年了，传媒业离男女平等还有多远？】https://mp.weixin.qq.com/s/iFY9QGvatNJh3rsgn5I8pA
+
+3. 【橙雨伞 | 粉红税，可能是生为女性的你避不开的坑】https://mp.weixin.qq.com/s/6GIaPDEYmIl-EZiJCxp9Xg
+
+4. 【家庭妇女抑或全职太太，都是“不被看见”的失语女性】https://www.thepaper.cn/newsDetail_forward_9815371
+
+5. 【橙雨伞 | 从古至今的杀妻文化，还会伤害多少女性？】https://mp.weixin.qq.com/s/EcdqllG3PjkqmZMfbgxYVg
+
+=======
+
+每日文章精选
+
+【"除非你极度享有特权...】
+"除非你极度享有特权，你才可能不关心政治。就这么简单。 如果某个主要政党想要阻止你与你爱的人缔结婚姻，你无法政治冷漠。如果某个主要政党允许警察针对性地骚扰、逮捕、和杀害你这种长相的人，你无法政治冷漠。当你生活贫乏、支出困难，而某个主要政党还在百般阻扰你享有福利和健康，你无法政治冷漠。 只要你还有同情心、还关心任何上述情况下的人，你就无法政治冷漠。 '不关心'政治的唯一确切途径，是既得利益并且异常自私。" http://www.douban.com/people/66855791/status/3167771791
+
+【橙雨伞 | 粉红税，可能是生为女性的你避不开的坑】
+https://mp.weixin.qq.com/s/6GIaPDEYmIl-EZiJCxp9Xg
+
+【橙雨伞 | 从古至今的杀妻文化，还会伤害多少女性？】
+https://mp.weixin.qq.com/s/EcdqllG3PjkqmZMfbgxYVg
+
+【"我们将为你们的每一...】
+"我们将为你们的每一步鼓掌助威！We will applaud you every step of the way!" 加油女孩们，dream it and make it happen! #美国大选# Harris讲话：我是选出的第一任女性副总统，但不会是最后一个...此刻，所有小女孩，收到一个清晰的信号，努力去实现你的梦想，我们一路为你鼓掌加油！ http://m.weibo.cn/status/JsVBQqSTa
+
+【登堂入会：一场政治素人的绝境逆袭，一次“美国梦”的最好诠释】
+%E7%99%BB%E5%A0%82%E5%85%A5%E4%BC%9A%E4%B8%80%E5%9C%BA%E6%94%BF%E6%B2%BB%E7%B4%A0%E4%BA%BA%E7%9A%84%E7%BB%9D%E5%A2%83%E9%80%86%E8%A2%AD%E4%B8%80%E6%AC%A1%E7%BE%8E%E5%9B%BD%E6%A2%A6%E7%9A%84%E6%9C%80%E5%A5%BD%E8%AF%A0%E9%87%8A-11-13 | https://mp.weixin.qq.com/s?__biz=MzUzNjc5MTM0OA==&mid=2247484164&idx=1&sn=a0e804dd82d1abc4a8622a972023dcc2
+
+【赞美猫】
+赞美猫 http://www.douban.com/people/1221509/status/3171346679
+
+【选举与投票中的数学】
+选举与投票中的数学
+
+【常玮平说，我不能像鸟...】
+常玮平说，我不能像鸟儿一样自由飞翔，只希望取保候审期满能恢复自由。 陈进学律师的微博视频
+
+【李翘楚：被连坐煽颠、指定监视居住的120天（未完）】
+https://seriousli.home.blog/2020/11/08/118
+
+【教你看懂美国大选！v...】
+教你看懂美国大选！vanity fair请来FBI里肢体语言专家分析候选人的肢体语言。服装，出场，何时微笑，握手等等看似不经意的举动都是精心排练设计的，就看你能不能看懂了 http://m.weibo.cn/status/JssNMwzUq
