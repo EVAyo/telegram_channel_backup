@@ -11931,3 +11931,37 @@ DW 中文- 德国之声 | 德国农业部强调，研究发现，新冠病毒无
 
 【编译 | 国际贸易的赢家和输家：对美国大选的影响】
 国际贸易能否直接影响美国总统选举。本文探讨了美国服务贸易性的提高和巨大顺差对选举的影响，表明制造业进口竞争带来的工作不安全感会削弱对现任政府的支持。我们使用涵盖几乎所有美国经济活动的establishment-level data，构建了衡量行业贸易性的新方式。在高技术贸易行业工人多的县，现任党投票率会增加，而低技术制造业工人多的县，现任党投票率会下降。在低技能工人多的摇摆州，现任党尤其容易失去选票。国家层面模型中，我们首次发现进口（出口）的增加与现任党得票率的减少（增加）相关。国家层面的影响巨大且有政治影响。我们还发现总统选举团的一个动机是保护制造业部门和反对贸易协定。 https://mp.weixin.qq.com/s/OTiWV2W3ReXMY3P6F-vkRg
+
+=======
+
+每日文章精选
+
+【为防病毒变异 丹麦扑杀养殖水貂】
+DW 中文- 德国之声 | 水貂：我做错了什么…… ?q=%23Covid_19 ?q=%23%E4%B8%B9%E9%BA%A6 ?q=%23%E7%97%85%E6%AF%92%E5%8F%98%E5%BC%82 http://p.dw.com/p/3kwK5
+
+【我是黄盈盈，我今天讲的是「小姐研究二十年」｜一席 第779位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&amp;sn=2077b2592665c31517405053c1365edc
+
+【橙雨伞 | 粉红税，可能是生为女性的你避不开的坑】
+https://mp.weixin.qq.com/s/6GIaPDEYmIl-EZiJCxp9Xg
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【【投书】防疫与经济是两难吗？从美国大选看经济复苏之道】
+1. 本次危机爆发时，美国的失业率一度飙升至接近15%。 2. 这波失业的劳工集中于低薪工作者。 3. 美国这波失业的劳工之中，不论是白人、黑人、拉美裔或亚裔，女性比例皆高于男性。先前的经济危机则截然不同，多半是男性失业率高于女性。 https://www.twreporter.org/a/opinion-usa-election-2020-epidemic-and-economic-perspective | https://telete.in/tw_reporter_org/277
+
+【【首发】常玮平父亲：我儿无罪！为何以酷刑伺候？】
+https://www.ipkmedia.com/%25E3%2580%2590%25E9%25A6%2596%25E5%258F%2591%25E3%2580%2591%25E5%25B8%25B8%25E7%258E%25AE%25E5%25B9%25B3%25E7%2588%25B6%25E4%25BA%25B2%25EF%25BC%259A%25E6%2588%2591%25E5%2584%25BF%25E6%2597%25A0%25E7%25BD%25AA%25EF%25BC%2581%25E4%25B8%25BA%25E4%25BD%2595%25E4%25BB%25A5%25E9%2585%25B7%25E5%2588%2591%25E4%25BC%25BA%25E5%2580%2599
+
+【选举与投票中的数学】
+选举与投票中的数学
+
+【【女权不是女性至上，...】
+【女权不是女性至上，是人权平等】 如果你是个男女平等，平权理念的拥护者，请不要羞于承认自己是个女权主义者，也希望更多优秀的男性加入平权的队伍，因为优秀的男性不会害怕男女平等。 http://m.weibo.cn/status/JtKRD1Amx
+
+【断网、关媒体、取消少数民族的投票──缅甸民主恶化阴影下，翁山苏姬可望连任】
+1. 政府在10月16日宣布将在全国56个主要为少数民族居住地的镇区（缅甸共有330镇区）取消或部分取消选举，影响全国3,800万选民中超过140万人的投票权利，引起少数民族的怒火。 2. 翁山苏姬政府从去年7月便对若开邦北部运行断网的手段，时间延续到今年8月才恢复了只能发送短信的2G网络。期间更有许多的学生、社运人士因着抗议断网、反战，被政府罗织罪名关押进监。 https://www.twreporter.org/a/myanmar-2020-election | https://telete.in/tw_reporter_org/263
+
+【【科普：微博和B站的...】
+【科普：微博和B站的财报里藏着哪些信息？】如果你想认真地了解“资本的故事”，那就必须学会看财报，尤其是其中的资产负债表、利润表和现金流量表。 微博和B站的财报里记录了哪些信息？广告对于微博来说有多重要？B站真正赚钱的业务到底是什么？为什么说利润表最容易造假？ http://m.weibo.cn/status/JtK5HAAyO
