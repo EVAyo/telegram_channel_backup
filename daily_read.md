@@ -11965,3 +11965,17 @@ https://www.ipkmedia.com/%25E3%2580%2590%25E9%25A6%2596%25E5%258F%2591%25E3%2580
 
 【【科普：微博和B站的...】
 【科普：微博和B站的财报里藏着哪些信息？】如果你想认真地了解“资本的故事”，那就必须学会看财报，尤其是其中的资产负债表、利润表和现金流量表。 微博和B站的财报里记录了哪些信息？广告对于微博来说有多重要？B站真正赚钱的业务到底是什么？为什么说利润表最容易造假？ http://m.weibo.cn/status/JtK5HAAyO
+
+=======
+
+《每日文章精选 2020-11-15》 https://t.me/daily_read 
+
+1. 【我们为什么要出走？】https://www.douban.com/note/784141414
+
+2. 【性义工：是公益，还是嫖娼？】https://mp.weixin.qq.com/s?__biz=MzA5MjA1OTMxOQ==&mid=2652002465&idx=1&sn=4390c5891be4a07bcc050a0a7cd56a8c
+
+3. 【当选美国副总统，也逃不过荡妇羞辱：女性从政有多难？】https://mp.weixin.qq.com/s/62HuR3AklWxvs7kIX3Nefg
+
+4. 【橙雨伞 | “消失”的女性：都2020年了，传媒业离男女平等还有多远？】https://mp.weixin.qq.com/s/iFY9QGvatNJh3rsgn5I8pA
+
+5. 【橙雨伞 | 对标《花花公子》的女性向杂志，受众还是男人？】https://mp.weixin.qq.com/s/8A4xaPKECH9dHvqv9piZtg
