@@ -1446,3 +1446,7 @@ https://t.me/daily_feminist/2936
 =======
 
 大家怎么看？ https://telegra.ph/%E5%A4%A7%E5%8D%88%E9%9B%86%E5%9B%A2%E7%9A%84%E7%A7%81%E4%BC%81%E7%AB%8B%E5%AE%AA%E5%8A%B3%E8%B5%84%E5%85%B1%E5%92%8C%E7%90%86%E5%BF%B5%E4%B8%8E%E7%A7%81%E6%9C%89%E5%85%B1%E6%B2%BB%E5%85%B1%E4%BA%AB%E6%A8%A1%E5%BC%8F-11-17
+
+=======
+
+大家对“反全球化”怎么看？
