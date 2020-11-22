@@ -1462,3 +1462,7 @@ https://t.me/daily_feminist/2936
 =======
 
 大家对医疗市场化怎么看？
+
+=======
+
+今天才发现 reification 和 objectification 是两个词... (不知道中文翻译是什么？)
