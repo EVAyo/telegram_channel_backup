@@ -12273,3 +12273,17 @@ Painful memories of being taken away from her home quickly become consumed by re
 
 【我们的四季】
 我们的四季 🌱 🌿 🍁 ❄️ http://www.douban.com/people/1062186/status/3185276551
+
+=======
+
+《每日文章精选 2020-11-23》 https://t.me/daily_read 
+
+1. 【来稿 | 我与厕所】https://mp.weixin.qq.com/s/D1GD6LAAJKAaMYrlYp--1Q
+
+2. 【寂静的村庄：死于虐待，葬于阴婚】https://www.douban.com/note/784922193
+
+3. 【看A片时，女权主义者的自我修养】https://mp.weixin.qq.com/s/8NuPj7OS25n9DiQbqGu8Sw
+
+4. 【丁香园 | 被当做生育工具的女精神病患者】https://mp.weixin.qq.com/s/5UlPFtToCaKpO6j2h9lNkg
+
+5. 【橙雨伞 | 她在哭诉受到的外貌羞辱，弹幕里却说，“这妆画得太丑了”】https://mp.weixin.qq.com/s/CayXc0dgXRpatcU8eSrqjg
