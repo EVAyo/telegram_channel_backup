@@ -1466,3 +1466,9 @@ https://t.me/daily_feminist/2936
 =======
 
 今天才发现 reification 和 objectification 是两个词... (不知道中文翻译是什么？)
+
+=======
+
+在电子阅读平台买了这本书，有兴趣可以问我要，我把账号分享出来。（可能人多不行会被封号...）
+
+https://www.goodreads.com/book/show/41963432-ghost-work

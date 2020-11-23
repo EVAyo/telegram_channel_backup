@@ -12239,3 +12239,37 @@ https://mp.weixin.qq.com/s/fHtp21B7ggffmfbGiRBD9g
 4. 【丁香园 | 被当做生育工具的女精神病患者】https://mp.weixin.qq.com/s/5UlPFtToCaKpO6j2h9lNkg
 
 5. 【橙雨伞 | 她在哭诉受到的外貌羞辱，弹幕里却说，“这妆画得太丑了”】https://mp.weixin.qq.com/s/CayXc0dgXRpatcU8eSrqjg
+
+=======
+
+每日文章精选
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【来稿 | 我与厕所】
+1. 我相信性别是一种社会构造，去男厕所还是女厕所对我来说虽然都有些不舒服，但是并不会影响我的性别认同。我考虑更多的是：今天我的着装打扮，去哪个厕所被骚扰的几率更小？ 2. 美国将近 60%的跨性别者因为曾经被骚扰或侵害过而避免使用公共厕所。 3. 这时真的有人走进了厕所，进入了隔间，并且在我出隔间之前去洗手，我都会特意等一下，等那个人离开厕所之后，我才会走出隔间去洗手。总之，避免见到陌生人是我去男厕或者女厕时的策略，因为减少见到人的概率就可以减少被骚扰和侵犯的概率。我最放心的时候是和朋友一起去厕所的时候，因为我感觉当我不是一个人时，被骚扰的概率会降低。 4. 不仅仅是上厕所，日常生活中的性别表达对于大多数人来说都是理所当然、稀松平常的。然而，有时这些性别表达却会为另一些人带来恐惧、困扰与痛苦。我们从小习得的性别意识从来不是理所当然的。正因为有这些歧视和不公，我们便有责任反思自己的性别意识与性别表达，了解相关知识，认识其他人的处境，并努力改变自己和社会。这样，也许这个世界就会对每一个人更加友好，哪怕是最微小的：让上厕所变成一件简单的事情。 https://mp.weixin.qq.com/s/D1GD6LAAJKAaMYrlYp--1Q
+
+【她的癌细胞撑起了几十亿美元的产业，如今终于得到经济赔偿】
+https://mp.weixin.qq.com/s/fHtp21B7ggffmfbGiRBD9g
+
+【2020-11-12-用民调研究民意，听到的可能不是民众的声音？｜2020美国大选｜评论｜深度｜端传媒 Initium Media】
+当人们对一件事物的复杂看法被简化为一个满意度或者重要度的数字时，受访者并不需要形成一套完整而连贯的观点，即使形成了，也无法将这套观点进行完整的表述。 相比于一些更“原始”的表达政治观点的形式，无论是在酒吧进行的演说还是街头暴动，民调更为结构化，但留给受访者的表达空间实质上也被压缩了。 http://telegra.ph/2020-11-12-%25E7%2594%25A8%25E6%25B0%2591%25E8%25B0%2583%25E7%25A0%2594%25E7%25A9%25B6%25E6%25B0%2591%25E6%2584%258F%25E5%2590%25AC%25E5%2588%25B0%25E7%259A%2584%25E5%258F%25AF%25E8%2583%25BD%25E4%25B8%258D%25E6%2598%25AF%25E6%25B0%2591%25E4%25BC%2597%25E7%259A%2584%25E5%25A3%25B0%25E9%259F%25B32020%25E7%25BE%258E%25E5%259B%25BD%25E5%25A4%25A7%25E9%2580%2589%25E8%25AF%2584%25E8%25AE%25BA%25E6%25B7%25B1%25E5%25BA%25A6%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592-Initium-Media-11-11 | https://telete.in/mengyshare/5529
+
+【挪威的公立医院是这样...】
+挪威的公立医院是这样运作的！ http://m.weibo.cn/status/JuFWodsrF
+
+【湄公河生态系统的衰落......】
+中国大坝在2020年7月开始蓄水，限制河水流入下游，导致下游国家出现和去年一样的干旱。 https://matters.news/%40globalmonitor/%25E6%25B9%2584%25E5%2585%25AC%25E6%25B2%25B3%25E7%2594%259F%25E6%2585%258B%25E7%25B3%25BB%25E7%25B5%25B1%25E7%259A%2584%25E8%25A1%25B0%25E8%2590%25BD-bafyreih7qkwxcjcsdlkztpurcgqf2xglhf2o3pmwh4xnttp3q7hrczycza
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【快递驿站“永久免费”的背后：从派送最后一公里到榨取最后一分钱】
+1. 从去年开始，许多快递员的派送费从1块多，逐渐被降至9毛、8毛。对比淘宝动辄千亿的成交额，这微不足道的一毛两毛钱也许太微不足道，但是对计件工快递员来说，却有着巨大的影响。这意味着他平均每天得多送数十个快递，才能拿到和之前一样的收入。 2. 快递员每天都要承担着高负荷的配送任务。从目前快递员的工作强度来看，一般每天的派件量在200件左右，即便是不吃不喝连续14个小时不间断派送，平均不到5分钟就要送出一个快件。有快递员说，“我从早上7点半送到晚上8点半，中午饭经常不吃，连续送13个小时，回到出租屋倒头就睡，第二天6点还要起来。” 3. 并非客户不理解快递员的艰辛，快递员也并非因为懒散而使用驿站，然而似乎矛盾总是从企业和劳动者之间被轻易转嫁到了消费者和快递员那里。 https://matters.news/%40masses2020/%25E5%25BF%25AB%25E9%2580%2592%25E9%25A9%25BF%25E7%25AB%2599-%25E6%25B0%25B8%25E4%25B9%2585%25E5%2585%258D%25E8%25B4%25B9-%25E7%259A%2584%25E8%2583%258C%25E5%2590%258E-%25E4%25BB%258E%25E6%25B4%25BE%25E9%2580%2581%25E6%259C%2580%25E5%2590%258E%25E4%25B8%2580%25E5%2585%25AC%25E9%2587%258C%25E5%2588%25B0%25E6%25A6%25A8%25E5%258F%2596%25E6%259C%2580%25E5%2590%258E%25E4%25B8%2580%25E5%2588%2586%25E9%2592%25B1-bafyreifgauzb7f3er5oktalez67k5cpdzupnqtqzq2qpdgchja6s7nmxd4 | https://telete.in/masses2020
+
+【动物也有方言吗？河南蝼蛄和北京蝼蛄给出了答案】
+%E5%8A%A8%E7%89%A9%E4%B9%9F%E6%9C%89%E6%96%B9%E8%A8%80%E5%90%97%E6%B2%B3%E5%8D%97%E8%9D%BC%E8%9B%84%E5%92%8C%E5%8C%97%E4%BA%AC%E8%9D%BC%E8%9B%84%E7%BB%99%E5%87%BA%E4%BA%86%E7%AD%94%E6%A1%88-11-20 | https://card.weibo.com/article/m/show/id/2309404257380337639436
+
+【我们的四季】
+我们的四季 🌱 🌿 🍁 ❄️ http://www.douban.com/people/1062186/status/3185276551
