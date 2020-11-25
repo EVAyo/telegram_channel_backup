@@ -12369,3 +12369,17 @@ https://mp.weixin.qq.com/s/fHtp21B7ggffmfbGiRBD9g
 
 【网络热传生物鉴定 第...】
 网络热传生物鉴定 第19集 本集内含赶海号的笑声鉴定法 http://m.weibo.cn/status/Jvn5MDTym
+
+=======
+
+《每日文章精选 2020-11-25》 https://t.me/daily_read 
+
+1. 【学人说｜跟父母同住能改善家务的性别分工吗？】https://mp.weixin.qq.com/s/f-d-_RQ-8bUk88uNmqZZ_Q
+
+2. 【来稿 | 我与厕所】https://mp.weixin.qq.com/s/D1GD6LAAJKAaMYrlYp--1Q
+
+3. 【寂静的村庄：死于虐待，葬于阴婚】https://www.douban.com/note/784922193
+
+4. 【看A片时，女权主义者的自我修养】https://mp.weixin.qq.com/s/8NuPj7OS25n9DiQbqGu8Sw
+
+5. 【丁香园 | 被当做生育工具的女精神病患者】https://mp.weixin.qq.com/s/5UlPFtToCaKpO6j2h9lNkg
