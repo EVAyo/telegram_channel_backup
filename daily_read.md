@@ -12417,3 +12417,37 @@ https://seriousli.home.blog/2020/11/08/118
 
 【动物也有方言吗？河南蝼蛄和北京蝼蛄给出了答案】
 %E5%8A%A8%E7%89%A9%E4%B9%9F%E6%9C%89%E6%96%B9%E8%A8%80%E5%90%97%E6%B2%B3%E5%8D%97%E8%9D%BC%E8%9B%84%E5%92%8C%E5%8C%97%E4%BA%AC%E8%9D%BC%E8%9B%84%E7%BB%99%E5%87%BA%E4%BA%86%E7%AD%94%E6%A1%88-11-20 | https://card.weibo.com/article/m/show/id/2309404257380337639436
+
+=======
+
+每日文章精选
+
+【李翘楚：被连坐煽颠、指定监视居住的120天（未完）】
+https://seriousli.home.blog/2020/11/08/118
+
+【阿根廷动物保护专家为...】
+阿根廷动物保护专家为了帮美洲豹延续后代做了一个冒险的决定，把人工饲养的雌性介绍给野生美洲豹，“家养”美洲豹可能会丧命。看着掠食动物的约会过程，专家都捏把汗 ?q=%23%E5%8D%B1%E9%99%A9%E7%9A%84%E7%88%B1 ?q=%23%E7%BE%8E%E6%B4%B2%E8%B1%B9
+
+【凑齐了《老爷子做事总...】
+凑齐了《老爷子做事总不会错》里所有角色的paperdoll～ http://www.douban.com/people/1737287/status/3186045357
+
+【2020-11-12-用民调研究民意，听到的可能不是民众的声音？｜2020美国大选｜评论｜深度｜端传媒 Initium Media】
+当人们对一件事物的复杂看法被简化为一个满意度或者重要度的数字时，受访者并不需要形成一套完整而连贯的观点，即使形成了，也无法将这套观点进行完整的表述。 相比于一些更“原始”的表达政治观点的形式，无论是在酒吧进行的演说还是街头暴动，民调更为结构化，但留给受访者的表达空间实质上也被压缩了。 http://telegra.ph/2020-11-12-%25E7%2594%25A8%25E6%25B0%2591%25E8%25B0%2583%25E7%25A0%2594%25E7%25A9%25B6%25E6%25B0%2591%25E6%2584%258F%25E5%2590%25AC%25E5%2588%25B0%25E7%259A%2584%25E5%258F%25AF%25E8%2583%25BD%25E4%25B8%258D%25E6%2598%25AF%25E6%25B0%2591%25E4%25BC%2597%25E7%259A%2584%25E5%25A3%25B0%25E9%259F%25B32020%25E7%25BE%258E%25E5%259B%25BD%25E5%25A4%25A7%25E9%2580%2589%25E8%25AF%2584%25E8%25AE%25BA%25E6%25B7%25B1%25E5%25BA%25A6%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592-Initium-Media-11-11 | https://telete.in/mengyshare/5529
+
+【竖屏来一张，捡来的栾...】
+竖屏来一张，捡来的栾树果实和小草重组。自留一张做锁屏壁纸。 http://www.douban.com/people/217247776/status/3182388452
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第19集 本集内含赶海号的笑声鉴定法 http://m.weibo.cn/status/Jvn5MDTym
+
+【ww...】
+https://www.facebook.com/madmax6678/posts/10224186805041064
+
+【落叶创意画】
+落叶创意画 http://www.douban.com/people/139176656/status/3179596356
+
+【高原上的性：自由是他们的，风险是她们的】
+https://mp.weixin.qq.com/s/K6bEaV7q4wwWZhUDe6Zvug
