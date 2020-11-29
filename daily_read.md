@@ -12499,3 +12499,17 @@ https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
 
 【【男言之隐 / 直男...】
 【男言之隐 / 直男说教 / Mansplain】 有史以来直男对你解释过的最愚蠢的事情是什么？ 有一次我开车的时候，我的丈夫告诉我，我们的家在左前方。 https://www.facebook.com/UnpackingtheFword/photos/a.695734210462940/3421873147849019
+
+=======
+
+《每日文章精选 2020-11-29》 https://t.me/daily_read 
+
+1. 【高原上的性：自由是他们的，风险是她们的】https://mp.weixin.qq.com/s/K6bEaV7q4wwWZhUDe6Zvug
+
+2. 【学人说｜跟父母同住能改善家务的性别分工吗？】https://mp.weixin.qq.com/s/f-d-_RQ-8bUk88uNmqZZ_Q
+
+3. 【来稿 | 我与厕所】https://mp.weixin.qq.com/s/D1GD6LAAJKAaMYrlYp--1Q
+
+4. 【寂静的村庄：死于虐待，葬于阴婚】https://www.douban.com/note/784922193
+
+5. 【看A片时，女权主义者的自我修养】https://mp.weixin.qq.com/s/8NuPj7OS25n9DiQbqGu8Sw
