@@ -1475,9 +1475,7 @@ https://www.goodreads.com/book/show/41963432-ghost-work
 
 =======
 
-重庆模式： https://us02web.zoom.us/j/81453390807?pwd=N1FZdU5XR1YwWUs1c0hmK1EzUjJhZz09
-
-== 讲座笔记 ==
+== 重庆模式讲座笔记 ==
 
 “重庆模式主要的政治理念不是再分配，而是通过再分配的口号来动员群众政治参与” 
 
