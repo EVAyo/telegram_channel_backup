@@ -1496,3 +1496,15 @@ https://www.goodreads.com/book/show/41963432-ghost-work
 （如果在温哥华或者是程序员的话，就更好了）
 
 谢谢！
+
+=======
+
+【讲座】移民联合：中美关系 / 针对亚裔的歧视 / 国际组织
+
+"Organizing the Diaspora: The U.S.-China Conflict, Anti-Asian Racism, and Transnational Solidarity" 
+
+Friday, December 4th at 7 pm ET/6 pm CT/5 pm MT/4 pm PT.
+
+https://act.dsausa.org/go/107427?aktmid=tm413355.cIdOCI&akid=a9845424.464318.T8kdLP&t=2&source=conf
+
+Password: 849084

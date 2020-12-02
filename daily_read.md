@@ -12595,3 +12595,37 @@ https://opinion.cw.com.tw/blog/profile/503/article/10204
 
 【左翼自由主义者在当代中国：如何思考？如何行动？】
 除了行动上的惰性外，我们或许还应时刻防备自身在智识与道德上的惰性。正视政治转型多诉求、多维度、多线程的现实，抵御看似简单明了的一元图景的诱惑，拒绝出于维护自由主义内部凝聚力而对议题设限的冲动。 https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483868&idx=1&sn=3ffc1fd0abd36eb9979a9f44080862d8
+
+=======
+
+每日文章精选
+
+【竖屏来一张，捡来的栾...】
+竖屏来一张，捡来的栾树果实和小草重组。自留一张做锁屏壁纸。 http://www.douban.com/people/217247776/status/3182388452
+
+【台湾著名性学专家何春...】
+台湾著名性学专家何春蕤教授与八个女人十二周促膝谈性，整理2500页手搞，两年撰写成精微细致的《性心情》。让女人共同面对情欲处境，并创造新的情欲想象与实践。
+
+【杀死那个石家庄人】
+杀死那个石家庄人 http://m.weibo.cn/status/Ju87E3Hms
+
+【Coursera | Online Courses & Credentials From Top Educators. Join for Free | Coursera】
+推荐这门耶鲁大学关于毒品问题的公开课： https://www.coursera.org/learn/addiction-treatment/home/welcome
+
+【这本书收录了海内外七...】
+这本书收录了海内外七位重要的性／别作者的论文著述，针对色情的诸多面向进行批判讨论。本书不是学术象牙塔的产物，而是介入现实的研究分析，涉及的议题都是当前重要的争议。关心性／别与社会文化问题的读者不可错过。
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【【和HIV感染者共处...】
+【和HIV感染者共处一天】【HIV感染者拒绝父亲逼婚】 今天是世界艾滋病日，@出圈 专访两位HIV感染者。亲人朋友几乎都知道@HIV松鼠哥 的情况，日子过得阳光快乐，疫情期间，他曾组织感染者为新冠肺炎患者捐赠过抗艾药物克力芝。 另一位小刚（化名），在毫无准备地情况下，被泄漏隐私。从此他经历了来自至亲的侮辱、殴打乃至“断绝关系”……和@许研敏 一道，与他们共处一日。 【网评】没有任何一个人能阻止疾病，但能够选择怎样面对疾病，要以阳光健康的心态面对生活，并且家人和朋友的鼓励和支持也非常重要，要给予他们足够的关心，关爱，公众也要给予患者足够的宽容，了解相关知识，以正常的眼光看待他们。 http://m.weibo.cn/status/JwtSGnipa
+
+【荆棘原 | 这些电影对老年的解读并不统一，但始终尊重生命 | 重阳节片单】
+https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
+
+【苏州园林之美：听雨轩...】
+苏州园林之美：听雨轩，拾音阁，风篁鸣琴台，暗香疏影间。| 郑波 http://m.weibo.cn/status/Jwqi6gX8o
+
+【【清水会馆】希望它还...】
+【清水会馆】希望它还能保留下来吧，毕竟那么美。 http://www.douban.com/people/156956618/status/3193262686
