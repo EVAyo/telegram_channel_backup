@@ -12629,3 +12629,37 @@ https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
 
 【【清水会馆】希望它还...】
 【清水会馆】希望它还能保留下来吧，毕竟那么美。 http://www.douban.com/people/156956618/status/3193262686
+
+=======
+
+每日文章精选
+
+【弦子和她的朋友们，1202海淀法院声援纪实                 · Issue #1555 · duty-machine/duty-machine】
+https://github.com/duty-machine/duty-machine/issues/1555
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第19集 本集内含赶海号的笑声鉴定法 http://m.weibo.cn/status/Jvn5MDTym
+
+【我是黄盈盈，我今天讲的是「小姐研究二十年」｜一席 第779位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&amp;sn=2077b2592665c31517405053c1365edc
+
+【记录华盛顿的“黑人同命”运动：当相机失焦】
+如果黑人是这个世界的强势族群，在他们拍毕业照的时候，白人同学的脸会不会由于曝光过度而变得模糊？ https://matters.news/%40dmyfish/%25E8%25AE%25B0%25E5%25BD%2595%25E5%258D%258E%25E7%259B%259B%25E9%25A1%25BF%25E7%259A%2584-%25E9%25BB%2591%25E4%25BA%25BA%25E5%2590%258C%25E5%2591%25BD-%25E8%25BF%2590%25E5%258A%25A8-%25E5%25BD%2593%25E7%259B%25B8%25E6%259C%25BA%25E5%25A4%25B1%25E7%2584%25A6-bafyreifukpsvh55f6xd6ffvkj2gt5lj4yb2kyinupynzdseinso2r7r2xq
+
+【一招解决戴口罩眼镜起...】
+一招解决戴口罩眼镜起雾的问题！ ?q=%23Highly Recommend# /
+
+【湖南某地农村公然违宪...】
+湖南某地农村公然违宪，拒绝分单女家庭宅基地 http://m.weibo.cn/status/JwylbmER7
+
+【来源：】
+来源： https://telete.in/fuckfomo/353 “作为非二元与别人对我的看法(perceived)无关。非二元是一种解放——不再需要将自己变得微弱以适应预先形成的(preconceived)我是谁以及我是什么的观念。”
+
+【​唱歌跑调该不该怨父母？】
+%E5%94%B1%E6%AD%8C%E8%B7%91%E8%B0%83%E8%AF%A5%E4%B8%8D%E8%AF%A5%E6%80%A8%E7%88%B6%E6%AF%8D-11-28 | https://mp.weixin.qq.com/s/o2cv4FsLniAElkCgIZfmPA
+
+【【台湾】⚧】
+【台湾】⚧ http://m.weibo.cn/status/JwrNDzkn8
+
+【【中国乌坎村事件6年纪录】抗争，往前，可是往哪一边──李哲昕的《迷航》与中国民主纪事】
+https://www.twreporter.org/a/2020-taipei-golden-horse-film-festival-lost-course | https://telete.in/tw_reporter_org/266
