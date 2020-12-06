@@ -12663,3 +12663,119 @@ http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&am
 
 【【中国乌坎村事件6年纪录】抗争，往前，可是往哪一边──李哲昕的《迷航》与中国民主纪事】
 https://www.twreporter.org/a/2020-taipei-golden-horse-film-festival-lost-course | https://telete.in/tw_reporter_org/266
+
+=======
+
+每日文章精选
+
+【这不是CG动画...】
+这不是CG动画... 美丽的裸海蝶（Clione limacina），一种浮游软体动物。 通常生活在南极、北极的寒冷海域。 Video by Alexander Semenov http://m.weibo.cn/status/4577386009991365
+
+【【有哪些堪称艺术的广...】
+【有哪些堪称艺术的广告作品？】 日航信用卡广告。看到拍摄过程惊了个呆 😯 http://www.douban.com/people/3520279/status/3051921406
+
+【移居加拿大你需要知道的一切 -】
+https://www.douban.com/note/784059074
+
+【#TIL# 欧洲光污...】
+#TIL# 欧洲光污染最严重的地方在哪里？不是伦敦、巴黎、巴塞罗那这样的不夜城，亦不是德国的工业区，而是荷兰海牙附近。实际上，整个荷兰以及北部比利时的光污染都非常可怕，原因是：农业大棚。 荷兰是欧洲的农业基地，这些发着光的大棚里面是各类蔬菜以及花卉。虽然地很少，但荷兰的单位面积农业产出是美国的10倍以上。到了晚上这些大棚就像神秘的 portal 一样，把整个天染成橙色，有点科幻。 从 ESA 给的卫星图上看，这些地方不像是城市是光点汇聚的片状，更是一个个剧烈发光的大光球。 http://m.weibo.cn/status/JvcJxkpRU
+
+【【和HIV感染者共处...】
+【和HIV感染者共处一天】【HIV感染者拒绝父亲逼婚】 今天是世界艾滋病日，@出圈 专访两位HIV感染者。亲人朋友几乎都知道@HIV松鼠哥 的情况，日子过得阳光快乐，疫情期间，他曾组织感染者为新冠肺炎患者捐赠过抗艾药物克力芝。 另一位小刚（化名），在毫无准备地情况下，被泄漏隐私。从此他经历了来自至亲的侮辱、殴打乃至“断绝关系”……和@许研敏 一道，与他们共处一日。 【网评】没有任何一个人能阻止疾病，但能够选择怎样面对疾病，要以阳光健康的心态面对生活，并且家人和朋友的鼓励和支持也非常重要，要给予他们足够的关心，关爱，公众也要给予患者足够的宽容，了解相关知识，以正常的眼光看待他们。 http://m.weibo.cn/status/JwtSGnipa
+
+【苏州园林之美：听雨轩...】
+苏州园林之美：听雨轩，拾音阁，风篁鸣琴台，暗香疏影间。| 郑波 http://m.weibo.cn/status/Jwqi6gX8o
+
+【‎Code Switch: The White Elephants In The Room on Apple Podcasts】
+1. 少部分黑人男性支持特朗普，这和black nationalism等保守主义相关。特朗普的“有钱”样子，吸引了认为“黑人可以通过财富来解放”的一部分人。 2. 大家默认华人/拉丁裔应该只发出一种声音，但从来没人说白人应该只发出一种声音。 3. 统计显示，福音派白人中，种族歧视与支持特朗普正相关。 https://podcasts.apple.com/us/podcast/code-switch/id1112190608?i=1000499307863
+
+【一招解决戴口罩眼镜起...】
+一招解决戴口罩眼镜起雾的问题！ ?q=%23Highly Recommend# /
+
+【弦子和她的朋友们，1202海淀法院声援纪实                 · Issue #1555 · duty-machine/duty-machine】
+https://github.com/duty-machine/duty-machine/issues/1555
+
+【“女人的一万种吃法”】
+“女人的一万种吃法” http://www.douban.com/people/1630656/status/3198758843 【网评】所以大部分国男才如此热衷结婚，毕竟女人太好吃了，用一个男教授的话说就是多「功能」。即便彩礼再高也拦不住国男结婚的强烈欲望（甚至不惜拐卖妇女），他们抱怨彩礼高更像是用矫情卖惨掩盖自己剥削的实质，同时降低婚姻成本。而彩礼最终也没落到女人身上，大多被娘家拿走给儿子娶媳妇，但挨骂的是女人。 【网评】1这就是牌坊。和以前夸奖寡妇为了照顾孩子不给夫家“丢脸”，把脸划花守节不再嫁一个道理。2你们发现没，在上面表彰的受苦的真人，都是女的（当然不排除这一套里也有男的，只拍了女的），但在下面表现“美好家庭想象”的插画上，根本没有女的，父慈子孝三代人，家里的顶梁柱哟。
+
+=======
+
+每日文章精选
+
+【【来自投稿】1948...】
+【来自投稿】1948年，George W.McLaurin，第一位进入奥克拉荷马大学的非洲裔美国学生，由于种族隔离政策，他被迫与白人学生分开坐。 http://m.weibo.cn/status/JwLQFv0zS
+
+【杀死那个石家庄人】
+杀死那个石家庄人 http://m.weibo.cn/status/Ju87E3Hms
+
+【弦子和她的朋友们，1202海淀法院声援纪实                 · Issue #1555 · duty-machine/duty-machine】
+https://github.com/duty-machine/duty-machine/issues/1555
+
+【推上看到的知乎日常狼...】
+推上看到的知乎日常狼性 第一反应可能是，这个人真的不能推己及人地想象一下如果有一天去国外学习或旅游，被强迫要求中国人之间不能说汉语（你的语言还被说成是“奇怪的语言”）是什么感受吗？ 而其实，这不仅仅是缺乏同理心的个人态度问题，而是权力结构和政策（所谓“现在的规矩”）在鼓励和生产这样的态度 如David Graeber所说，位于不平等关系优势的那一方难有同理心去了解位于不平等关系劣势的那一方的感受。 http://www.douban.com/people/1131757/status/3192001090
+
+【“女人的一万种吃法”】
+“女人的一万种吃法” http://www.douban.com/people/1630656/status/3198758843 【网评】所以大部分国男才如此热衷结婚，毕竟女人太好吃了，用一个男教授的话说就是多「功能」。即便彩礼再高也拦不住国男结婚的强烈欲望（甚至不惜拐卖妇女），他们抱怨彩礼高更像是用矫情卖惨掩盖自己剥削的实质，同时降低婚姻成本。而彩礼最终也没落到女人身上，大多被娘家拿走给儿子娶媳妇，但挨骂的是女人。 【网评】1这就是牌坊。和以前夸奖寡妇为了照顾孩子不给夫家“丢脸”，把脸划花守节不再嫁一个道理。2你们发现没，在上面表彰的受苦的真人，都是女的（当然不排除这一套里也有男的，只拍了女的），但在下面表现“美好家庭想象”的插画上，根本没有女的，父慈子孝三代人，家里的顶梁柱哟。
+
+【集体“改信”穆斯林，失落的西马原住民｜端传媒】
+原住民的森林一直被政府以“发展”之名遭到破坏，导致他们资源匮乏，被迫进入“现金经济”社会，而政府又以他们“贫穷”为由，将金钱资源（发展）和精神支柱（伊斯兰教）带进村里，结果就让这两个手段在后来演变成政府实践“国家融合”的重要仪器。 在家园被破坏的前提下，信奉伊斯兰教似乎变成生存的唯一选择，不但能获得政府的各种援助，还能融入马来主流社会，享有“土著”的特权地位。 2020-11-25-%E9%9B%86%E4%BD%93%E6%94%B9%E4%BF%A1%E7%A9%86%E6%96%AF%E6%9E%97%E5%A4%B1%E8%90%BD%E7%9A%84%E8%A5%BF%E9%A9%AC%E5%8E%9F%E4%BD%8F%E6%B0%91%E5%9B%BD%E9%99%85%E6%B7%B1%E5%BA%A6%E7%AB%AF%E4%BC%A0%E5%AA%92-Initium-Media-11-24-2 | https://telete.in/mengyshare/5649
+
+【【和HIV感染者共处...】
+【和HIV感染者共处一天】【HIV感染者拒绝父亲逼婚】 今天是世界艾滋病日，@出圈 专访两位HIV感染者。亲人朋友几乎都知道@HIV松鼠哥 的情况，日子过得阳光快乐，疫情期间，他曾组织感染者为新冠肺炎患者捐赠过抗艾药物克力芝。 另一位小刚（化名），在毫无准备地情况下，被泄漏隐私。从此他经历了来自至亲的侮辱、殴打乃至“断绝关系”……和@许研敏 一道，与他们共处一日。 【网评】没有任何一个人能阻止疾病，但能够选择怎样面对疾病，要以阳光健康的心态面对生活，并且家人和朋友的鼓励和支持也非常重要，要给予他们足够的关心，关爱，公众也要给予患者足够的宽容，了解相关知识，以正常的眼光看待他们。 http://m.weibo.cn/status/JwtSGnipa
+
+【图书馆肖像更换｜赶走房间里的大象的全过程】
+看到人大的同学发的，建议图书馆的名人肖像增加女性肖像，挺好的。真的给人星星之火的感觉。 https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+=======
+
+《每日文章精选 2020-12-05》 https://t.me/daily_read 
+
+1. 【图书馆肖像更换｜赶走房间里的大象的全过程】https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d
+
+2. 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】https://www.thepaper.cn/newsDetail_forward_10255485
+
+3. 【被赶出厕所的人】https://mp.weixin.qq.com/s/HvNBUcFG256VyI0JRzSDMA
+
+4. 【陈亚亚：流产不是女性私事，更不是女性的错｜从英国王妃梅根“自曝”流产说开去】https://mp.weixin.qq.com/s/fhE3HyYZFDWvXk7snIpseQ
+
+5. 【一个历史学家的身不由己】https://www.douban.com/note/786497231
+
+=======
+
+每日文章精选
+
+【#职场性骚扰#】
+#职场性骚扰# 职场性别歧视和性骚扰一直是困扰大家的热点话题之一。最近听闻一位留学生讲述的真实经历，也回想起自己工作之初的经历，有感而发和大家分享一下我的一些看法和观点。希望对大家有所帮助。 http://m.weibo.cn/status/Jx3ef2a3n
+
+【2020-12-06-Elliot Page给奥斯卡的挑战：影帝与影后都将成为历史名词？｜风物｜深度｜端传媒 Initium Media】
+https://u.nu/8hj14
+
+【Coursera | Online Courses & Credentials From Top Educators. Join for Free | Coursera】
+推荐这门耶鲁大学关于毒品问题的公开课： https://www.coursera.org/learn/addiction-treatment/home/welcome
+
+【移居加拿大你需要知道的一切 -】
+https://www.douban.com/note/784059074
+
+【苏州园林之美：听雨轩...】
+苏州园林之美：听雨轩，拾音阁，风篁鸣琴台，暗香疏影间。| 郑波 http://m.weibo.cn/status/Jwqi6gX8o
+
+【#看见女性外卖员#】
+#看见女性外卖员# 看了这篇写女性外卖员的文章，我忍不住红了眼眶，更多的女性为了家庭为了生活，挤进了外卖这个系统。 她们选择这个极耗体力的职业。 “每天能看见自己的收入，不用被压着钱，心里舒坦。” “有些男的都跑不过我，所以他们叫我‘婷哥’。 https://mp.weixin.qq.com/s/wrI1LTv0JbUU_oeAVoTvug
+
+【广西财经学院的这一段...】
+广西财经学院的这一段校园表演也太震撼了，剧情设计是以封建文化背景下一位势利的父亲卖女儿的故事为故事线，体现了对封建糟粕文化讽刺和和畸形社会文化的批判。 http://m.weibo.cn/detail/4572205231376764
+
+【【乳腺炎】据说是比顺...】
+【乳腺炎】据说是比顺产还能疼哭 哺乳期乳腺发炎化脓切开脓肿引流 奶水是乳腺分泌的，堵奶乳汁淤积，营养丰富的奶堵在乳腺里面，细菌最爱了大量繁殖，发炎流脓溃烂高烧，异常痛苦，也不能喂奶了 母乳喂养只能尽量避免堵奶，注意乳头清洁，预防乳腺炎。 http://m.weibo.cn/status/JwNgDr5IP
+
+【推上看到的知乎日常狼...】
+推上看到的知乎日常狼性 第一反应可能是，这个人真的不能推己及人地想象一下如果有一天去国外学习或旅游，被强迫要求中国人之间不能说汉语（你的语言还被说成是“奇怪的语言”）是什么感受吗？ 而其实，这不仅仅是缺乏同理心的个人态度问题，而是权力结构和政策（所谓“现在的规矩”）在鼓励和生产这样的态度 如David Graeber所说，位于不平等关系优势的那一方难有同理心去了解位于不平等关系劣势的那一方的感受。 http://www.douban.com/people/1131757/status/3192001090
+
+【图书馆肖像更换｜赶走房间里的大象的全过程】
+看到人大的同学发的，建议图书馆的名人肖像增加女性肖像，挺好的。真的给人星星之火的感觉。 https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d

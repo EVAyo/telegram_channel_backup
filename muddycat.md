@@ -1508,3 +1508,83 @@ Friday, December 4th at 7 pm ET/6 pm CT/5 pm MT/4 pm PT.
 https://act.dsausa.org/go/107427?aktmid=tm413355.cIdOCI&akid=a9845424.464318.T8kdLP&t=2&source=conf
 
 Password: 849084
+
+=======
+
+【讲座】移民联合：中美关系 / 针对亚裔的歧视 / 国际组织  "Organizing the Diaspora: The U.S.-China Conflict, Anti-Asian Racism, and Transnational Solidarity"   Friday, December 4th at 7 pm ET/6 pm CT/5 pm MT/4 pm PT.  https://act.dsausa.org/go/107427?aktmid=tm413355.cIdOCI&akid=a9…
+
+=======
+
+【世俗主义与法国政治】
+
+1. 各派夺取贞德形象，包括极右翼纪念“贞德受难日”。
+
+2. 法国国家夺取教会统一话语。
+
+3. 法国反对多元文化。
+
+4. 法国的计划经济 + 技术官僚。
+
+5. 革命老区法兰西，让很多革命者失望。
+
+6. 穆斯林移民没有在法国得到过权利，使用“政教分离”的脉络去研究他们是错误的。（如果上街看到穆斯林诉求是很底层的，比如同工同酬，社会保障）
+
+=======
+
+【女权月月谈】
+
+https://umich.zoom.us/w/99513555158?tk=o73d8niLP7_EgOfRGiZPgncxtuFbnsZgd4KVCgH59oc.DQIAAAAXK3hY1hZWeUg3ODV2UVNEV0VqWUh2OFpQS3F3AAAAAAAAAAAAAAAAAAAAAAAAAAAA
+https://space.bilibili.com/661761562/video
+
+1. 中共宣传画形象中，农民总是女性，工人是男性。用性别隐含了工农之间的等级关系。
+
+2. 扫盲/妇婴保健都是女性做的，但因为怕被男领导记恨，女性只能说“都是党领导的好”。
+
+=======
+
+一个关于秦晖的对话，不知道大家怎么看？
+
+【A】我觉得秦晖作为一个知识分子男性，他很难感受到伦理的温情脉脉是偏向于男性，父亲，兄长，乡绅的...
+
+【B】这是他的 bias
+
+不过他似乎是有这种倾向，那就是女性听父亲丈夫的，比听皇帝的要好。
+
+他也指出，当代社会，目标是现代民主，小共同体大共同体都不应再存在了
+
+但是他的确是有自己的偏心的
+
+他的一些说法，例如小共同体的温情脉脉，感觉也有漏洞
+
+夏商周不可能真是那样
+
+【A】但作为女性，丈夫和皇帝可怕多了。。。。
+
+
+【B】啊！
+
+对啊，他作为男性没有理解
+
+因为在小共同体社会，他是受益者
+
+所以他反对秦制
+
+或许，周秦之变没有他设想的那么重要。都是对人压迫，半斤八两而已
+
+不过你说的，对女性而言，丈夫比皇帝可怕，这点我还真没想过！
+
+=======
+
+昨天讲到 trans woman cis-passing 的问题...
+
+我想是不是因为社会对女性的外貌期待就是很多，比如应该用什么样的声音，什么样的态度，脸要白，多光，身形也不能太大。
+
+对男性就简单多了，大概只要一个屌，但平时社交也不用露出来... ( 当然我也网上见过 trans man 挺担心这个，还互相询问怎么选好内裤/泳裤 )
+
+总的说来，还是“性别二元论 / 性别刻板印象”害人。。。
+
+https://t.me/LiberalegalitarianisminChinese/26235
+
+=======
+
+【黑历史自爆】以前沉迷佛教看了很多经，现在想来，佛经不仅仇女，还大搞casteism，动不动就强调哪个人物是婆罗门。
