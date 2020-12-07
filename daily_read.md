@@ -12827,3 +12827,17 @@ http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&am
 
 【荆棘原 | 这些电影对老年的解读并不统一，但始终尊重生命 | 重阳节片单】
 https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
+
+=======
+
+《每日文章精选 2020-12-07》 https://t.me/daily_read 
+
+1. 【性别偏见与集体行动：以「虚假指控论」及「自我受害者化论」为例】https://mp.weixin.qq.com/s/QfeP8DJlqFRwdH7rry8VZw
+
+2. 【疫情为何在美国肉类加工厂中肆虐？】https://www.thepaper.cn/newsDetail_forward_10286277
+
+3. 【图书馆肖像更换｜赶走房间里的大象的全过程】https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d
+
+4. 【那些十几岁就辍学的农村少年，后来去了哪？】https://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&mid=2650783633&idx=1&sn=98de9dfbb4f47d20d24e2187a944e167
+
+5. 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】https://www.thepaper.cn/newsDetail_forward_10255485

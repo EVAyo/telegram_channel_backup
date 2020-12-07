@@ -1501,17 +1501,17 @@ https://www.goodreads.com/book/show/41963432-ghost-work
 
 【讲座】移民联合：中美关系 / 针对亚裔的歧视 / 国际组织
 
-"Organizing the Diaspora: The U.S.-China Conflict, Anti-Asian Racism, and Transnational Solidarity" 
+https://fb.watch/2aCcBQAM-Q/
 
-Friday, December 4th at 7 pm ET/6 pm CT/5 pm MT/4 pm PT.
+笔记
 
-https://act.dsausa.org/go/107427?aktmid=tm413355.cIdOCI&akid=a9845424.464318.T8kdLP&t=2&source=conf
+1. 华人性工作者的个人故事：东北美资厂 => 福建台资厂 => 西雅图沙龙
 
-Password: 849084
+2. 重新审视中国文化
 
-=======
+3. 华人对其他亚裔的歧视
 
-【讲座】移民联合：中美关系 / 针对亚裔的歧视 / 国际组织  "Organizing the Diaspora: The U.S.-China Conflict, Anti-Asian Racism, and Transnational Solidarity"   Friday, December 4th at 7 pm ET/6 pm CT/5 pm MT/4 pm PT.  https://act.dsausa.org/go/107427?aktmid=tm413355.cIdOCI&akid=a9…
+4. 运动组织者容易产生“为什么我们当地的人都没有同情心，不想参与政治”的想法。解决方法是真正理解在地需求。
 
 =======
 
