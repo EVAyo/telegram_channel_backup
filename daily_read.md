@@ -12779,3 +12779,17 @@ https://www.douban.com/note/784059074
 
 【图书馆肖像更换｜赶走房间里的大象的全过程】
 看到人大的同学发的，建议图书馆的名人肖像增加女性肖像，挺好的。真的给人星星之火的感觉。 https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d
+
+=======
+
+《每日文章精选 2020-12-06》 https://t.me/daily_read 
+
+1. 【疫情为何在美国肉类加工厂中肆虐？】https://www.thepaper.cn/newsDetail_forward_10286277
+
+2. 【图书馆肖像更换｜赶走房间里的大象的全过程】https://mp.weixin.qq.com/s?__biz=MjM5MjI2NDMwOQ==&mid=2647918663&idx=1&sn=60f93ad378a7250e9ea1da1ff907519d
+
+3. 【那些十几岁就辍学的农村少年，后来去了哪？】https://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&mid=2650783633&idx=1&sn=98de9dfbb4f47d20d24e2187a944e167
+
+4. 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】https://www.thepaper.cn/newsDetail_forward_10255485
+
+5. 【被赶出厕所的人】https://mp.weixin.qq.com/s/HvNBUcFG256VyI0JRzSDMA
