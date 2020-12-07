@@ -12793,3 +12793,37 @@ https://www.douban.com/note/784059074
 4. 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】https://www.thepaper.cn/newsDetail_forward_10255485
 
 5. 【被赶出厕所的人】https://mp.weixin.qq.com/s/HvNBUcFG256VyI0JRzSDMA
+
+=======
+
+每日文章精选
+
+【这本书收录了海内外七...】
+这本书收录了海内外七位重要的性／别作者的论文著述，针对色情的诸多面向进行批判讨论。本书不是学术象牙塔的产物，而是介入现实的研究分析，涉及的议题都是当前重要的争议。关心性／别与社会文化问题的读者不可错过。
+
+【Coursera | Online Courses & Credentials From Top Educators. Join for Free | Coursera】
+推荐这门耶鲁大学关于毒品问题的公开课： https://www.coursera.org/learn/addiction-treatment/home/welcome
+
+【【和HIV感染者共处...】
+【和HIV感染者共处一天】【HIV感染者拒绝父亲逼婚】 今天是世界艾滋病日，@出圈 专访两位HIV感染者。亲人朋友几乎都知道@HIV松鼠哥 的情况，日子过得阳光快乐，疫情期间，他曾组织感染者为新冠肺炎患者捐赠过抗艾药物克力芝。 另一位小刚（化名），在毫无准备地情况下，被泄漏隐私。从此他经历了来自至亲的侮辱、殴打乃至“断绝关系”……和@许研敏 一道，与他们共处一日。 【网评】没有任何一个人能阻止疾病，但能够选择怎样面对疾病，要以阳光健康的心态面对生活，并且家人和朋友的鼓励和支持也非常重要，要给予他们足够的关心，关爱，公众也要给予患者足够的宽容，了解相关知识，以正常的眼光看待他们。 http://m.weibo.cn/status/JwtSGnipa
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】
+https://www.thepaper.cn/newsDetail_forward_10255485
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【我是黄盈盈，我今天讲的是「小姐研究二十年」｜一席 第779位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&amp;sn=2077b2592665c31517405053c1365edc
+
+【来源：】
+来源： https://telete.in/fuckfomo/353 “作为非二元与别人对我的看法(perceived)无关。非二元是一种解放——不再需要将自己变得微弱以适应预先形成的(preconceived)我是谁以及我是什么的观念。”
+
+【杀死那个石家庄人】
+杀死那个石家庄人 http://m.weibo.cn/status/Ju87E3Hms
+
+【荆棘原 | 这些电影对老年的解读并不统一，但始终尊重生命 | 重阳节片单】
+https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
