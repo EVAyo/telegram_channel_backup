@@ -12841,3 +12841,37 @@ https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
 4. 【那些十几岁就辍学的农村少年，后来去了哪？】https://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&mid=2650783633&idx=1&sn=98de9dfbb4f47d20d24e2187a944e167
 
 5. 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】https://www.thepaper.cn/newsDetail_forward_10255485
+
+=======
+
+每日文章精选
+
+【新疆的人口重组运动 - 两位历史学者的对谈】
+https://matters.news/%40platero/%25E6%2596%25B0%25E7%2596%2586%25E7%259A%2584%25E4%25BA%25BA%25E5%258F%25A3%25E9%2587%258D%25E7%25BB%2584%25E8%25BF%2590%25E5%258A%25A8-%25E4%25B8%25A4%25E4%25BD%258D%25E5%258E%2586%25E5%258F%25B2%25E5%25AD%25A6%25E8%2580%2585%25E7%259A%2584%25E5%25AF%25B9%25E8%25B0%2588-%25E4%25B8%258A-bafyreidqjflu64wizoslsnlhibayuyz5xqnl3at6pftkobou5y4t7kuscq | | https://telete.in/theLiterate/1692
+
+【風的形狀】
+風的形狀 【网评】好浪漫啊 http://m.weibo.cn/status/JxjNrhrAm
+
+【我是黄盈盈，我今天讲的是「小姐研究二十年」｜一席 第779位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&amp;sn=2077b2592665c31517405053c1365edc
+
+【【奇奇怪怪设计大赏】】
+【奇奇怪怪设计大赏】 这种橡皮擦，使用一段时间之后俨然变成了富士山的样子 http://www.douban.com/people/206364404/status/3203661733
+
+【中国“疫苗之王”：成功与财富幕布下的丑闻与争议】
+https://cn.nytimes.com/business/20201207/china-vaccine-astrazeneca
+
+【色拉布再次发力！全新...】
+色拉布再次发力！全新 #3D迪士尼滤镜# 登场！快来玩！ 这都是些什么鬼畜滤镜啦！ http://m.weibo.cn/status/Jxbhvlw2S
+
+【【乳腺炎】据说是比顺...】
+【乳腺炎】据说是比顺产还能疼哭 哺乳期乳腺发炎化脓切开脓肿引流 奶水是乳腺分泌的，堵奶乳汁淤积，营养丰富的奶堵在乳腺里面，细菌最爱了大量繁殖，发炎流脓溃烂高烧，异常痛苦，也不能喂奶了 母乳喂养只能尽量避免堵奶，注意乳头清洁，预防乳腺炎。 http://m.weibo.cn/status/JwNgDr5IP
+
+【Serge Lang教授打假，亨廷顿院士梦泡汤】
+Serge-Lang%E6%95%99%E6%8E%88%E6%89%93%E5%81%87%E4%BA%A8%E5%BB%B7%E9%A1%BF%E9%99%A2%E5%A3%AB%E6%A2%A6%E6%B3%A1%E6%B1%A4-12-07
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【#职场性骚扰#】
+#职场性骚扰# 职场性别歧视和性骚扰一直是困扰大家的热点话题之一。最近听闻一位留学生讲述的真实经历，也回想起自己工作之初的经历，有感而发和大家分享一下我的一些看法和观点。希望对大家有所帮助。 http://m.weibo.cn/status/Jx3ef2a3n
