@@ -12875,3 +12875,37 @@ Data Feminism offers strategies for data scientists seeking to learn how feminis
 
 【#职场性骚扰#】
 #职场性骚扰# 职场性别歧视和性骚扰一直是困扰大家的热点话题之一。最近听闻一位留学生讲述的真实经历，也回想起自己工作之初的经历，有感而发和大家分享一下我的一些看法和观点。希望对大家有所帮助。 http://m.weibo.cn/status/Jx3ef2a3n
+
+=======
+
+每日文章精选
+
+【【美国人到底有没有登...】
+【美国人到底有没有登月？“嫦娥之父”为你解开谣言！】旗子在超高真空怎么会招展？拍摄20万张照片居然没有一颗星星？阿姆斯特朗的录像中有两个影子？这些在欧阳自远看来一分钟就可以回答一个的问题，NASA从不解释并表示“他们爱怎么说怎么说”。 http://m.weibo.cn/status/Jxeg9BqBn
+
+【什么是抽样误差？为何外国媒体报导的抽样误差与老师教的不一样？】
+https://whogovernstw.org/2020/11/07/tseminlin17
+
+【使用电动汽车可以帮助中国减少二氧化碳排放吗？】
+相较于传统内燃机汽车，电动汽车在生产阶段会产生更多的温室气体。研究者指出，配备有锂镍锰钴电池的紧凑—微型电动汽车在生产阶段产生的二氧化碳等价物大约是11.4-13.94吨，类似内燃机汽车产生的二氧化碳等价物大约是10.47吨。因此，电动汽车在使用阶段减少的二氧化碳排放量，会被电动汽车在生产阶段产生的温室气体排放量填补。但电动车电池等部件均可用于回收再生产，如果能对报废的电动汽车进行妥善地回收和再生产，温室气体排放总量还可以继续降低。 研究者认为，通过大规模使用电动汽车减少温室气体排放是一项系统性工作，除了加大电动汽车研发投入、进一步推广电动汽车外，还需在发电站使用清洁能源、报废电动汽车回收等环节下功夫，否则将达不到预期的减排效果。 http://cnpolitics.org/2019/08/the-role-of-electric-vehicle-in-decarbonizing-chinas-transportation-sector
+
+【Breakthrough Prize – Breakthrough Prize Foundation Announces Maryam Mirzakhani New Frontiers Prize for Women Mathematicians】
+为女性数学家生涯早期新设立的(2019年11月4号)数学奖,向已故伊朗数学家玛丽安·米尔札哈尼的遗产致敬: https://breakthroughprize.org/News/56
+
+【【乳腺炎】据说是比顺...】
+【乳腺炎】据说是比顺产还能疼哭 哺乳期乳腺发炎化脓切开脓肿引流 奶水是乳腺分泌的，堵奶乳汁淤积，营养丰富的奶堵在乳腺里面，细菌最爱了大量繁殖，发炎流脓溃烂高烧，异常痛苦，也不能喂奶了 母乳喂养只能尽量避免堵奶，注意乳头清洁，预防乳腺炎。 http://m.weibo.cn/status/JwNgDr5IP
+
+【Serge Lang教授打假，亨廷顿院士梦泡汤】
+Serge-Lang%E6%95%99%E6%8E%88%E6%89%93%E5%81%87%E4%BA%A8%E5%BB%B7%E9%A1%BF%E9%99%A2%E5%A3%AB%E6%A2%A6%E6%B3%A1%E6%B1%A4-12-07
+
+【Coursera | Online Courses & Credentials From Top Educators. Join for Free | Coursera】
+推荐这门耶鲁大学关于毒品问题的公开课： https://www.coursera.org/learn/addiction-treatment/home/welcome
+
+【《76天》：武汉封城中的泪水与希望】
+纽约时报中文网 | ?q=%23%E5%BD%B1%E8%AF%84 你会看到死亡与别离，你会听到不同形式的“武汉加油！”，也会看到医护人员用打趣的文字和涂鸦互相鼓励。 《76天》记录了疫情初期武汉四家医院的情况，更多呈现了人类恢复的能力和同情心，而不是残酷的末日感或聚焦中国政府的政策决定。影片记录了痛苦，但也传递了希望。 https://nyti.ms/3oKhUH1
+
+【在线抠图又进化了，A...】
+在线抠图又进化了，AI抠图，比之前所有的抠图网站都好用。 传送门： http://aipix.net
+
+【【央行数字货币、比特...】
+【央行数字货币、比特币、移动支付、人民币国际化】 谈嘉宾黄益平，现任北京大学国家发展研究院（前身北京大学中国经济研究中心）副院长、教授。北京大学数字金融研究中心主任。 https://m.weibo.cn/status/4569486260444196
