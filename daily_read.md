@@ -12909,3 +12909,17 @@ Serge-Lang%E6%95%99%E6%8E%88%E6%89%93%E5%81%87%E4%BA%A8%E5%BB%B7%E9%A1%BF%E9%99%
 
 【【央行数字货币、比特...】
 【央行数字货币、比特币、移动支付、人民币国际化】 谈嘉宾黄益平，现任北京大学国家发展研究院（前身北京大学中国经济研究中心）副院长、教授。北京大学数字金融研究中心主任。 https://m.weibo.cn/status/4569486260444196
+
+=======
+
+《每日文章精选 2020-12-09》 https://t.me/daily_read 
+
+1. 【圆桌｜谁能留下：年轻白领、农民工与“人才”的居住境遇】https://www.thepaper.cn/newsDetail_forward_10331742
+
+2. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
+
+3. 【性别偏见与集体行动：以「虚假指控论」及「自我受害者化论」为例】https://mp.weixin.qq.com/s/QfeP8DJlqFRwdH7rry8VZw
+
+4. 【那些十几岁就辍学的农村少年，后来去了哪？】https://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&mid=2650783633&idx=1&sn=98de9dfbb4f47d20d24e2187a944e167
+
+5. 【疫情为何在美国肉类加工厂中肆虐？】https://www.thepaper.cn/newsDetail_forward_10286277
