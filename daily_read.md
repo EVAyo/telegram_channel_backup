@@ -12957,3 +12957,37 @@ https://mp.weixin.qq.com/s?__biz=MTc5MTU3NTYyMQ==&mid=2650783633&idx=1&sn=98de9d
 
 【Painful me...】
 Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+=======
+
+每日文章精选
+
+【中国“疫苗之王”：成功与财富幕布下的丑闻与争议】
+https://cn.nytimes.com/business/20201207/china-vaccine-astrazeneca
+
+【为什么我不敢坐波音的飞机】
+https://www.douban.com/note/786928387
+
+【Breakthrough Prize – Breakthrough Prize Foundation Announces Maryam Mirzakhani New Frontiers Prize for Women Mathematicians】
+为女性数学家生涯早期新设立的(2019年11月4号)数学奖,向已故伊朗数学家玛丽安·米尔札哈尼的遗产致敬: https://breakthroughprize.org/News/56
+
+【弦子和她的朋友们，1202海淀法院声援纪实                 · Issue #1555 · duty-machine/duty-machine】
+https://github.com/duty-machine/duty-machine/issues/1555
+
+【zh.m.wikip...】
+http://zh.m.wikipedia.org/wiki/%25E6%2595%25B4%25E9%25A2%25A8%25E9%2581%258B%25E5%258B%2595
+
+【我是黄盈盈，我今天讲的是「小姐研究二十年」｜一席 第779位讲者】
+http://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&amp;mid=2650901775&amp;idx=1&amp;sn=2077b2592665c31517405053c1365edc
+
+【使用电动汽车可以帮助中国减少二氧化碳排放吗？】
+相较于传统内燃机汽车，电动汽车在生产阶段会产生更多的温室气体。研究者指出，配备有锂镍锰钴电池的紧凑—微型电动汽车在生产阶段产生的二氧化碳等价物大约是11.4-13.94吨，类似内燃机汽车产生的二氧化碳等价物大约是10.47吨。因此，电动汽车在使用阶段减少的二氧化碳排放量，会被电动汽车在生产阶段产生的温室气体排放量填补。但电动车电池等部件均可用于回收再生产，如果能对报废的电动汽车进行妥善地回收和再生产，温室气体排放总量还可以继续降低。 研究者认为，通过大规模使用电动汽车减少温室气体排放是一项系统性工作，除了加大电动汽车研发投入、进一步推广电动汽车外，还需在发电站使用清洁能源、报废电动汽车回收等环节下功夫，否则将达不到预期的减排效果。 http://cnpolitics.org/2019/08/the-role-of-electric-vehicle-in-decarbonizing-chinas-transportation-sector
+
+【女权实践：1949-2019_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+1. ”爱人“是去性别化的称呼。破解儒家的夫妻关系。建立平等的关系。 2. 农村妇女因为土改，要在地契上面写名字，第一次有了名字。 3. 妇女组织了扫盲。 4. 女权在中共党内会被认为是资本主义思想，只能用”妇女解放“来掩饰。 https://www.bilibili.com/video/BV1XV411z7Y9
+
+【侯奇江：拐賣、家暴和冥婚，中國底層殘障女性的生死掙扎】
+这不仅是人心不古，世风日下的简单道德问题。亲人和农村社会的联手合谋，拐卖和黑中介等现象，也不仅是人性的丧失和社会的偶然；这些事件本质是极具典型性和系统性的现代社会问题：性别筛选和计划生育深刻地改写了人口结构，造成男多女少的性别失衡。同时，城乡二元和不断拉大的贫富差距中，农村最底层的男性在层级梯队序列中被排挤出婚姻市场。新自由主义市场经济的商品逻辑延伸到明码标价的婚恋，极致地工具化女性，甚至榨干了她们尸体的“剩余价值”。 父权制的政治经济文化与阴魂不散的迷信习俗就此诞下了一个畸形而失序的农村婚恋社会。 在这种仪式性的操演中，冥婚帮助失落的底层实现了其家庭成员未能实现的婚姻梦想，这看似是在迎合“发展”的心愿，但更是来自父权的要求。 https://theinitium.com/article/20201207-repost-opinion-china-disabledwomen-transaction-ghost-marriage-domestic-violence
+
+【色拉布再次发力！全新...】
+色拉布再次发力！全新 #3D迪士尼滤镜# 登场！快来玩！ 这都是些什么鬼畜滤镜啦！ http://m.weibo.cn/status/Jxbhvlw2S
