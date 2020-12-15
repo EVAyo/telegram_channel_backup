@@ -13135,3 +13135,37 @@ https://mp.weixin.qq.com/s/lvQxISmTXUEa6xi5GeUE0A
 4. 【圆桌｜谁能留下：年轻白领、农民工与“人才”的居住境遇】https://www.thepaper.cn/newsDetail_forward_10331742
 
 5. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
+
+=======
+
+每日文章精选
+
+【《76天》：武汉封城中的泪水与希望】
+纽约时报中文网 | ?q=%23%E5%BD%B1%E8%AF%84 你会看到死亡与别离，你会听到不同形式的“武汉加油！”，也会看到医护人员用打趣的文字和涂鸦互相鼓励。 《76天》记录了疫情初期武汉四家医院的情况，更多呈现了人类恢复的能力和同情心，而不是残酷的末日感或聚焦中国政府的政策决定。影片记录了痛苦，但也传递了希望。 https://nyti.ms/3oKhUH1
+
+【谁夺了地方政府的权？】
+通过对广西省档案材料的细致描摹和全国范围内夺权事件的数据分析，研究者得出的结论是：在许多地方，夺权过程中的关键角色不是由工人和学生造反派扮演的，而是由政府中的基层干部们扮演的。换句话说，造成国家机器瘫痪的力量，恰恰来自国家机器内部。 http://cnpolitics.org/2017/05/china-in-1967
+
+【中国女权运动小史-part1_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+1. 束腰对健康的伤害大于缠足。 2. “缠足不利于工作”，完全是没有根据的，中国出口的丝绸一直是女子劳动的成果。 3. 时尚常常表现为对女性的规训。（做脸，缠足，束腰） 4. 国家强制性的破坏缠足，导致妇女认为贞洁被毁，或有跳井。（把脚和性，和贞洁联系在一起） 5. 留日女学生 => （下一辈）五四女学生 6. 共产党内部以入党年份论资排辈（早年） 7. 六四之后“女权主义”这几个字就不能提了，只能说“女性主义”。 Part 1: https://www.bilibili.com/video/BV1Ht4y1Y7Wr Part 2: https://www.bilibili.com/video/BV1z5411G7vw
+
+【侯奇江：拐賣、家暴和冥婚，中國底層殘障女性的生死掙扎】
+这不仅是人心不古，世风日下的简单道德问题。亲人和农村社会的联手合谋，拐卖和黑中介等现象，也不仅是人性的丧失和社会的偶然；这些事件本质是极具典型性和系统性的现代社会问题：性别筛选和计划生育深刻地改写了人口结构，造成男多女少的性别失衡。同时，城乡二元和不断拉大的贫富差距中，农村最底层的男性在层级梯队序列中被排挤出婚姻市场。新自由主义市场经济的商品逻辑延伸到明码标价的婚恋，极致地工具化女性，甚至榨干了她们尸体的“剩余价值”。 父权制的政治经济文化与阴魂不散的迷信习俗就此诞下了一个畸形而失序的农村婚恋社会。 在这种仪式性的操演中，冥婚帮助失落的底层实现了其家庭成员未能实现的婚姻梦想，这看似是在迎合“发展”的心愿，但更是来自父权的要求。 https://theinitium.com/article/20201207-repost-opinion-china-disabledwomen-transaction-ghost-marriage-domestic-violence
+
+【我咽下一枚铁做的月亮】
+我咽下一枚铁做的月亮 他们把它叫做螺丝 我咽下这工业的废水，失业的订单 那些低于机台的青春早早夭亡 我咽下奔波，咽下流离失所 咽下人行天桥，咽下长满水锈的生活 我再咽不下了 所有我曾经咽下的现在都从喉咙汹涌而出 在祖国的领土上铺成一首 耻辱的诗 ——许立志
+
+【Nobody Pas...】
+Nobody Passes: Rejecting the Rules of Gender and Conformity
+
+【荆棘原 | 这些电影对老年的解读并不统一，但始终尊重生命 | 重阳节片单】
+https://mp.weixin.qq.com/s/tP2dcfWGTPAmg1KtcHuIVQ
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【今天是量子力学诞生1...】
+今天是量子力学诞生120周年——如果以普朗克提交那篇论文的时间为准的话。 （准确地说，他在1900年10月19日找到了把两个黑体辐射定律合二为一的公式，虽然当时大家一看很准立刻就信了，但普朗克认为这是凑出来的，不作数，要从根本原则推导出来。到12月14日，他已经推导出了这个公式，并且发现为了这个公式的成立，必须假设能量是一份份的而不能是连续的。论文在第二年1月发表。） 所以有必要提醒大家，虽然这张梗图现在很有名了，但别忘了右边是1901年他那篇论文之后。换句话说，他变成这个样子不是被经典物理害的，是被量子力学害的。 http://m.weibo.cn/status/JytIUbVGi
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
