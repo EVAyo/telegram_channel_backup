@@ -13169,3 +13169,17 @@ Painful memories of being taken away from her home quickly become consumed by re
 
 【Data Femin...】
 Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+=======
+
+《每日文章精选 2020-12-15》 https://t.me/daily_read 
+
+1. 【被盯上的女人：拐活的1万，杀死配阴婚10万】https://www.douban.com/note/787822788
+
+2. 【一个叫「招娣」的女孩，下定决心去改名】https://mp.weixin.qq.com/s/lvQxISmTXUEa6xi5GeUE0A
+
+3. 【时差播客：酷儿、跨性别与情感理论】https://www.thepaper.cn/newsDetail_forward_10329870
+
+4. 【圆桌｜谁能留下：年轻白领、农民工与“人才”的居住境遇】https://www.thepaper.cn/newsDetail_forward_10331742
+
+5. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
