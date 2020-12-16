@@ -13183,3 +13183,37 @@ Data Feminism offers strategies for data scientists seeking to learn how feminis
 4. 【圆桌｜谁能留下：年轻白领、农民工与“人才”的居住境遇】https://www.thepaper.cn/newsDetail_forward_10331742
 
 5. 【谁夺了地方政府的权？】http://cnpolitics.org/2017/05/china-in-1967
+
+=======
+
+每日文章精选
+
+【关于英国新冠疫苗接种，你需要了解的七个问题】
+纽约时报中文网 | ?q=%23%E4%B8%80%E5%91%A8%E7%83%AD%E9%97%A8 关于英国新冠疫苗接种，你需要了解的七个问题 http://nyti.ms/3mZ4oif
+
+【2020-12-14-专访妇女权利工作者冯媛：大陆《反家暴法》四年，女性为何还是维权的牺牲者｜评论｜深度｜端传媒 Initium Media】
+2020-12-14-专访妇女权利工作者冯媛：大陆《反家暴法》四年，女性为何还是维权的牺牲者｜评论｜深度｜端传媒 Initium Media telegraph 2 parts | https://u.nu/v9qk8 | https://u.nu/uo-h8
+
+【【Pornhub下架...】
+【Pornhub下架个人上传视频】那些在不知情、非自愿情况下被骗取裸露视频，在互联网上看到自己裸体的女孩，她们受到的毁灭性打击如（退学、抑郁）、种种舆论压力，是真实而痛苦的。 https://telete.in/mengyshare/5821 | https://xconfessions.com | https://telete.in/cn_ghs/9
+
+【台湾著名性学专家何春...】
+台湾著名性学专家何春蕤教授与八个女人十二周促膝谈性，整理2500页手搞，两年撰写成精微细致的《性心情》。让女人共同面对情欲处境，并创造新的情欲想象与实践。
+
+【嵊泗无人村，一个绿野...】
+嵊泗无人村，一个绿野仙踪的迷离梦境~ http://m.weibo.cn/status/Jyyh1chVA
+
+【【收集全世界的蓝】】
+【收集全世界的蓝】 最后一张可以叫烟蓝吧 http://www.douban.com/people/2303117/status/3213325226
+
+【在送进戒网瘾学校的第五天，这个男孩被打断了腿！】
+#男孩被戒网瘾学校打断腿# #励铮素质教育专修学校# 如果有这样一所戒网瘾学校，多次冒充警察去抓捕学生，无数学生不堪折磨选择自杀，多名学生自杀身死，多名学生被打成伤残，有教官被刑事拘留，被教育局要求整改，多家媒体报道其行径，有无数受害学生在网络上发声维权，向各个有关部门举报，然而这所戒网瘾学校依然安然无恙的存在了将近十年。 你会不会觉得，听起来太荒谬了？ 但我要告诉你，这所学校真实存在，并且过得非常滋润，赚得盆满钵满，并且还权势滔天。 这所学校叫做“英高特”，当然它还有个名字叫“励铮”，还有个名字叫做南英、南华……等数不清的名字，都是他们金蝉脱壳的好手段。在这所学校里发生过很多让人愤怒的事情，我们一件一件慢慢说。 希望所有看到这篇文章的朋友，能把它看完，你的关注是无数仍在里面的孩子们的希望，我们是唯一能救他们的人。 https://weibo.com/ttarticle/p/show?id=2309404581746451546351
+
+【Painful me...】
+Painful memories of being taken away from her home quickly become consumed by real-life horrors, where Ashley is juggled between caseworkers, shuffled from school to school, and forced to endure manipulative,humiliating treatment from a very abusive foster family. In this inspiring, unforgettable memoir, Ashley finds the courage to succeed - and in doing so, discovers the power of her own voice.
+
+【圆桌｜谁能留下：年轻白领、农民工与“人才”的居住境遇】
+1. 目前爆雷所波及到年轻人，面对的还不只是“无家可归”（eviction）,更大的风险是“驱离”（explusion），是一种从系统中的“除名”。这也就是年轻人那么在乎“征信”的原因，“除名”的威胁甚至比没有地方住的威胁更大。 2. 其实底层的有些人他不是说被除名，他可能就从来没有被列名过。而这次租金贷爆雷被除名的这批人，他觉得自己是具名的，觉得自己是城市的一部分，所以entitled to something，我觉得有这样一个区别在里面。 3. 两三个月前在装修房子，铺砖的泥瓦匠是两口子，他们就住在装修的房子里，基本上就是毛坯，上厕所洗澡其实都是很难的。后来聊天的时候他们说2017年之前在西红门租的房子，那之后就再也没有租过房子了，这两三年中给谁家装修就住在谁家，这个事情对我冲击还挺大的，就像战洋说的他们可能就没有办法作为一个家庭生活在这里，可能妻子就要回到家乡，他一个人跟其他工人一起住宿舍。为了两个人都在北京，他们给谁家装修住在谁家，这就导致他们不能断工，一个活接着一个活，没有任何休息。 https://www.thepaper.cn/newsDetail_forward_10331742
+
+【【维吾尔人权】北京通...】
+【维吾尔人权】北京通过强制劳动转移计划，强迫50多万维吾尔人手工采摘棉花。报告： https://cgpolicy.org/wp-content/uploads/2020/12/20201214-PB-China-Zenz-1.pdf
