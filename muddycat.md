@@ -1726,3 +1726,7 @@ https://www.vox.com/the-big-idea/2017/11/20/16677180/age-consent-teenage-psychol
 https://t.me/LiberalegalitarianisminChinese/27758
 
 【注】“灵魂”和“放错”我都不同意。
+
+=======
+
+大家怎么看这篇文章？ https://telegra.ph/%E9%A9%AC%E5%85%8B%E6%80%9D%E7%9A%84%E9%9B%BE%E6%9C%88%E5%8D%81%E5%85%AB%E5%A6%82%E4%BD%95%E5%B8%AE%E6%88%91%E4%BB%AC%E7%90%86%E8%A7%A3%E5%BD%93%E4%BB%A3%E7%BE%8E%E5%9B%BD%E6%94%BF%E6%B2%BB-12-16
