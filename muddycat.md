@@ -1730,3 +1730,18 @@ https://t.me/LiberalegalitarianisminChinese/27758
 =======
 
 大家怎么看这篇文章？ https://telegra.ph/%E9%A9%AC%E5%85%8B%E6%80%9D%E7%9A%84%E9%9B%BE%E6%9C%88%E5%8D%81%E5%85%AB%E5%A6%82%E4%BD%95%E5%B8%AE%E6%88%91%E4%BB%AC%E7%90%86%E8%A7%A3%E5%BD%93%E4%BB%A3%E7%BE%8E%E5%9B%BD%E6%94%BF%E6%B2%BB-12-16
+
+=======
+
+【圆桌讨论会 / 一个小时后】
+
+时间：美西时间12/17周四早9点，美东12/17周四正午，欧洲时间12/17周四晚6点。
+
+Zoom： https://us04web.zoom.us/j/5400166991?pwd=bmZudkFqUjJtMU45ZTNrSnhHaXZMQT09
+
+Meeting ID: 540 016 6991
+Passcode: 022555
+
+注：之前欧洲的朋友/书友说我们讨论会时间不合适，这次活动安排了一个方便欧洲朋友的时间。
+
+话题：消费观念，海外华人，性别平等，开放三胎，离婚冷静期，是否看新闻，如何高效交换观点。
