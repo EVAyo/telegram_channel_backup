@@ -13333,3 +13333,17 @@ Data Feminism offers strategies for data scientists seeking to learn how feminis
 
 【2020-12-18-我们还有“不冷静”离婚的权利么？｜大陆｜深度｜端传媒 Initium Media】
 早在1950年《婚姻法》草稿的讨论阶段，时任《婚姻法》起草小组负责人的邓颖超就主张：离婚不加条件，一方要离可离。她当时阐述的理由为：中国长期停滞在封建社会，最受压迫的是妇女，婚姻问题上妇女所受的痛苦最深⋯⋯一方坚持要离就离，主要根据广大妇女的利益提出。 http://telegra.ph/2020-12-18-%25E6%2588%2591%25E4%25BB%25AC%25E8%25BF%2598%25E6%259C%2589%25E4%25B8%258D%25E5%2586%25B7%25E9%259D%2599%25E7%25A6%25BB%25E5%25A9%259A%25E7%259A%2584%25E6%259D%2583%25E5%2588%25A9%25E4%25B9%2588%25E5%25A4%25A7%25E9%2599%2586%25E6%25B7%25B1%25E5%25BA%25A6%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592-Initium-Media-12-17 | https://telete.in/mengyshare/5849
+
+=======
+
+《每日文章精选 2020-12-18》 https://t.me/daily_read 
+
+1. 【自由主义和爱国主义真的相容吗？】https://zhuanlan.zhihu.com/p/22622803
+
+2. 【那堵写满两性脏话的墙，只是厌女文化的一个注脚】https://mp.weixin.qq.com/s/herQ5ZAfRHMZFzbnCZ6FvA
+
+3. 【杀马特与三和大神：漂浮在城市孔隙中的年轻人 | 随机波动035】https://mp.weixin.qq.com/s/qcM8JVLaHJIc6vdQ3DwVEw
+
+4. 【丁真爆红：别让讨论止于热搜】https://mp.weixin.qq.com/s/8JQpednf3nET1my5PncamA
+
+5. 【被盯上的女人：拐活的1万，杀死配阴婚10万】https://www.douban.com/note/787822788
