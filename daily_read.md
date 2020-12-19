@@ -13381,3 +13381,17 @@ DW 中文- 德国之声 | 心理学教授格伦瓦德确信人类能克服这个
 
 【颐和园十七孔桥冬至前...】
 颐和园十七孔桥冬至前后金光穿洞 http://m.weibo.cn/status/Jz9Z02YL3
+
+=======
+
+《每日文章精选 2020-12-19》 https://t.me/daily_read 
+
+1. 【自由主义和爱国主义真的相容吗？】https://zhuanlan.zhihu.com/p/22622803
+
+2. 【那堵写满两性脏话的墙，只是厌女文化的一个注脚】https://mp.weixin.qq.com/s/herQ5ZAfRHMZFzbnCZ6FvA
+
+3. 【杀马特与三和大神：漂浮在城市孔隙中的年轻人 | 随机波动035】https://mp.weixin.qq.com/s/qcM8JVLaHJIc6vdQ3DwVEw
+
+4. 【丁真爆红：别让讨论止于热搜】https://mp.weixin.qq.com/s/8JQpednf3nET1my5PncamA
+
+5. 【被盯上的女人：拐活的1万，杀死配阴婚10万】https://www.douban.com/note/787822788
