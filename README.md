@@ -12,5 +12,5 @@ Backup your telegram channel to md file. Backup every two hour, [customize here]
 - If you want to only backup message starting with message id x, do `channel_username: x`
 
 # Run
-- go to your local repository
+- Go to local repository
 - `nohup python3 setup.py &`
