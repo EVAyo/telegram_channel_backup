@@ -1,6 +1,6 @@
 # telegram_channel_backup
 
-Backup your telegram channel to md file. Backup every two hour, [change](https://github.com/gaoyunzhi/telegram_channel_backup/blob/master/channel_backup.py#L49). 
+Backup your telegram channel to md file. Backup every two hour, [customize here](https://github.com/gaoyunzhi/telegram_channel_backup/blob/master/channel_backup.py#L49). 
 
 # Install
 - Fork the repository and pull to your machine
