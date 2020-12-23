@@ -13497,3 +13497,37 @@ https://www.douban.com/note/788683088
 
 【藏族人类学者谈《气球》：去东方化的真正“藏族电影”】
 https://www.thepaper.cn/newsDetail_forward_10255485
+
+=======
+
+每日文章精选
+
+【丁真爆红：别让讨论止于热搜】
+https://mp.weixin.qq.com/s/8JQpednf3nET1my5PncamA
+
+【这本书收录了海内外七...】
+这本书收录了海内外七位重要的性／别作者的论文著述，针对色情的诸多面向进行批判讨论。本书不是学术象牙塔的产物，而是介入现实的研究分析，涉及的议题都是当前重要的争议。关心性／别与社会文化问题的读者不可错过。
+
+【Data Femin...】
+Data Feminism offers strategies for data scientists seeking to learn how feminism can help them work toward justice, and for feminists who want to focus their efforts on the growing field of data science. But Data Feminism is about much more than gender. It is about power, about who has it and who doesn't, and about how those differentials of power can be challenged and changed. https://www.goodreads.com/book/show/51777543-data-feminism
+
+【抗争者李翘楚的革命与爱 | NGOCN】
+https://ngocn2.org/article/2020-12-22-qi-qiao-chu-revolution-love
+
+【迄今为止你见过最惊艳...】
+迄今为止你见过最惊艳的建筑是哪个？ 【网评】好有意思 http://m.weibo.cn/status/JzdFXczUQ
+
+【追星｜你我本无缘，全靠我花钱】
+前段时间《人物》杂志一篇《外卖骑手，困在系统里》在社交媒体刷屏，平台算法被诟病。但外卖骑手，真的是困在系统里吗？我想不是。困住外卖骑手的是资本主义的生产关系，只是这生产关系的组织披上了数字的外衣。粉丝同样也是，不是被困在微博这个数据平台里，而是被困在了充满了剥削的资本主义的世界里。在这个世界里，再纯粹的爱也逐渐被资本挟持，开始慢慢变质，变成了让人喘不过气的竞争与戾气。另一面，粉丝认为自己消费了“爱豆”，就拥有了“我是上帝”的消费者错觉，爱豆谈恋爱是死罪，爱豆不按照粉丝预想的发展道路走，是死罪。粉丝与爱豆的关系，在资本逻辑下，越发商品化，越发畸形，似乎人人都忘了给每个人应有的尊严。毕竟，人不是商品。 https://matters.news/%40masses2020/%25E8%25BF%25BD%25E6%2598%259F-%25E4%25BD%25A0%25E6%2588%2591%25E6%259C%25AC%25E6%2597%25A0%25E7%25BC%2598-%25E5%2585%25A8%25E9%259D%25A0%25E6%2588%2591%25E8%258A%25B1%25E9%2592%25B1-bafyreicrsg7kcrzj34qp34w5zofsbjd35lutugeheycfpa3amur3xy5ud4 | https://telete.in/masses2020/83
+
+【获得了专业医师肯定的...】
+获得了专业医师肯定的好物！ http://m.weibo.cn/status/JyJxfFrjH
+
+【在送进戒网瘾学校的第五天，这个男孩被打断了腿！】
+#男孩被戒网瘾学校打断腿# #励铮素质教育专修学校# 如果有这样一所戒网瘾学校，多次冒充警察去抓捕学生，无数学生不堪折磨选择自杀，多名学生自杀身死，多名学生被打成伤残，有教官被刑事拘留，被教育局要求整改，多家媒体报道其行径，有无数受害学生在网络上发声维权，向各个有关部门举报，然而这所戒网瘾学校依然安然无恙的存在了将近十年。 你会不会觉得，听起来太荒谬了？ 但我要告诉你，这所学校真实存在，并且过得非常滋润，赚得盆满钵满，并且还权势滔天。 这所学校叫做“英高特”，当然它还有个名字叫“励铮”，还有个名字叫做南英、南华……等数不清的名字，都是他们金蝉脱壳的好手段。在这所学校里发生过很多让人愤怒的事情，我们一件一件慢慢说。 希望所有看到这篇文章的朋友，能把它看完，你的关注是无数仍在里面的孩子们的希望，我们是唯一能救他们的人。 https://weibo.com/ttarticle/p/show?id=2309404581746451546351
+
+【我咽下一枚铁做的月亮】
+我咽下一枚铁做的月亮 他们把它叫做螺丝 我咽下这工业的废水，失业的订单 那些低于机台的青春早早夭亡 我咽下奔波，咽下流离失所 咽下人行天桥，咽下长满水锈的生活 我再咽不下了 所有我曾经咽下的现在都从喉咙汹涌而出 在祖国的领土上铺成一首 耻辱的诗 ——许立志
+
+【刚才看到NYT的一篇...】
+刚才看到NYT的一篇，说如果太沉迷手机，可以调成灰色试试。这最初是技术道德专家Tristan Harris推广的，据说还蛮有效。“戒手机瘾的一个方法可能是，从根本上让手机变得更糟一点儿。结果证明，我们就是动物，容易被鲜艳的颜色吸引。”试了一下，灰色界面至少蛮奇妙的。iOS的路径是：设置→辅助功能→显示与文字大小→色彩滤镜。 附一条科普信息：“Facebook和谷歌等硅谷公司知道这一点，他们越来越关注应用神经科学，想知道大脑对应用程序的颜色到底作何反应，什么能带来快乐，什么能吸引眼睛。新研究表明，颜色对我们对优先级和情感的理解有很大影响。” http://www.douban.com/people/7702352/status/3217803279 【网评】Wow，「文曲星」回來了！我都想查字典了 📚
