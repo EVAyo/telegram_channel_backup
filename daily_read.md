@@ -13531,3 +13531,37 @@ https://ngocn2.org/article/2020-12-22-qi-qiao-chu-revolution-love
 
 【刚才看到NYT的一篇...】
 刚才看到NYT的一篇，说如果太沉迷手机，可以调成灰色试试。这最初是技术道德专家Tristan Harris推广的，据说还蛮有效。“戒手机瘾的一个方法可能是，从根本上让手机变得更糟一点儿。结果证明，我们就是动物，容易被鲜艳的颜色吸引。”试了一下，灰色界面至少蛮奇妙的。iOS的路径是：设置→辅助功能→显示与文字大小→色彩滤镜。 附一条科普信息：“Facebook和谷歌等硅谷公司知道这一点，他们越来越关注应用神经科学，想知道大脑对应用程序的颜色到底作何反应，什么能带来快乐，什么能吸引眼睛。新研究表明，颜色对我们对优先级和情感的理解有很大影响。” http://www.douban.com/people/7702352/status/3217803279 【网评】Wow，「文曲星」回來了！我都想查字典了 📚
+
+=======
+
+每日文章精选
+
+【追星｜你我本无缘，全靠我花钱】
+前段时间《人物》杂志一篇《外卖骑手，困在系统里》在社交媒体刷屏，平台算法被诟病。但外卖骑手，真的是困在系统里吗？我想不是。困住外卖骑手的是资本主义的生产关系，只是这生产关系的组织披上了数字的外衣。粉丝同样也是，不是被困在微博这个数据平台里，而是被困在了充满了剥削的资本主义的世界里。在这个世界里，再纯粹的爱也逐渐被资本挟持，开始慢慢变质，变成了让人喘不过气的竞争与戾气。另一面，粉丝认为自己消费了“爱豆”，就拥有了“我是上帝”的消费者错觉，爱豆谈恋爱是死罪，爱豆不按照粉丝预想的发展道路走，是死罪。粉丝与爱豆的关系，在资本逻辑下，越发商品化，越发畸形，似乎人人都忘了给每个人应有的尊严。毕竟，人不是商品。 https://matters.news/%40masses2020/%25E8%25BF%25BD%25E6%2598%259F-%25E4%25BD%25A0%25E6%2588%2591%25E6%259C%25AC%25E6%2597%25A0%25E7%25BC%2598-%25E5%2585%25A8%25E9%259D%25A0%25E6%2588%2591%25E8%258A%25B1%25E9%2592%25B1-bafyreicrsg7kcrzj34qp34w5zofsbjd35lutugeheycfpa3amur3xy5ud4 | https://telete.in/masses2020/83
+
+【The Peril of Persuasion in the Big Tech Age】
+https://foreignpolicy.com/2020/12/11/big-tech-data-personal-information-persuasion 说服技术必须加以限制，比如广告（化妆品）会降低您的自尊心然后展示其产品，未经同意没有知情而被操纵，我们越来越受到与科技互动的影响。
+
+【来源：】
+来源： https://telete.in/fuckfomo/353 “作为非二元与别人对我的看法(perceived)无关。非二元是一种解放——不再需要将自己变得微弱以适应预先形成的(preconceived)我是谁以及我是什么的观念。”
+
+【颐和园十七孔桥冬至前...】
+颐和园十七孔桥冬至前后金光穿洞 http://m.weibo.cn/status/Jz9Z02YL3
+
+【打破女性刻板印象，她怎样制裁动画界最渣的PUA】
+https://mp.weixin.qq.com/s/4zgIF7VTmNWGY8V995uCTw
+
+【普通女性被看见的一年 | 追问2020】
+https://www.douban.com/note/788683088
+
+【【母亲节特稿】我是一个听障妈妈，我需要合理便利】
+进了产房，我没有家人帮忙，医生戴着口罩无法看口型，我就很难配合医生。 这件事，我一直记得很清楚。因为那时候已经痛到受不了，我只能拼命地摇头，希望医生能摘下口罩。但医生就质问我，是否真的听不见，后来看我真的没法配合，才让另外一个医生摘下口罩。之后，我才终于生下来。 可是，作为一个听障者，我觉得医院这边明明知道我的情况。他们其实可以提前安排一个方案，给我们这些残障者提供合理便利。为什么到了生产的时候，却在质问我是否能听见呢？ https://mp.weixin.qq.com/s?__biz=MzA3NTM3ODI5OA==&mid=2650629905&idx=1&sn=d928a61498f7e67377ee8f15243b1b1d
+
+【杀死那个石家庄人】
+杀死那个石家庄人 http://m.weibo.cn/status/Ju87E3Hms
+
+【《病主法》上路后，为什么依赖呼吸器的病人仍是「善终孤儿」？】
+【善终专题】 1. https://www.twreporter.org/a/good-death-myth-extubation-dilemma?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram 2. https://www.twreporter.org/a/good-death-myth-behind-the-asia-champion-of-the-quality-of-death-index?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram 3. https://www.twreporter.org/a/good-death-myth-two-years-after-the-enforcement-of-patient-self-determination-act?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram 4. https://www.twreporter.org/a/good-death-myth-respirator-extubation?utm_source=telegram&utm_medium=telegram&utm_campaign=telegram 來源： https://telete.in/tw_reporter_org/324
+
+【昨天傍晚下大雪，下了...】
+昨天傍晚下大雪，下了个把小时就停了。睡觉前看看月亮挂在天上。今天早晨看，只剩草地上还有一些残雪，其余的都融化了。大量的水蒸发成雾，又是另一番景象了。 http://www.douban.com/people/3492001/status/3224076866
