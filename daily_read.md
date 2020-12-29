@@ -13839,3 +13839,17 @@ Hannah Gasby在她最著名的单口专场Nanette里提到过身为弱势群体�
 5. （清代名将海兰察是鄂温克人）
 
 https://www.telegraph.co.uk/news/2020/12/26/can-chinas-last-reindeer-herders-survive-communist-party-purge/
+
+=======
+
+《每日文章精选 2020-12-29》 https://t.me/daily_read 
+
+1. 【打开钱包看见她：各国纸钞上到底有多少位女性？】https://mp.weixin.qq.com/s/ZlxnCdqs73o0d-_KOFzpxg
+
+2. 【“怀孕了得知丈夫乙肝”“该被歧视的是人品”】https://mp.weixin.qq.com/s/m7mIXWSUc9IXC-nAH1D62g
+
+3. 【每个日本完美妻子，都想把丈夫写在死亡笔记本上】https://www.douban.com/note/788787012/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
+
+4. 【“从浪漫爱-婚姻制度的牢窗里往外看是没有希望的”】https://www.douban.com/note/708068775
+
+5. 【我是如何成为反婚主义者的？】https://mp.weixin.qq.com/s/CRNMaXk_mAkQHOCQu3nSxA
