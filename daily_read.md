@@ -13819,3 +13819,37 @@ https://www.telegraph.co.uk/news/2020/12/26/can-chinas-last-reindeer-herders-sur
 4. 【“从浪漫爱-婚姻制度的牢窗里往外看是没有希望的”】https://www.douban.com/note/708068775
 
 5. 【我是如何成为反婚主义者的？】https://mp.weixin.qq.com/s/CRNMaXk_mAkQHOCQu3nSxA
+
+=======
+
+每日文章精选
+
+【Can China’s last reindeer herders survive a Communist Party purge?】
+【中国最后的驯鹿民族鄂温克族】 1. 中共政府会把鄂温克族小孩从父母身边抓走，送到别的地方去学普通话。（被采访者七岁的时候被带离了父母） 2. 鄂温克族最后的萨满，20年前去世了。 3. 被采访者的爸爸，因为穿越中俄边境拜访亲戚，被中国边防打死了。 4. 被采访者家里有一张奥巴马的照片。他说，美国黑人与鄂温克人有着相似的经历。 5. （清代名将海兰察是鄂温克人） https://www.telegraph.co.uk/news/2020/12/26/can-chinas-last-reindeer-herders-survive-communist-party-purge
+
+【【我所沉迷的小众艺术...】
+【我所沉迷的小众艺术】 冲击感蛮大的，融化的瓷器 来自智利艺术家 Livia Marin http://www.douban.com/people/47892168/status/3173314897
+
+【阅读警告】
+阅读警告 ⚠️ 过激内容和图片警告 ⚠️ 对于创伤、血液敏感者请不要观看后续图片 ⚠️ 警告 ⚠️ 此博文的内容仅供参考，具体详细处置一切以急救医学为准。 #广东石油化工学院# #广东石油化工学院泼硫酸# #急救# #警方通报高校男生朝女生泼化学物质#：致3名女生受伤 已控制犯罪嫌疑人#高校男生朝3女生泼化学物质被控制# #硫酸男孩##硫酸男孩叶远荣# 鉴于incel用化学品攻击女性进行恐怖袭击不是一次两次了，不得不告诫一下大家如果真的遇到这种情况应该怎么紧急处理。大家学会自救 ⚠️ 对于化学烧伤，第一时间冲水，大量冲水，一直冲水。 ⚠️ http://m.weibo.cn/status/JAGN8fRDn
+
+【负债组质性调研报告】
+https://www.douban.com/note/789268565
+
+【在外科医生生日当天做手术，患者的死亡率更高？】
+%E5%9C%A8%E5%A4%96%E7%A7%91%E5%8C%BB%E7%94%9F%E7%94%9F%E6%97%A5%E5%BD%93%E5%A4%A9%E5%81%9A%E6%89%8B%E6%9C%AF%E6%82%A3%E8%80%85%E7%9A%84%E6%AD%BB%E4%BA%A1%E7%8E%87%E6%9B%B4%E9%AB%98-12-28-2 | https://mp.weixin.qq.com/s/yJQ_sid1kCVchscvvhCbMQ
+
+【哥伦比亚雨林惊现壮观史前岩画】
+DW 中文- 德国之声 | 1.25万年前的史前人类，手拿红色赭石碎片在12公里长的山壁上描绘出几何图形、人类和各种动物。 ?q=%23%E5%93%A5%E4%BC%A6%E6%AF%94%E4%BA%9A http://p.dw.com/p/3n9DZ
+
+【馬瑞克里斯莫斯】
+馬瑞克里斯莫斯 🎄 http://www.douban.com/people/1299702/status/3226211778
+
+【【议题】无条件基本收...】
+【议题】无条件基本收入 无条件基本收入（universal basic income，UBI）：没有条件、资格限制，不做资格审查，每个成员（该国的国民、某地区的居民，或某团体组织的成员）皆可定期领取一定金额的金钱，由政府或团体组织发放给全体成员，以满足人民的基本生活条件，包括食物、水、电、居住、教育、医疗等基本花费，借由经济的保障，以落实基本人权。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/18?comment=937
+
+【【议题】性/别思考】
+【议题】性/别思考 不同时代，不同地域，不同的文明，对社会性别的构建各不相同。 思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/28?comment=984
+
+【【投书】UBI无条件基本收入：一个打破社福迷思的尊严未来｜黄一展／多元发声．读者投书｜独立评论】
+https://opinion.cw.com.tw/blog/profile/52/article/10289
