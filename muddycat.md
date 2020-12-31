@@ -1790,3 +1790,15 @@ https://telegra.ph/%E8%AE%AE%E9%A2%98%E5%9F%BA%E6%9C%AC%E6%94%B6%E5%85%A5-12-27
 https://telegra.ph/%E8%AE%AE%E9%A2%98JM%E6%BC%AB%E7%94%BB-12-23 
 
 【评论区】https://t.me/round_table_discuss/11?comment=887
+
+=======
+
+【议题】性/别思考
+
+不同时代，不同地域，不同的文明，对社会性别的构建各不相同。
+
+思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。
+
+https://telegra.ph/%E8%AE%AE%E9%A2%98%E6%80%A7%E5%88%AB%E6%80%9D%E8%80%83-12-29 
+
+【讨论区】https://t.me/round_table_discuss/28?comment=984
