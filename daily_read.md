@@ -14000,3 +14000,17 @@ https://cn.nytimes.com/china/20201230/china-coronavirus
 
 【从「蝻亚」到「东南亚巴打」： 香港抗争如何将大众与少数族群链接在一起？】
 https://www.thenewslens.com/article/128766
+
+=======
+
+《每日文章精选 2021-01-03》 https://t.me/daily_read 
+
+1. 【2020厌女事件大赏】https://mp.weixin.qq.com/s/cCOv5iaArwOJLRVKU6Xgxw
+
+2. 【她把伴随女性一生的「暴力」都写进了歌里】https://mp.weixin.qq.com/s/2UNREnrb1j90NYdIi6YnCw
+
+3. 【打开钱包看见她：各国纸钞上到底有多少位女性？】https://mp.weixin.qq.com/s/ZlxnCdqs73o0d-_KOFzpxg
+
+4. 【“怀孕了得知丈夫乙肝”“该被歧视的是人品”】https://mp.weixin.qq.com/s/m7mIXWSUc9IXC-nAH1D62g
+
+5. 【每个日本完美妻子，都想把丈夫写在死亡笔记本上】https://www.douban.com/note/788787012/?dt_platform=com.douban.activity.wechat_friends&dt_dapp=1
