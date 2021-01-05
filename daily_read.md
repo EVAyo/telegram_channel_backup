@@ -14082,3 +14082,17 @@ https://www.bilibili.com/video/av22222867
 
 【丈夫是物理学家，妻子...】
 丈夫是物理学家，妻子是雕塑家，于是二人一拍即合，制作了一款“动力学雕塑”...本以为只是做着玩儿玩儿，没想到推出后广受好评，竟然发展成了自己的事业，一做就是四十年...如今老爷子已经七十岁了，还在孜孜不倦地创作新雕塑，太厉害了呀... http://m.weibo.cn/status/JAKfy8jvk
+
+=======
+
+《每日文章精选 2021-01-05》 https://t.me/daily_read 
+
+1. 【离婚冷静期为什么令人恐惧？】https://mp.weixin.qq.com/s/kVdYEIEA70BTPg3qydRqnw
+
+2. 【​吴小沔 | 关注亲密伴侣间的权力：胁迫控制研究述评】https://mp.weixin.qq.com/s/ErtMgzNY5NWOw7HG8CxO7g
+
+3. 【「归根结底是性别歧视」――作家・桐野夏生逼近围绕「JK」的现代黑暗】https://www.douban.com/note/670250934
+
+4. 【罗翔：即便他真诚地认为“不等于是”，法律也要抛弃这种花花公子式的哲学 | 一席第823位讲者】https://mp.weixin.qq.com/s/F8tieqRawowD5fasYSWe1g
+
+5. 【连续工作60天，一个月工作380小时，她用白骨给拼多多打江山】https://mp.weixin.qq.com/s/YO0u2td-i503EO7R7B5oyw
