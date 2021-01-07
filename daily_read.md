@@ -14178,3 +14178,37 @@ https://www.douban.com/note/781789524
 4. 【罗翔：即便他真诚地认为“不等于是”，法律也要抛弃这种花花公子式的哲学 | 一席第823位讲者】https://mp.weixin.qq.com/s/F8tieqRawowD5fasYSWe1g
 
 5. 【连续工作60天，一个月工作380小时，她用白骨给拼多多打江山】https://mp.weixin.qq.com/s/YO0u2td-i503EO7R7B5oyw
+
+=======
+
+每日文章精选
+
+【一位女潜水员冒着生命...】
+一位女潜水员冒着生命危险拔出了鲨鱼嘴里的鱼钩，然后不可思议的事情发生了，鲨鱼做出了感谢潜水员的动作，臣服于她的触摸和亲吻。后来潜水员惊讶地发现，还有一些鲨鱼嘴里叼着鱼钩向她游来，最终帮助其它所有鲨鱼取下嘴里的鱼钩。 http://m.weibo.cn/status/JANqyALZ9
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+【首尔市政府的官网绝了...】
+首尔市政府的官网绝了，在指导即将临盆的孕妇行动指南上，公然写着让孕妇们提前为丈夫们准备好可以即食吃的食物，还有3～7天的换洗衣服等等。然后被韩国网民骂到删网页了。网民：“不会做饭就饿着！”就这帮爹味两班还一天天还很纳闷为啥出生率那么低呢？ http://www.douban.com/people/131374829/status/3244128557
+
+【【中字・NHK纪录片#失踪3万人】花季少女离家出走_宁肯住在不认识的男人家里也不回家_日本社会怎么了_20180407【秋秋】_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili】
+https://www.bilibili.com/video/av22222867
+
+【改变世界的25天：新冠疫情是如何在中国失控的？】
+https://cn.nytimes.com/china/20201230/china-coronavirus
+
+【怀孕焦虑？染病焦虑？】
+怀孕焦虑？染病焦虑？ 短效+戴套都无法缓解焦虑？ 所以...就真的不能愉快了嘛？ 今日份硬糖带你解锁 第三重保护——「性前检查」 http://m.weibo.cn/status/JAAz34Wm0
+
+【连续工作60天，一个月工作380小时，她用白骨给拼多多打江山】
+https://mp.weixin.qq.com/s/YO0u2td-i503EO7R7B5oyw
+
+【​吴小沔 | 关注亲密伴侣间的权力：胁迫控制研究述评】
+https://mp.weixin.qq.com/s/ErtMgzNY5NWOw7HG8CxO7g
+
+【受过现代教育，却仍不...】
+受过现代教育，却仍不是女权主义者的人，才是反常的。 http://m.weibo.cn/status/JBIVb8bED
+
+【怎样用计算机模拟果冻...】
+怎样用计算机模拟果冻的颤抖和肌肉的抖动？ 【雪树评】游戏的画面越来越逼真越来越栩栩如生了。今天的游戏和十年前的游戏不可同日而语。动漫和动画电影的画面也是如此。 游戏是一种艺术，电影更是如此。但这些人文的艺术背后却是特别硬核的技术，尤其涉及到数学、物理、计算机这三大基础科学。 http://m.weibo.cn/status/JBZ2IAJlN
