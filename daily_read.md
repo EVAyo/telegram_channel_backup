@@ -14212,3 +14212,17 @@ https://mp.weixin.qq.com/s/ErtMgzNY5NWOw7HG8CxO7g
 
 【怎样用计算机模拟果冻...】
 怎样用计算机模拟果冻的颤抖和肌肉的抖动？ 【雪树评】游戏的画面越来越逼真越来越栩栩如生了。今天的游戏和十年前的游戏不可同日而语。动漫和动画电影的画面也是如此。 游戏是一种艺术，电影更是如此。但这些人文的艺术背后却是特别硬核的技术，尤其涉及到数学、物理、计算机这三大基础科学。 http://m.weibo.cn/status/JBZ2IAJlN
+
+=======
+
+《每日文章精选 2021-01-08》 https://t.me/daily_read 
+
+1. 【脱口秀演员池子的傲慢与偏见】https://mp.weixin.qq.com/s/FAXQPOOHQaTyKBex89pTPg
+
+2. 【老公在家全职带娃，我才没有后悔成为母亲】https://www.douban.com/note/781789524
+
+3. 【​吴小沔 | 关注亲密伴侣间的权力：胁迫控制研究述评】https://mp.weixin.qq.com/s/ErtMgzNY5NWOw7HG8CxO7g
+
+4. 【「归根结底是性别歧视」――作家・桐野夏生逼近围绕「JK」的现代黑暗】https://www.douban.com/note/670250934
+
+5. 【罗翔：即便他真诚地认为“不等于是”，法律也要抛弃这种花花公子式的哲学 | 一席第823位讲者】https://mp.weixin.qq.com/s/F8tieqRawowD5fasYSWe1g
