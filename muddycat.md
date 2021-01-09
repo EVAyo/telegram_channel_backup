@@ -1830,3 +1830,7 @@ https://telegra.ph/%E8%AE%AE%E9%A2%98%E6%80%A7%E5%88%AB%E6%80%9D%E8%80%83-12-29
 https://telegra.ph/%E4%BA%92%E8%81%94%E7%BD%91%E6%95%B0%E5%AD%97%E5%AE%A3%E4%BC%A0%E6%88%98%E4%B8%80%E5%9C%BA%E5%B9%B6%E4%B8%8D%E5%A5%A2%E6%9C%9B%E6%88%91%E4%BB%AC%E8%83%BD%E5%A4%A7%E8%83%9C%E7%9A%84%E6%88%98%E4%BA%89-01-08
 
 【例子】 https://t.me/douban_read https://t.me/weibo_read 就是点进 source 链接可见发布者信息，但在查看信息之前并不知道具体是谁发布的。
+
+=======
+
+请问乔姆斯基哪本书比较好？（最好有中文版）谢谢~
