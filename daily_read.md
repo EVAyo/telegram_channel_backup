@@ -14274,3 +14274,22 @@ https://cn.nytimes.com/china/20201230/china-coronavirus
 4. 【脱口秀演员池子的傲慢与偏见】https://mp.weixin.qq.com/s/FAXQPOOHQaTyKBex89pTPg
 
 5. 【老公在家全职带娃，我才没有后悔成为母亲】https://www.douban.com/note/781789524
+
+=======
+
+每日文章精选
+
+【古文学家艾米丽·威尔...】
+古文学家艾米丽·威尔逊博士是第一位将《奥德赛》翻译成英语的女性。 她发现，之前许多男性翻译的版本被添加了原始希腊语版本中并不存在的性别歧视和厌女元素。 （图片中有具体例子，有兴趣的朋友可以读一下。） https://www.facebook.com/WOMENSRIGHTSNEWS/photos/a.204542062921531/4935785576463799
+
+【《落在远方的果实——...】
+《落在远方的果实——父母、子女与身份认同》 作者受雇于纽约时报，穷尽十年时间，针对三百个家庭进行深入拜访。 这些家庭中，有聋人，侏儒，唐氏症，神童，杀人犯，自闭症，跨性别，思觉失调（旧译：精神分裂），和遭奸成孕生下的孩子。 这些与众不同的孩子会让父母经历痛苦的改变，但也让父母更了解自己。
+
+【【议题】性/别思考】
+【议题】性/别思考 不同时代，不同地域，不同的文明，对社会性别的构建各不相同。 思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/28?comment=984
+
+【【来自投稿】少女时代...】
+【来自投稿】少女时代的推理女王阿嘉莎·克莉丝蒂（本姓米勒，1890-1976），《东方快车谋杀案》、《尼罗河惨案》和《无人生还》的作者，约1903年。 http://m.weibo.cn/status/JARIjxPEa
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
