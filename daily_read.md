@@ -14476,3 +14476,17 @@ https://matters.news/%40qiuliang/%25E8%258D%2590%25E4%25B9%25A6-1-%25E7%259A%258
 
 【古文学家艾米丽·威尔...】
 古文学家艾米丽·威尔逊博士是第一位将《奥德赛》翻译成英语的女性。 她发现，之前许多男性翻译的版本被添加了原始希腊语版本中并不存在的性别歧视和厌女元素。 （图片中有具体例子，有兴趣的朋友可以读一下。） https://www.facebook.com/WOMENSRIGHTSNEWS/photos/a.204542062921531/4935785576463799
+
+=======
+
+《每日文章精选 2021-01-14》 https://t.me/daily_read 
+
+1. 【在受够了职场剥削后，她们绑架了男老板】https://mp.weixin.qq.com/s/qgzM6BBQOWaAEe7YscMk5w
+
+2. 【一把大火，三个人和不断轮回的历史】https://www.douban.com/note/791511422
+
+3. 【爆粗口的余秀华，真飒】https://www.douban.com/note/746908223
+
+4. 【问答：“婚驴”、浪漫爱、渣男识别、开放关系】https://mp.weixin.qq.com/s/ks57MTMED1ReIcx-eGmozg
+
+5. 【林垚 | 一月六日美国国会之乱，远比最初所见凶险得多】https://mp.weixin.qq.com/s/DFOmBsHC54EF0hbHeqRSVA
