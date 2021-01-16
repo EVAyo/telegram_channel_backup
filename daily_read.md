@@ -14558,3 +14558,51 @@ Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New 
 
 【古文学家艾米丽·威尔...】
 古文学家艾米丽·威尔逊博士是第一位将《奥德赛》翻译成英语的女性。 她发现，之前许多男性翻译的版本被添加了原始希腊语版本中并不存在的性别歧视和厌女元素。 （图片中有具体例子，有兴趣的朋友可以读一下。） https://www.facebook.com/WOMENSRIGHTSNEWS/photos/a.204542062921531/4935785576463799
+
+=======
+
+《每日文章精选 2021-01-16》 https://t.me/daily_read 
+
+1. 【在受够了职场剥削后，她们绑架了男老板】https://mp.weixin.qq.com/s/qgzM6BBQOWaAEe7YscMk5w
+
+2. 【一把大火，三个人和不断轮回的历史】https://www.douban.com/note/791511422
+
+3. 【我家户口本上消失的三个姐姐】https://mp.weixin.qq.com/s/qpcjC3Qs_BQmmOhWVffNiw
+
+4. 【性侵病人的医生确实存在，我该如何分辨？】https://mp.weixin.qq.com/s/SzJQixOby7fgNdBn2CbzlA
+
+5. 【爆粗口的余秀华，真飒】https://www.douban.com/note/746908223
+
+=======
+
+每日文章精选
+
+【您好，欢迎参观当代女...】
+您好，欢迎参观当代女性生存纪实展。 特此声明：展览的所有展品和评价均摘自互联网，无任何夸大和加工成分。 【网评】人间、阴间，女性在哪边都难。 http://m.weibo.cn/status/JDj66wxqz
+
+【今天的太湖日落，先来...】
+今天的太湖日落，先来个手机版本 http://www.douban.com/people/13694634/status/3256133733
+
+【【来自投稿】少女时代...】
+【来自投稿】少女时代的推理女王阿嘉莎·克莉丝蒂（本姓米勒，1890-1976），《东方快车谋杀案》、《尼罗河惨案》和《无人生还》的作者，约1903年。 http://m.weibo.cn/status/JARIjxPEa
+
+【连续工作60天，一个月工作380小时，她用白骨给拼多多打江山】
+https://mp.weixin.qq.com/s/YO0u2td-i503EO7R7B5oyw
+
+【有温度的科学教育：新课纲为何要重新称呼「居礼夫人」？ | 陈民峰 | 鸣人堂】
+https://opinion.udn.com/opinion/story/8806/3373680
+
+【一位沉迷于黑板报创作...】
+一位沉迷于黑板报创作的日本美术教师～｜Hirotaka Hamasaki http://www.douban.com/people/1214750/status/3254325134
+
+【【议题】性/别思考】
+【议题】性/别思考 不同时代，不同地域，不同的文明，对社会性别的构建各不相同。 思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/28?comment=984
+
+【一把大火，三个人和不断轮回的历史】
+【韩国工人运动】 1970年11月13日，全泰壹在寒冷的冬天里和一群同伴们，拉着“我们不是机器”的布条，前往首尔和平市场抗议。在他那身黑色长大衣下，铺了蘸满汽油的海绵，在抗议中他突然高举着《劳动基准法》引火自焚。烈焰中，他高喊着“遵守《劳动法》！”。临死前，在摇晃的破烂篷车上，浑身灼烧到焦黑肿胀的他，对母亲李小仙说：“请你务必将这些工人的要求铭记在心。…妈，我未作完的事，一定要答应帮我继续作下去，不要让我白白死去！” https://www.douban.com/note/791511422 【注】2021年1月11日，江苏泰州，一名外卖员将汽油浇到自己身上并点火自焚。他说：不去（医院）！我连命都不要了！我要我的血汗钱！ https://www.163.com/dy/article/G07GV4GP0545KZQY.html
+
+【在推特上发现一个叫“...】
+在推特上发现一个叫“空箱職人はるきる”的家伙，善于把各种空包装盒做成精美的纸艺作品，但同时又能保持住原来那个空盒的灵魂。简直梦幻。 http://www.douban.com/people/195169505/status/3256034912
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
