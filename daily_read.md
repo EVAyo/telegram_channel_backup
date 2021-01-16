@@ -14524,3 +14524,37 @@ https://mp.weixin.qq.com/s/DFOmBsHC54EF0hbHeqRSVA
 
 【你是「正当的」确诊者吗？防疫与父权，女性面临的双重管制 | V太太 | 鸣人堂】
 https://opinion.udn.com/opinion/story/120732/5173162
+
+=======
+
+每日文章精选
+
+【连续工作60天，一个月工作380小时，她用白骨给拼多多打江山】
+https://mp.weixin.qq.com/s/YO0u2td-i503EO7R7B5oyw
+
+【客服人的背后（上） ｜ 客服“大工厂”：集约化控制体系下的低薪与压抑】
+公司在这一过程中似乎完全消失了。顾客与公司的矛盾被成功转嫁到客服身上。 https://serviceworkercn.com/call-center-workers-1 https://serviceworkercn.com/call-center-workers-2
+
+【今天的太湖日落，先来...】
+今天的太湖日落，先来个手机版本 http://www.douban.com/people/13694634/status/3256133733
+
+【有温度的科学教育：新课纲为何要重新称呼「居礼夫人」？ | 陈民峰 | 鸣人堂】
+https://opinion.udn.com/opinion/story/8806/3373680
+
+【我家户口本上消失的三个姐姐】
+https://mp.weixin.qq.com/s/qpcjC3Qs_BQmmOhWVffNiw
+
+【一针管两月，艾滋病治疗迎来新突破】
+https://mp.weixin.qq.com/s/epTus5GMIb0sUssyAW7t4A
+
+【PNAS：自私、好斗、控制欲强的人在工作中追求权力时没有优势 | 唧唧堂论文解析】
+PNAS%E8%87%AA%E7%A7%81%E5%A5%BD%E6%96%97%E6%8E%A7%E5%88%B6%E6%AC%B2%E5%BC%BA%E7%9A%84%E4%BA%BA%E5%9C%A8%E5%B7%A5%E4%BD%9C%E4%B8%AD%E8%BF%BD%E6%B1%82%E6%9D%83%E5%8A%9B%E6%97%B6%E6%B2%A1%E6%9C%89%E4%BC%98%E5%8A%BF--%E5%94%A7%E5%94%A7%E5%A0%82%E8%AE%BA%E6%96%87%E8%A7%A3%E6%9E%90-01-15
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+【2020-01-13-方可成：特朗普被封号——我们别再假装这三件事｜评论｜深度｜互联网政治｜端传媒 Initium Media】
+1. 别再假装社交媒体能“自净” 2. 别再假装硅谷巨头是普通的私营公司 http://telegra.ph/2020-01-13-%25E6%2596%25B9%25E5%258F%25AF%25E6%2588%2590%25E7%2589%25B9%25E6%259C%2597%25E6%2599%25AE%25E8%25A2%25AB%25E5%25B0%2581%25E5%258F%25B7%25E6%2588%2591%25E4%25BB%25AC%25E5%2588%25AB%25E5%2586%258D%25E5%2581%2587%25E8%25A3%2585%25E8%25BF%2599%25E4%25B8%2589%25E4%25BB%25B6%25E4%25BA%258B%25E8%25AF%2584%25E8%25AE%25BA%25E6%25B7%25B1%25E5%25BA%25A6%25E4%25BA%2592%25E8%2581%2594%25E7%25BD%2591%25E6%2594%25BF%25E6%25B2%25BB%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592-Initium-Media-01-12 | https://telete.in/mengyshare/6055 【编案】社交app或许能自净，但需要app内部的民主体系，以及面向用户，而不是面向广告商的设计。
+
+【古文学家艾米丽·威尔...】
+古文学家艾米丽·威尔逊博士是第一位将《奥德赛》翻译成英语的女性。 她发现，之前许多男性翻译的版本被添加了原始希腊语版本中并不存在的性别歧视和厌女元素。 （图片中有具体例子，有兴趣的朋友可以读一下。） https://www.facebook.com/WOMENSRIGHTSNEWS/photos/a.204542062921531/4935785576463799
