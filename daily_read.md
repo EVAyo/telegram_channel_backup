@@ -14606,3 +14606,37 @@ https://opinion.udn.com/opinion/story/8806/3373680
 
 【Digital No...】
 Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+=======
+
+每日文章精选
+
+【古文学家艾米丽·威尔...】
+古文学家艾米丽·威尔逊博士是第一位将《奥德赛》翻译成英语的女性。 她发现，之前许多男性翻译的版本被添加了原始希腊语版本中并不存在的性别歧视和厌女元素。 （图片中有具体例子，有兴趣的朋友可以读一下。） https://www.facebook.com/WOMENSRIGHTSNEWS/photos/a.204542062921531/4935785576463799
+
+【6·17起义之后】
+6·17起义之后 作协书记派人 在斯大林大街上分发传单 上面写着， 人民 失去了政府的信任 只有通过双倍的劳动 才能重新把它赢得 难道这不是更简单一点吗： 政府把人民解散 重新选举另外一个人民？ ——贝尔托·布莱希特
+
+【【议题】性/别思考】
+【议题】性/别思考 不同时代，不同地域，不同的文明，对社会性别的构建各不相同。 思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/28?comment=984
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+【大西洋月刊：在疫情和暴动时代，大纪元如何成为亲特朗普的宣传机器】
+https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive/2021/01/inside-the-epoch-times-a-mysterious-pro-trump-newspaper/617645
+
+【一把大火，三个人和不断轮回的历史】
+【韩国工人运动】 1970年11月13日，全泰壹在寒冷的冬天里和一群同伴们，拉着“我们不是机器”的布条，前往首尔和平市场抗议。在他那身黑色长大衣下，铺了蘸满汽油的海绵，在抗议中他突然高举着《劳动基准法》引火自焚。烈焰中，他高喊着“遵守《劳动法》！”。临死前，在摇晃的破烂篷车上，浑身灼烧到焦黑肿胀的他，对母亲李小仙说：“请你务必将这些工人的要求铭记在心。…妈，我未作完的事，一定要答应帮我继续作下去，不要让我白白死去！” https://www.douban.com/note/791511422 【注】2021年1月11日，江苏泰州，一名外卖员将汽油浇到自己身上并点火自焚。他说：不去（医院）！我连命都不要了！我要我的血汗钱！ https://www.163.com/dy/article/G07GV4GP0545KZQY.html
+
+【《落在远方的果实——...】
+《落在远方的果实——父母、子女与身份认同》 作者受雇于纽约时报，穷尽十年时间，针对三百个家庭进行深入拜访。 这些家庭中，有聋人，侏儒，唐氏症，神童，杀人犯，自闭症，跨性别，思觉失调（旧译：精神分裂），和遭奸成孕生下的孩子。 这些与众不同的孩子会让父母经历痛苦的改变，但也让父母更了解自己。
+
+【林垚 | 一月六日美国国会之乱，远比最初所见凶险得多】
+https://mp.weixin.qq.com/s/DFOmBsHC54EF0hbHeqRSVA
+
+【请重视避孕药的副作用】
+请重视避孕药的副作用 #Discussion# #金牌译制# / http://m.weibo.cn/status/JDtWtEpch
+
+【我家户口本上消失的三个姐姐】
+https://mp.weixin.qq.com/s/qpcjC3Qs_BQmmOhWVffNiw
