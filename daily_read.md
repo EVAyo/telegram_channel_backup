@@ -14640,3 +14640,37 @@ https://mp.weixin.qq.com/s/DFOmBsHC54EF0hbHeqRSVA
 
 【我家户口本上消失的三个姐姐】
 https://mp.weixin.qq.com/s/qpcjC3Qs_BQmmOhWVffNiw
+
+=======
+
+每日文章精选
+
+【请重视避孕药的副作用】
+请重视避孕药的副作用 #Discussion# #金牌译制# / http://m.weibo.cn/status/JDtWtEpch
+
+【6·17起义之后】
+6·17起义之后 作协书记派人 在斯大林大街上分发传单 上面写着， 人民 失去了政府的信任 只有通过双倍的劳动 才能重新把它赢得 难道这不是更简单一点吗： 政府把人民解散 重新选举另外一个人民？ ——贝尔托·布莱希特
+
+【一针管两月，艾滋病治疗迎来新突破】
+https://mp.weixin.qq.com/s/epTus5GMIb0sUssyAW7t4A
+
+【【来自投稿】少女时代...】
+【来自投稿】少女时代的推理女王阿嘉莎·克莉丝蒂（本姓米勒，1890-1976），《东方快车谋杀案》、《尼罗河惨案》和《无人生还》的作者，约1903年。 http://m.weibo.cn/status/JARIjxPEa
+
+【【频道视频合集】【新...】
+【频道视频合集】【新闻类】 1. https://telete.in/daily_feminist/3405 2. https://telete.in/daily_feminist/3378 3. https://telete.in/daily_feminist/2928 4. https://telete.in/daily_feminist/2915 5. https://telete.in/daily_feminist/2919 6. https://telete.in/daily_feminist/2786 7. https://telete.in/daily_feminist/2344 8. https://telete.in/daily_feminist/2207 9. https://telete.in/daily_feminist/1997 10. https://telete.in/daily_feminist/1925 11. https://telete.in/daily_feminist/1933 12. https://telete.in/daily_feminist/1696 13. https://telete.in/daily_feminist/1564 14. https://telete.in/daily_feminist/1516 15. https://telete.in/daily_feminist/1407 16. https://telete.in/daily_feminist/1412 17. https://telete.in/daily_feminist/1339 18. https://telete.in/daily_feminist/1287 19. https://telete.in/daily_feminist/1292 20. https://telete.in/daily_feminist/1216 21. https://telete.in/daily_feminist/970 22. https://telete.in/daily_feminist/1010 23. https://telete.in/daily_feminist/909 24. https://telete.in/daily_feminist/602 25. https://telete.in/daily_feminist/615 26. https://telete.in/daily_feminist/103
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+【社会文化｜“戒网瘾”、“性别扭转治疗”：豫章书院们背后的资本与父权？】
+在“戒网瘾学校”这盘生意里，“学员”不仅是学校的收入来源，还会被用作免费劳动力，他们有的被拉去农场做农活，有的被安排去酒店做服务员，有的被要求去新校舍的工地搬砖做苦力，为新的“学员”建造牢笼。更普遍的情况则是“学员”被招募作为“学校”秩序的管理者，他们被要求去“教育”新来的“学员”、监督同伴，甚至在同伴试图逃跑、反抗的时候举报，而这一切，无疑摧毁了青少年对于人的信任，在他们离开“学校”之后，仍然深深影响他们的心理状态和社会交往。 https://matters.news/%40masses2020/%25E7%25A4%25BE%25E4%25BC%259A%25E6%2596%2587%25E5%258C%2596-%25E6%2588%2592%25E7%25BD%2591%25E7%2598%25BE-%25E6%2580%25A7%25E5%2588%25AB%25E6%2589%25AD%25E8%25BD%25AC%25E6%25B2%25BB%25E7%2596%2597-%25E8%25B1%25AB%25E7%25AB%25A0%25E4%25B9%25A6%25E9%2599%25A2%25E4%25BB%25AC%25E8%2583%258C%25E5%2590%258E%25E7%259A%2584%25E8%25B5%2584%25E6%259C%25AC%25E4%25B8%258E%25E7%2588%25B6%25E6%259D%2583-bafyreicufxynaftu44jcmgh4lytsgrtx6nms7bj4ogmdcmujr6icdqjjee | https://telete.in/masses2020/95
+
+【在推特上发现一个叫“...】
+在推特上发现一个叫“空箱職人はるきる”的家伙，善于把各种空包装盒做成精美的纸艺作品，但同时又能保持住原来那个空盒的灵魂。简直梦幻。 http://www.douban.com/people/195169505/status/3256034912
+
+【为什么人们会相信统治者的弥天大谎】
+谎言甚至不需要听起来合理就能凑效。“恰恰相反，”他写道，“谎言越恶心、越大、越粗俗，就越容易被相信、被接受。” http://nyti.ms/35Aqhxy
+
+【性侵病人的医生确实存在，我该如何分辨？】
+https://mp.weixin.qq.com/s/SzJQixOby7fgNdBn2CbzlA
