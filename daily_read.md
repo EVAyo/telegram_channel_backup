@@ -14722,3 +14722,17 @@ https://drive.google.com/file/d/1uBMXRz_HlZr-qSI2QcTanTnA1C6oxzhI/view | https:/
 
 【请重视避孕药的副作用】
 请重视避孕药的副作用 #Discussion# #金牌译制# / http://m.weibo.cn/status/JDtWtEpch
+
+=======
+
+《每日文章精选 2021-01-19》 https://t.me/daily_read 
+
+1. 【关于马泮艳事件中披露出的《民事调解书》之“原告结婚时年仅13岁”的感想】https://www.douban.com/note/608328663
+
+2. 【女性化妆打扮，真的是自愿吗？】https://mp.weixin.qq.com/s/bUyTlfpcOr_gMb9VAqIxVw
+
+3. 【全棉时代广告翻车：短视频时代的流量旋涡与媒介暴力】https://www.thepaper.cn/newsDetail_forward_10823085
+
+4. 【深评 | 再论推特、脸书封禁川普账号】https://mp.weixin.qq.com/s/2Mev8Qw2KB1vKkRzliMHCw
+
+5. 【我家户口本上消失的三个姐姐】https://mp.weixin.qq.com/s/qpcjC3Qs_BQmmOhWVffNiw
