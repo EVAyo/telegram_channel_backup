@@ -1922,3 +1922,7 @@ https://telegra.ph/%E4%BB%96%E4%BB%AC%E5%90%91%E6%80%A7%E5%B7%A5%E4%BD%9C%E5%BC%
 没有基本的逻辑知识，对事实没有把握完全可以分开说，分开分析。
 
 一句“你被洗脑了”，往往是只要堵别人之口。
+
+=======
+
+有空的朋友请帮我看看这篇文章，提提意见吧~~ https://www.evernote.com/l/AO9aSYuu_GxPG4duyQjXrsMCJEQL4ChFUyk
