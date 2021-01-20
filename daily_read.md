@@ -14770,3 +14770,17 @@ https://drive.google.com/file/d/1uBMXRz_HlZr-qSI2QcTanTnA1C6oxzhI/view | https:/
 
 【6·17起义之后】
 6·17起义之后 作协书记派人 在斯大林大街上分发传单 上面写着， 人民 失去了政府的信任 只有通过双倍的劳动 才能重新把它赢得 难道这不是更简单一点吗： 政府把人民解散 重新选举另外一个人民？ ——贝尔托·布莱希特
+
+=======
+
+《每日文章精选 2021-01-20》 https://t.me/daily_read 
+
+1. 【关于马泮艳事件中披露出的《民事调解书》之“原告结婚时年仅13岁”的感想】https://www.douban.com/note/608328663
+
+2. 【女性化妆打扮，真的是自愿吗？】https://mp.weixin.qq.com/s/bUyTlfpcOr_gMb9VAqIxVw
+
+3. 【为什么我们需要“99%的女性主义”】https://mp.weixin.qq.com/s/8bDOoqvjLmnFsVckEKFhlw
+
+4. 【滕威 | “大妈”：转型期中国的形象隐喻（节选）】https://mp.weixin.qq.com/s/Pchqext8zlAJHqzqeJ4UIA
+
+5. 【澎湃 | 反对商业代孕？女性主义思考范式的困境】https://mp.weixin.qq.com/s/RsZlH_Rw0wJ2QQS8NSUWkA
