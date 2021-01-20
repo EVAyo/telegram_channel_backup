@@ -14784,3 +14784,37 @@ https://drive.google.com/file/d/1uBMXRz_HlZr-qSI2QcTanTnA1C6oxzhI/view | https:/
 4. 【滕威 | “大妈”：转型期中国的形象隐喻（节选）】https://mp.weixin.qq.com/s/Pchqext8zlAJHqzqeJ4UIA
 
 5. 【澎湃 | 反对商业代孕？女性主义思考范式的困境】https://mp.weixin.qq.com/s/RsZlH_Rw0wJ2QQS8NSUWkA
+
+=======
+
+每日文章精选
+
+【Digital No...】
+Digital Nomads: In Search of Freedom, Community, and Meaningful Work in the New Economy
+
+【一针管两月，艾滋病治疗迎来新突破】
+https://mp.weixin.qq.com/s/epTus5GMIb0sUssyAW7t4A
+
+【完美融入世界名画的橘...】
+完美融入世界名画的橘猫，“喵喵我相信这是失传珍藏版”！ http://www.douban.com/people/164799715/status/3263327182
+
+【河北某医院领导问我们...】
+河北某医院领导问我们除了安心裤卫生巾还有没有别的什么可以捐，问我们怎么没有点别的东西，最后还说没关系，这些也行，领导的女家属也可以用 👋 运力和货物都非常紧张，我们弄到货非常困难，天寒地冻送货也很困难 ，请院方收到货后尽快将物资发派下去到女性医护手中，我们将如援鄂时期那样定期私下抽查医护回访，谢谢 🙏 http://m.weibo.cn/status/JDUna7air
+
+【【#韩国美女痴迷造纸...】
+【#韩国美女痴迷造纸术# 】85后韩国姑娘金绣辰，从小爱看中国的武侠电影，高中时就来中国读书，之后又迷恋上了造纸。清华研究生毕业4年后，她每天在工作室里钻研，如何用纸做出美丽的艺术作品，多次斩获国际大奖。金绣辰说：“这18年，我的老师、朋友们给了我满满的爱，我想把在这学到的回报给更多人。 http://m.weibo.cn/status/JDHGScvxQ
+
+【大西洋月刊：在疫情和暴动时代，大纪元如何成为亲特朗普的宣传机器】
+https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive/2021/01/inside-the-epoch-times-a-mysterious-pro-trump-newspaper/617645
+
+【客服人的背后（上） ｜ 客服“大工厂”：集约化控制体系下的低薪与压抑】
+公司在这一过程中似乎完全消失了。顾客与公司的矛盾被成功转嫁到客服身上。 https://serviceworkercn.com/call-center-workers-1 https://serviceworkercn.com/call-center-workers-2
+
+【为什么人们会相信统治者的弥天大谎】
+谎言甚至不需要听起来合理就能凑效。“恰恰相反，”他写道，“谎言越恶心、越大、越粗俗，就越容易被相信、被接受。” http://nyti.ms/35Aqhxy
+
+【【南方一周】南韩聊天机器人歧视同志 问世20天遭下架】
+女性在科技产业的比例过低，例如在韩国，理工科的女性毕业生仅有25%。露达争议爆发后，Scatter Lab 也被指出90%的员工都是男性。 https://www.coolloud.org.tw/node/95207
+
+【「一个大三女生在做性...】
+「一个大三女生在做性教育」 色阿是一个大三学生，高二时她遇到暴露狂的时候，她把这件事告诉了班里的女生 ， 没想到，惹哭了班上 1/4 的女生。 女生们哭着，第一次说出了自己被性侵的经历。 “原来这些事可以说出来的，说出来会舒服很多。” 这件事让色阿意识到，被性侵后应该怎么做，这些困惑的根源是整个环境下性教育的缺失，想改变这个现状，并不是一件容易的事。 从高二一开始准备讲座被级长临时取消，说“你就是有病”， 到现在成立公司和深圳疾控中心合作。 关于性教育，这个女生已经做了五年。 她是怎么办到的？性教育到底教的是什么？ 我们尝试用这个视频，来回答这些问题。 http://m.weibo.cn/status/HwxHGvweo
