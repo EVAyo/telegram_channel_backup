@@ -14818,3 +14818,17 @@ https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive
 
 【「一个大三女生在做性...】
 「一个大三女生在做性教育」 色阿是一个大三学生，高二时她遇到暴露狂的时候，她把这件事告诉了班里的女生 ， 没想到，惹哭了班上 1/4 的女生。 女生们哭着，第一次说出了自己被性侵的经历。 “原来这些事可以说出来的，说出来会舒服很多。” 这件事让色阿意识到，被性侵后应该怎么做，这些困惑的根源是整个环境下性教育的缺失，想改变这个现状，并不是一件容易的事。 从高二一开始准备讲座被级长临时取消，说“你就是有病”， 到现在成立公司和深圳疾控中心合作。 关于性教育，这个女生已经做了五年。 她是怎么办到的？性教育到底教的是什么？ 我们尝试用这个视频，来回答这些问题。 http://m.weibo.cn/status/HwxHGvweo
+
+=======
+
+《每日文章精选 2021-01-21》 https://t.me/daily_read 
+
+1. 【关于马泮艳事件中披露出的《民事调解书》之“原告结婚时年仅13岁”的感想】https://www.douban.com/note/608328663
+
+2. 【为什么我们需要“99%的女性主义”】https://mp.weixin.qq.com/s/8bDOoqvjLmnFsVckEKFhlw
+
+3. 【滕威 | “大妈”：转型期中国的形象隐喻（节选）】https://mp.weixin.qq.com/s/Pchqext8zlAJHqzqeJ4UIA
+
+4. 【澎湃 | 反对商业代孕？女性主义思考范式的困境】https://mp.weixin.qq.com/s/RsZlH_Rw0wJ2QQS8NSUWkA
+
+5. 【全棉时代广告翻车：短视频时代的流量旋涡与媒介暴力】https://www.thepaper.cn/newsDetail_forward_10823085
