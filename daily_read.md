@@ -14948,3 +14948,17 @@ https://nationalaffairs.com/publications/detail/the-politicization-of-unhappines
 
 【大西洋月刊：在疫情和暴动时代，大纪元如何成为亲特朗普的宣传机器】
 https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive/2021/01/inside-the-epoch-times-a-mysterious-pro-trump-newspaper/617645
+
+=======
+
+《每日文章精选 2021-01-23》 https://t.me/daily_read 
+
+1. 【嗲即柔弱？别让“声音”定义女性的语言】https://mp.weixin.qq.com/s/wQmjq1w9x7jPmYeO8G9vAA
+
+2. 【一九四六，酷刑，晋绥。】https://mp.weixin.qq.com/s/sa1DWTdKH0Ye23YrahuCYw
+
+3. 【为什么我们需要“99%的女性主义”】https://mp.weixin.qq.com/s/8bDOoqvjLmnFsVckEKFhlw
+
+4. 【滕威 | “大妈”：转型期中国的形象隐喻（节选）】https://mp.weixin.qq.com/s/Pchqext8zlAJHqzqeJ4UIA
+
+5. 【澎湃 | 反对商业代孕？女性主义思考范式的困境】https://mp.weixin.qq.com/s/RsZlH_Rw0wJ2QQS8NSUWkA
