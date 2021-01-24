@@ -14962,3 +14962,37 @@ https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive
 4. 【滕威 | “大妈”：转型期中国的形象隐喻（节选）】https://mp.weixin.qq.com/s/Pchqext8zlAJHqzqeJ4UIA
 
 5. 【澎湃 | 反对商业代孕？女性主义思考范式的困境】https://mp.weixin.qq.com/s/RsZlH_Rw0wJ2QQS8NSUWkA
+
+=======
+
+每日文章精选
+
+【【议题】性/别思考】
+【议题】性/别思考 不同时代，不同地域，不同的文明，对社会性别的构建各不相同。 思考学习和性/别认同相关的内容，可以帮我们更好的理解自己，包容他人，推动社会进步。 https://t.me/round_table_discuss 【讨论区】 https://telete.in/round_table_discuss/28?comment=984
+
+【去年4月的时候，收到...】
+去年4月的时候，收到了延期许久的某杂志。预告的时候说有艾芬，有关秀丽，有张笑春，有火神山的女人们。 拿到手全部没有了，只剩下一位安全的男医生。 http://m.weibo.cn/status/JEbDfaxMm
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第22集 内含外国水猴子大荟萃 【网评】看到人类模仿尺蠖翻跟头（误）我又开始狂笑…… http://m.weibo.cn/status/JEfkgvzWQ
+
+【郑老师又一针见血了。】
+郑老师又一针见血了。 http://www.douban.com/people/1129650/status/3264559463
+
+【这种议题的参会者10...】
+这种议题的参会者100%是男的合适吗 http://www.douban.com/people/1129650/status/3264356389
+
+【大西洋月刊：在疫情和暴动时代，大纪元如何成为亲特朗普的宣传机器】
+https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive/2021/01/inside-the-epoch-times-a-mysterious-pro-trump-newspaper/617645
+
+【一九四六，酷刑，晋绥。】
+https://mp.weixin.qq.com/s/sa1DWTdKH0Ye23YrahuCYw
+
+【在这种恐龙灭绝1.2...】
+在这种恐龙灭绝1.2亿年后，人类终于第一次知道了它的“菊花”长成什么样…… http://m.weibo.cn/status/JE7zQfR25
+
+【网络热传生物鉴定 第...】
+网络热传生物鉴定 第23集 http://m.weibo.cn/status/JEfcnpWkQ
+
+【source】
+http://m.weibo.cn/status/JEeO25U2E
