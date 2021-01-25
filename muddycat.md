@@ -1970,3 +1970,7 @@ https://telegra.ph/%E4%BB%96%E4%BB%AC%E5%90%91%E6%80%A7%E5%B7%A5%E4%BD%9C%E5%BC%
 如果有多人需要倾诉，之前参与过聆听的朋友优先。
 
 不知道大家有兴趣吗？（或者在形式上，有什么建议吗？）
+
+=======
+
+https://lausan.hk/2021/china-anti-communism-chinese/ 大家对这篇文章怎么看？
