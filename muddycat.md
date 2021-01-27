@@ -1984,3 +1984,7 @@ https://lausan.hk/2021/china-anti-communism-chinese/ 大家对这篇文章怎么
 支持废除特权的民意铺天盖地：你们在搞多数人暴政！
 
 https://t.me/LiberalegalitarianisminChinese/36356
+
+=======
+
+外貌焦虑话题上，女权更多谈的不是女性应当“以什么为美”，而是“不以什么为丑”。
