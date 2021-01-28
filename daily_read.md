@@ -15194,3 +15194,17 @@ https://mp.weixin.qq.com/s/2Mev8Qw2KB1vKkRzliMHCw
 
 【2020-01-13-方可成：特朗普被封号——我们别再假装这三件事｜评论｜深度｜互联网政治｜端传媒 Initium Media】
 1. 别再假装社交媒体能“自净” 2. 别再假装硅谷巨头是普通的私营公司 http://telegra.ph/2020-01-13-%25E6%2596%25B9%25E5%258F%25AF%25E6%2588%2590%25E7%2589%25B9%25E6%259C%2597%25E6%2599%25AE%25E8%25A2%25AB%25E5%25B0%2581%25E5%258F%25B7%25E6%2588%2591%25E4%25BB%25AC%25E5%2588%25AB%25E5%2586%258D%25E5%2581%2587%25E8%25A3%2585%25E8%25BF%2599%25E4%25B8%2589%25E4%25BB%25B6%25E4%25BA%258B%25E8%25AF%2584%25E8%25AE%25BA%25E6%25B7%25B1%25E5%25BA%25A6%25E4%25BA%2592%25E8%2581%2594%25E7%25BD%2591%25E6%2594%25BF%25E6%25B2%25BB%25E7%25AB%25AF%25E4%25BC%25A0%25E5%25AA%2592-Initium-Media-01-12 | https://telete.in/mengyshare/6055 【编案】社交app或许能自净，但需要app内部的民主体系，以及面向用户，而不是面向广告商的设计。
+
+=======
+
+《每日文章精选 2021-01-28》 https://t.me/daily_read 
+
+1. 【“世卫不推荐莫德纳疫苗？”等新冠相关谣言三则，附拜登劳力士表是儿子的吗？】https://mp.weixin.qq.com/s/yG8f8GfbjTYZnB4iwyRuXQ
+
+2. 【人工智能消费场景中的女性性别歧视】http://mp.weixin.qq.com/s?__biz=MzUzNjcxNTI2Nw==&amp;mid=2247486450&amp;idx=1&amp;sn=1ac24f0cd96d5aa42beb3df24ea177e6
+
+3. 【替罪羊还是残害女性的工具？一部上「环」主导的中国女性避孕史】http://mp.weixin.qq.com/s?__biz=MzIyNDU0NjAxOA==&amp;mid=2247485003&amp;idx=1&amp;sn=3e549a07a809b78dafab916419a00051
+
+4. 【“剥削和必死”之外,代孕还有更多面相】https://mp.weixin.qq.com/s/7a9Z44nFlp-XFOn-OLaJPg
+
+5. 【旧瓶装新酒但还是馊的，又一轮“男女同厕”和恐跨谣言浮出水面】https://mp.weixin.qq.com/s/FrdSW812peuMcF84NF1HTg
