@@ -15242,3 +15242,17 @@ https://www.douban.com/note/606592310
 
 【为什么人们会相信统治者的弥天大谎】
 谎言甚至不需要听起来合理就能凑效。“恰恰相反，”他写道，“谎言越恶心、越大、越粗俗，就越容易被相信、被接受。” http://nyti.ms/35Aqhxy
+
+=======
+
+《每日文章精选 2021-01-29》 https://t.me/daily_read 
+
+1. 【我是包丽的母亲，这一年我翻了无数次聊天记录】https://mp.weixin.qq.com/s/uSGhXrxyAg-78SciwYDHOg
+
+2. 【人工智能消费场景中的女性性别歧视】http://mp.weixin.qq.com/s?__biz=MzUzNjcxNTI2Nw==&amp;mid=2247486450&amp;idx=1&amp;sn=1ac24f0cd96d5aa42beb3df24ea177e6
+
+3. 【替罪羊还是残害女性的工具？一部上「环」主导的中国女性避孕史】http://mp.weixin.qq.com/s?__biz=MzIyNDU0NjAxOA==&amp;mid=2247485003&amp;idx=1&amp;sn=3e549a07a809b78dafab916419a00051
+
+4. 【“剥削和必死”之外,代孕还有更多面相】https://mp.weixin.qq.com/s/7a9Z44nFlp-XFOn-OLaJPg
+
+5. 【旧瓶装新酒但还是馊的，又一轮“男女同厕”和恐跨谣言浮出水面】https://mp.weixin.qq.com/s/FrdSW812peuMcF84NF1HTg
