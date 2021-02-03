@@ -15502,3 +15502,17 @@ https://www.caus.com/detail/11781 | https://www.theatlantic.com/politics/archive
 
 【一把大火，三个人和不断轮回的历史】
 【韩国工人运动】 1970年11月13日，全泰壹在寒冷的冬天里和一群同伴们，拉着“我们不是机器”的布条，前往首尔和平市场抗议。在他那身黑色长大衣下，铺了蘸满汽油的海绵，在抗议中他突然高举着《劳动基准法》引火自焚。烈焰中，他高喊着“遵守《劳动法》！”。临死前，在摇晃的破烂篷车上，浑身灼烧到焦黑肿胀的他，对母亲李小仙说：“请你务必将这些工人的要求铭记在心。…妈，我未作完的事，一定要答应帮我继续作下去，不要让我白白死去！” https://www.douban.com/note/791511422 【注】2021年1月11日，江苏泰州，一名外卖员将汽油浇到自己身上并点火自焚。他说：不去（医院）！我连命都不要了！我要我的血汗钱！ https://www.163.com/dy/article/G07GV4GP0545KZQY.html
+
+=======
+
+《每日文章精选 2021-02-03》 https://t.me/daily_read 
+
+1. 【从杨笠的段子谈起，男性怎么突然成为受害者了？】https://m.douban.com/note/790616137/?dt_dapp=1&dt_platform=com.douban.activity.wechat_friends?bid=novNhQb4Tok
+
+2. 【别再逼青少年“阳刚”了】https://mp.weixin.qq.com/s/cY0iag_1DQQsumNW0tygCw
+
+3. 【不存在的“娘炮”和被“娘炮羞辱”杀死的男人】https://mp.weixin.qq.com/s/cfbSuDQp1TPMgoiLjI9zRQ
+
+4. 【性教育缺位后遗症：男孩阳刚迷思】https://mp.weixin.qq.com/s/rqEbsLDQvXrZr5gHxBZSMw
+
+5. 【女权主义为什么也能解放男人？】https://www.thepaper.cn/newsDetail_forward_1373740
