@@ -2000,11 +2000,3 @@ https://t.me/LiberalegalitarianisminChinese/36356
 1. 把是否结婚当做个人选择。
 
 2. 把女性当做对等的人，而不是把自己的结婚权放在女性的自由之前。
-
-=======
-
-【现在】【中国的性别政治与再生产危机】
-
-https://zoom.us/webinar/register/WN_0uHIp1lWQzKb70UtMFzsOg
-https://zoom.us/w/96851041509
-passcode: 301178
