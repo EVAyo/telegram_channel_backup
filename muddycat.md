@@ -2034,3 +2034,9 @@ https://t.me/LiberalegalitarianisminChinese/36356
 （clubhouse）听说现在05后，已经没有什么渠道知道互联网墙的存在了。
 
 我猜也是和阶层相关，不知道具体怎么样。大家愿意说说吗？
+
+=======
+
+对啦，我在做一些翻译相关的事情，有没有想要加入的朋友？或者关于翻译的原文内容，大家有什么推荐吗？
+
+https://t.me/twitter_translate
