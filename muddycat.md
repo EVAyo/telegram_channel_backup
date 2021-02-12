@@ -2040,11 +2040,3 @@ https://t.me/LiberalegalitarianisminChinese/36356
 对啦，我在做一些翻译相关的事情，有没有想要加入的朋友？或者关于翻译的原文内容，大家有什么推荐吗？
 
 https://t.me/twitter_translate
-
-=======
-
-双性恋在与异性恋进入异性关系/异性婚姻的时候，是否有义务向对方出柜？
-
-大家怎么看？
-
-https://t.me/LiberalegalitarianisminChinese/43539
