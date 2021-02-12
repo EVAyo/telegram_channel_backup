@@ -15892,3 +15892,37 @@ https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
 
 【深评 | 再论推特、脸书封禁川普账号】
 https://mp.weixin.qq.com/s/2Mev8Qw2KB1vKkRzliMHCw
+
+=======
+
+每日文章精选
+
+【来看看你，一年了，我...】
+来看看你，一年了，我们还活着。 http://www.douban.com/people/2179521/status/3288092733 【网评】前阵子路过通惠河，那天刚好下着雪，有些痕迹永远留在了那里
+
+【在讲70年代的美剧中，看见“中国田园女权”怎么被污名化】
+http://www.wainao.me/wainao-reads/feminism-in-china-11062020
+
+【900万中国女人，住在卡车副驾驶里】
+https://mp.weixin.qq.com/s/uVxW8kJ_wu8nmsS7MiPkQw
+
+【深评 | 再论推特、脸书封禁川普账号】
+https://mp.weixin.qq.com/s/2Mev8Qw2KB1vKkRzliMHCw
+
+【【泛哲学】当 AI 撞上 UBI （上）】
+https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
+
+【乡村女童遭男教师猥亵之后： 被遗忘的伤痛】
+【替学校里被性侵的女童报警求助，后被开除、遭到报复】 这原本是个伸张正义的故事，然而事件的后半段却出乎何思云的意料。 事发后，当地教育局核查何思云教师资格证，并告知其证件系伪造。 随后，何思云被辞退，被迫离开教师行业。 因为承受压力过大，她和男朋友分了手，全校100多名老师同事也从此和她没有了任何联系。 更骇人听闻的是，何思云发微博称，县政府为了避免她上访，把她列入了吸毒控制人员名单，导致她无法坐动车出门。 http://m.sohu.com/a/158095207_123753 | http://shop1685844852.v.weidian.com/item.html?itemID=4110207289&wfr=wx_wxph5&sfr=app&source=goods_home&ifr=itemdetail&state=H5WXshareOld&distributorId=772000754&share_relation=2e70a29697becc77_772000754_6
+
+【抗争者李翘楚的革命与爱 | NGOCN】
+https://ngocn2.org/article/2020-12-22-qi-qiao-chu-revolution-love
+
+【壁纸，随意自取。】
+壁纸，随意自取。 http://www.douban.com/people/2072047/status/3295756311
+
+【你有没有扔过网球拍？...】
+你有没有扔过网球拍？网球拍在空中旋转的时候有没有发现过什么奇怪的现象？ 如果你发现了，恭喜你，你具有成为第一流物理学家的潜质。 网球拍有三个比较特殊的旋转轴。按照某个简单的标准，这三个轴可以排出个先后顺序。 物理学家发现，中间这个轴是最特殊的。 绕这个轴的旋转不太稳定。 这到底是怎么回事？ 其实一百多年前，物理学家就有能力从理论上完全搞清楚这些问题了。 最近，数学家陶哲轩还不用数学，直接给出了一个直观的解释。 但是，理论和实践间存在着鸿沟。即使你感觉自己门儿清了，在真正实践当中，还是很容易犯错误。 尤其是太空零重力环境下的现象，一度让科学家们很迷惑。 其实不过是换了个马甲就不认识了。 在卫星的发射过程中，美国就曾付出过惨痛的代价。 有人甚至猜测，地球作为一个旋转的物体，会不会出现类似网球拍那样的翻转现象。那可就太可怕了。 http://m.weibo.cn/status/K0XxXiDbH
+
+【#女权】
+?q=%23%E5%A5%B3%E6%9D%83 ?q=%23%E5%B9%B3%E6%9D%83 ?q=%23%E6%96%B0%E7%96%86 大年初一 宜：真平等 忌：任何强权和欺压
