@@ -15959,3 +15959,17 @@ https://ngocn2.org/article/2020-12-22-qi-qiao-chu-revolution-love
 
 【【TED：对妇女的暴...】
 【TED：对妇女的暴力，这是一个男人的问题】很多女人已经在尝试发声，但是她们的努力常常被压制，得了不雅的名称，“攻击男人者”、“恶心的女权主义”。你知道这叫什么吗？这叫杀掉给我们送信的人。这是当女人为自己，为其他女人、男人和小男孩说话的时候，命令她们闭嘴。这是在维护现有的系统，我们不喜欢有人对抗我们的权力，所以你最好坐下。还好女人没有照做，我们置身于一个很多女性领袖活跃的世界。但有一个角色我们男人也可以担负起来：我们也可以说些什么，说些女人不方便说的、人们不愿意听女人说的话。这是性别歧视，但也是现实。我常对其他男人说，我们需要更多有勇气和力量的男人，站起来说这些问题，与女人并肩作战，而不是对抗她们，误以为这是性别之间的战争。 http://m.weibo.cn/status/K1irH47fF
+
+=======
+
+《每日文章精选 2021-02-13》 https://t.me/daily_read 
+
+1. 【一篇对谈】https://www.douban.com/note/684886366
+
+2. 【《唐人街探案3》：一部靠殴打女性制造笑料的电影】https://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650191901&amp;idx=1&amp;sn=26d7c2de7de31f72ede06aa1027fa3aa
+
+3. 【900万中国女人，住在卡车副驾驶里】https://mp.weixin.qq.com/s/uVxW8kJ_wu8nmsS7MiPkQw
+
+4. 【橙雨伞 | 千辛万苦瘦下来后，我反而更不自信了？】https://mp.weixin.qq.com/s/z7SH46BLKcs3CuaQ50F7AQ
+
+5. 【家暴受害者离开，不是她突然想通了，是她终于成功了】https://mp.weixin.qq.com/s/FChA9WUFTPIfEpQTdQDmvA
