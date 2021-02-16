@@ -16068,3 +16068,17 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 【乡村女童遭男教师猥亵之后： 被遗忘的伤痛】
 【替学校里被性侵的女童报警求助，后被开除、遭到报复】 这原本是个伸张正义的故事，然而事件的后半段却出乎何思云的意料。 事发后，当地教育局核查何思云教师资格证，并告知其证件系伪造。 随后，何思云被辞退，被迫离开教师行业。 因为承受压力过大，她和男朋友分了手，全校100多名老师同事也从此和她没有了任何联系。 更骇人听闻的是，何思云发微博称，县政府为了避免她上访，把她列入了吸毒控制人员名单，导致她无法坐动车出门。 http://m.sohu.com/a/158095207_123753 | http://shop1685844852.v.weidian.com/item.html?itemID=4110207289&wfr=wx_wxph5&sfr=app&source=goods_home&ifr=itemdetail&state=H5WXshareOld&distributorId=772000754&share_relation=2e70a29697becc77_772000754_6
+
+=======
+
+《每日文章精选 2021-02-16》 https://t.me/daily_read 
+
+1. 【可能是最全的反骚扰指南——我是如何击退stalker并成功化解心理危机的】https://www.douban.com/note/673277464
+
+2. 【一篇对谈】https://www.douban.com/note/684886366
+
+3. 【《唐人街探案3》：一部靠殴打女性制造笑料的电影】https://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650191901&amp;idx=1&amp;sn=26d7c2de7de31f72ede06aa1027fa3aa
+
+4. 【900万中国女人，住在卡车副驾驶里】https://mp.weixin.qq.com/s/uVxW8kJ_wu8nmsS7MiPkQw
+
+5. 【橙雨伞 | 千辛万苦瘦下来后，我反而更不自信了？】https://mp.weixin.qq.com/s/z7SH46BLKcs3CuaQ50F7AQ
