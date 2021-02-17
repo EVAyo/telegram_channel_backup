@@ -16116,3 +16116,17 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 【海星小时候是什么样子...】
 海星小时候是什么样子的？ 不同的海星发育阶段并不完全相同，但大部分海星刚孵化的时候是近乎透明的，有点像水母，在海水里自由漂浮，吃浮游生物。最开始它只有两只“手”，后来再长出另外三只。 不过这些幼体的手不会留到成年。当海星发育到一定阶段的时候，体内会长出一颗真正的“星”，这才是未来的成年体，而周围的透明部分连同五只手一起都会逐渐解体。 这个过程中海星也会慢慢变沉，最终落入海底，之后一辈子都留在海底，转变为底栖生活。（相当一部分底栖生物幼年时都是浮游的。） http://m.weibo.cn/status/K0cEjzwZv
+
+=======
+
+《每日文章精选 2021-02-17》 https://t.me/daily_read 
+
+1. 【可能是最全的反骚扰指南——我是如何击退stalker并成功化解心理危机的】https://www.douban.com/note/673277464
+
+2. 【一篇对谈】https://www.douban.com/note/684886366
+
+3. 【《唐人街探案3》：一部靠殴打女性制造笑料的电影】https://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650191901&amp;idx=1&amp;sn=26d7c2de7de31f72ede06aa1027fa3aa
+
+4. 【900万中国女人，住在卡车副驾驶里】https://mp.weixin.qq.com/s/uVxW8kJ_wu8nmsS7MiPkQw
+
+5. 【橙雨伞 | 千辛万苦瘦下来后，我反而更不自信了？】https://mp.weixin.qq.com/s/z7SH46BLKcs3CuaQ50F7AQ
