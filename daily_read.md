@@ -16164,3 +16164,17 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 【【专业人士讲解：洗牙...】
 【专业人士讲解：洗牙是如何完成的（双语字幕）】 这是一条专业性很强的视频。牙科专家会结合实操讲解，最新的——“引导生物膜”疗法洗牙。 必须要提醒的是，洗牙的过程会看到一些结石，污垢等，并伴随少量出血，可能引起部分朋友的不适，请谨慎观看。 http://m.weibo.cn/status/K030PtqnK
+
+=======
+
+《每日文章精选 2021-02-18》 https://t.me/daily_read 
+
+1. 【劲夫之外：父权、厌女与交叉性分析】https://mp.weixin.qq.com/s/j4RzjN4nr8uWXDDEdXGS9g
+
+2. 【二月下旬全球性别相关活动推荐｜信息汇总】https://mp.weixin.qq.com/s?__biz=MzI2NTMwNDM3Nw==&amp;mid=2247484755&amp;idx=1&amp;sn=aca914fff67590136280058cd4f1ca28
+
+3. 【可能是最全的反骚扰指南——我是如何击退stalker并成功化解心理危机的】https://www.douban.com/note/673277464
+
+4. 【一篇对谈】https://www.douban.com/note/684886366
+
+5. 【《唐人街探案3》：一部靠殴打女性制造笑料的电影】https://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650191901&amp;idx=1&amp;sn=26d7c2de7de31f72ede06aa1027fa3aa
