@@ -16178,3 +16178,37 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 4. 【一篇对谈】https://www.douban.com/note/684886366
 
 5. 【《唐人街探案3》：一部靠殴打女性制造笑料的电影】https://mp.weixin.qq.com/s?__biz=MzI5NTEyODM0OQ==&amp;mid=2650191901&amp;idx=1&amp;sn=26d7c2de7de31f72ede06aa1027fa3aa
+
+=======
+
+每日文章精选
+
+【来看看你，一年了，我...】
+来看看你，一年了，我们还活着。 http://www.douban.com/people/2179521/status/3288092733 【网评】前阵子路过通惠河，那天刚好下着雪，有些痕迹永远留在了那里
+
+【旧瓶装新酒但还是馊的，又一轮“男女同厕”和恐跨谣言浮出水面】
+https://mp.weixin.qq.com/s/FrdSW812peuMcF84NF1HTg
+
+【'Their goal is to destroy everyone': Uighur camp detainees allege systematic rape】
+【最新】关于维吾尔集中营，BBC刚刚发布了一些骇人听闻的证词： 1. 广泛性的强奸 2. 针对妇女的性酷刑 3. 警察将电棍插入犯人的阴道 4. 警察将维吾尔族妇女出售给汉人男性强奸 https://www.bbc.com/news/world-asia-china-55794071
+
+【一九四六，酷刑，晋绥。】
+https://mp.weixin.qq.com/s/sa1DWTdKH0Ye23YrahuCYw
+
+【Liquid democracy】
+【委任式民主】 委任式民主，又称流动式民主。 委任式民主介于直接民主与代议制民主之间。个人可以选择研究繁复的政治课题，并投票，或者选择另一个人，作为自己的投票代理。 委任式民主最早在140年前提出，此后不断经历改良，且有多处实践。 【细节】 1. 选民票是不公开的。委任人的票是公开的。 2. 委任人可以再委任其他的委任人。 3. 可以分议题委任。比如对于环境议题，我委任A，对经济议题，我委任B。 4. 可收回选票重投。 5. 委任人门槛低，不需要通过选举选出。 https://en.wikipedia.org/wiki/Liquid_democracy 【注】我们并没有说委任式民主比直接民主或代议制民主要优秀。任何民主系统都有其特定的最佳适用范围。取决于人口结构，议题广度，不同国家/机构可能会选择不同的民主系统。
+
+【已悲节物同寒雁，忍委...】
+已悲节物同寒雁，忍委芳心与暮蝉。 http://m.weibo.cn/status/K1CIFgnCe 【网评】武汉，如果家里有人在这一年去世了，会在除夕凌晨十二点之后，去这家人家里祭奠，祭奠用的是菊花，花市用来祭奠的花卖到没有货，是值得拿出来比心的事情吗。
+
+【#15 阴谋论的另类宇宙】
+1. 一个阴谋论可以被证伪，但一套阴谋论源源不断，永远可以保持不被证伪。 2. QAnon的被剥夺感。主要并不是经济剥夺，而是话语权的剥夺。 3. 阴谋论要求不和主流对话，从而完全钻进自己的小圈子。 4. 传播过程模仿宗教，要求先讲容易接受的阴谋，再讲蜥蜴人/四维空间/恋童/反犹大礼包。 http://lunhuan.fm/episodes/15
+
+【胖子、单身、穷人、残...】
+胖子、单身、穷人、残疾、病人……只要你不是一子一女父母双全收入稳定身强体健的标准体，就不配看这杂烩晚会。 http://m.weibo.cn/status/K1zoGkLrh
+
+【微信第十年，中国人在上面做什么？】
+https://www.wainao.me/wainao-reads/fea-wechat-02072021
+
+【【泛哲学】当 AI 撞上 UBI （上）】
+https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
