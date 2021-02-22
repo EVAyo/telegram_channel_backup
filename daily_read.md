@@ -16314,3 +16314,37 @@ https://www.wainao.me/wainao-reads/fea-wechat-02072021
 
 【My stroke of insight】
 https://www.ted.com/talks/jill_bolte_taylor_my_stroke_of_insight
+
+=======
+
+每日文章精选
+
+【【电台】言说、行动、铭记：“正确的集体记忆”外，属于我们每个人的疫情记忆 - 未被纪录的Ta们 (%40ncov2019stats)】
+https://matters.news/%40ncov2019stats/%25E7%2594%25B5%25E5%258F%25B0-%25E8%25A8%2580%25E8%25AF%25B4-%25E8%25A1%258C%25E5%258A%25A8-%25E9%2593%25AD%25E8%25AE%25B0-%25E6%25AD%25A3%25E7%25A1%25AE%25E7%259A%2584%25E9%259B%2586%25E4%25BD%2593%25E8%25AE%25B0%25E5%25BF%2586-%25E5%25A4%2596-%25E5%25B1%259E%25E4%25BA%258E%25E6%2588%2591%25E4%25BB%25AC%25E6%25AF%258F%25E4%25B8%25AA%25E4%25BA%25BA%25E7%259A%2584%25E7%2596%25AB%25E6%2583%2585%25E8%25AE%25B0%25E5%25BF%2586-bafyreigzjivadq46nbjv5mbo6oxsdomubj22jxqo6qlraw7zcm3vkdo4iq
+
+【“劲夫劲夫，女人痛哭”，你说这梗是在讽刺家暴？】
+https://mp.weixin.qq.com/s/yvsVIpIB62KhojipRsTUKQ
+
+【不知道叫啥的玉兰。】
+不知道叫啥的玉兰。 http://www.douban.com/people/76453251/status/3311193254
+
+【胖子、单身、穷人、残...】
+胖子、单身、穷人、残疾、病人……只要你不是一子一女父母双全收入稳定身强体健的标准体，就不配看这杂烩晚会。 http://m.weibo.cn/status/K1zoGkLrh
+
+【一九四六，酷刑，晋绥。】
+https://mp.weixin.qq.com/s/sa1DWTdKH0Ye23YrahuCYw
+
+【有哪些适合女孩子看、...】
+有哪些适合女孩子看、可以提升自我的书籍？ http://m.weibo.cn/status/JFC5L5u2S
+
+【【用电影截屏来表达你...】
+【用电影截屏来表达你的新年祝愿】 牛转乾坤贺岁 | Netflix 华语影视精选剪辑大赏 《同学麦娜丝》《后来的我们》《谁是被害者 第一季》《刻在你心底的名字》《阳光普照》《孤味》《虎尾》《晴雅集》《谁先爱上他的》等 http://www.douban.com/people/2160141/status/3287207644
+
+【乡村女童遭男教师猥亵之后： 被遗忘的伤痛】
+【替学校里被性侵的女童报警求助，后被开除、遭到报复】 这原本是个伸张正义的故事，然而事件的后半段却出乎何思云的意料。 事发后，当地教育局核查何思云教师资格证，并告知其证件系伪造。 随后，何思云被辞退，被迫离开教师行业。 因为承受压力过大，她和男朋友分了手，全校100多名老师同事也从此和她没有了任何联系。 更骇人听闻的是，何思云发微博称，县政府为了避免她上访，把她列入了吸毒控制人员名单，导致她无法坐动车出门。 http://m.sohu.com/a/158095207_123753 | http://shop1685844852.v.weidian.com/item.html?itemID=4110207289&wfr=wx_wxph5&sfr=app&source=goods_home&ifr=itemdetail&state=H5WXshareOld&distributorId=772000754&share_relation=2e70a29697becc77_772000754_6
+
+【【泛哲学】当 AI 撞上 UBI （上）】
+https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
+
+【来看看你，一年了，我...】
+来看看你，一年了，我们还活着。 http://www.douban.com/people/2179521/status/3288092733 【网评】前阵子路过通惠河，那天刚好下着雪，有些痕迹永远留在了那里
