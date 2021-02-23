@@ -16396,3 +16396,17 @@ https://www.ted.com/talks/jill_bolte_taylor_my_stroke_of_insight
 
 【乡村女童遭男教师猥亵之后： 被遗忘的伤痛】
 【替学校里被性侵的女童报警求助，后被开除、遭到报复】 这原本是个伸张正义的故事，然而事件的后半段却出乎何思云的意料。 事发后，当地教育局核查何思云教师资格证，并告知其证件系伪造。 随后，何思云被辞退，被迫离开教师行业。 因为承受压力过大，她和男朋友分了手，全校100多名老师同事也从此和她没有了任何联系。 更骇人听闻的是，何思云发微博称，县政府为了避免她上访，把她列入了吸毒控制人员名单，导致她无法坐动车出门。 http://m.sohu.com/a/158095207_123753 | http://shop1685844852.v.weidian.com/item.html?itemID=4110207289&wfr=wx_wxph5&sfr=app&source=goods_home&ifr=itemdetail&state=H5WXshareOld&distributorId=772000754&share_relation=2e70a29697becc77_772000754_6
+
+=======
+
+《每日文章精选 2021-02-23》 https://t.me/daily_read 
+
+1. 【女性友谊可以成为化解N号房悲剧的解药】http://mp.weixin.qq.com/s?__biz=MzI2ODcxNzA3OQ==&amp;mid=2247484266&amp;idx=1&amp;sn=e36d18175fa9b88c182fef977bca2e50
+
+2. 【请不要再打着“照顾”的名号，来歧视女性了！】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247529370&amp;idx=1&amp;sn=572514f4a55805e1607be82382c9caef
+
+3. 【被离婚限购令“误伤”的女人：离婚不惨，可是离婚不能买房很惨】https://mp.weixin.qq.com/s/WQ4cNyrBJ05lngTq3jEqnw
+
+4. 【拒绝中年大叔的求爱后，我持续被跟踪、偷窥、网爆了三年…】https://www.douban.com/note/794975337
+
+5. 【称叶嘉莹“先生”，算不算歧视女性？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247529326&amp;idx=1&amp;sn=f40b66ab299e63a8400218d1aac34224
