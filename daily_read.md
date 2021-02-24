@@ -16444,3 +16444,17 @@ https://www.wainao.me/wainao-reads/fea-wechat-02072021
 
 【【科普】【反对过度减...】
 【科普】【反对过度减肥】 1. 你的身体不需要保健品来帮忙排毒。 2. （如果你是一个健康人的话）你的肝肾胆皮肺会负责排出你身体中的毒素。 3. 是的，我们常常会接触有毒物质，比如重金属或污染物。有时这些物质会累积在我们体内。 保健品行业宣称任何量级的外来物质都会对人体产生损害。这种说法是没有科学依据的。 4. 实验证明，节食48小时，对健康年轻女性来说，会造成皮质醇升高。 皮质醇（一种应激激素），会刺激食欲，帮助增重。 总的来说，排毒节食法会给人的精神和身体带来压力。 3. 排毒节食法会造成疲惫，头痛，恶心，失眠，焦虑，颤抖。保健品宣称这些症状代表“毒素离开身体”。这是在骗人。 4. 将食物与罪恶，羞耻，污染相联系，很可能会破坏当事人对营养的认知。 5. 排毒保健没有科学依据。 6. 多喝水。多吃纤维类食物。 7. 食物没有毒。节食行业才有毒。 https://www.facebook.com/transarmy/posts/267216644773521
+
+=======
+
+《每日文章精选 2021-02-24》 https://t.me/daily_read 
+
+1. 【女性友谊可以成为化解N号房悲剧的解药】http://mp.weixin.qq.com/s?__biz=MzI2ODcxNzA3OQ==&amp;mid=2247484266&amp;idx=1&amp;sn=e36d18175fa9b88c182fef977bca2e50
+
+2. 【【招聘】性别教育不能没你！】https://mp.weixin.qq.com/s/J1vA9sjIW-GJFqodAw-DHA
+
+3. 【男人可以为支持女权主义做到的35件实事】https://mp.weixin.qq.com/s?__biz=MzAxNjA0NjI0MA==&amp;mid=2649856157&amp;idx=1&amp;sn=a85a178c74fdd53cdd748675d9a33b87
+
+4. 【我在大众点评写点评，结果却被恶意点评了】https://mp.weixin.qq.com/s/AFjM0w3i6Ke1wxHfjceERQ
+
+5. 【请不要再打着“照顾”的名号，来歧视女性了！】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247529370&amp;idx=1&amp;sn=572514f4a55805e1607be82382c9caef
