@@ -16594,3 +16594,17 @@ https://www.wainao.me/wainao-reads/fea-wechat-02072021
 
 【【电台】言说、行动、铭记：“正确的集体记忆”外，属于我们每个人的疫情记忆 - 未被纪录的Ta们 (%40ncov2019stats)】
 https://matters.news/%40ncov2019stats/%25E7%2594%25B5%25E5%258F%25B0-%25E8%25A8%2580%25E8%25AF%25B4-%25E8%25A1%258C%25E5%258A%25A8-%25E9%2593%25AD%25E8%25AE%25B0-%25E6%25AD%25A3%25E7%25A1%25AE%25E7%259A%2584%25E9%259B%2586%25E4%25BD%2593%25E8%25AE%25B0%25E5%25BF%2586-%25E5%25A4%2596-%25E5%25B1%259E%25E4%25BA%258E%25E6%2588%2591%25E4%25BB%25AC%25E6%25AF%258F%25E4%25B8%25AA%25E4%25BA%25BA%25E7%259A%2584%25E7%2596%25AB%25E6%2583%2585%25E8%25AE%25B0%25E5%25BF%2586-bafyreigzjivadq46nbjv5mbo6oxsdomubj22jxqo6qlraw7zcm3vkdo4iq
+
+=======
+
+《每日文章精选 2021-02-27》 https://t.me/daily_read 
+
+1. 【性别、性还是女性气质？竞技体育性别测试测什么？】https://mp.weixin.qq.com/s?__biz=MzA4Nzc3MDIxMA==&mid=2247484340&idx=1&sn=1b8d7c6f22570b16c8e7cac1ef9e3b2c
+
+2. 【首先，我们不认为存在生理性别 ｜跨儿中心回应】https://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652152140&amp;idx=1&amp;sn=a35d15f4110651eed11d1c23fa5a3aef
+
+3. 【【招聘】性别教育不能没你！】https://mp.weixin.qq.com/s/J1vA9sjIW-GJFqodAw-DHA
+
+4. 【男人可以为支持女权主义做到的35件实事】https://mp.weixin.qq.com/s?__biz=MzAxNjA0NjI0MA==&amp;mid=2649856157&amp;idx=1&amp;sn=a85a178c74fdd53cdd748675d9a33b87
+
+5. 【我在大众点评写点评，结果却被恶意点评了】https://mp.weixin.qq.com/s/AFjM0w3i6Ke1wxHfjceERQ
