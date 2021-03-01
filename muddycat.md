@@ -2074,3 +2074,17 @@ https://telegra.ph/%E5%8A%B2%E5%A4%AB%E4%B9%8B%E5%A4%96%E7%88%B6%E6%9D%83%E5%8E%
 今天听到一个问题：网络如何塑造男性气质？（以及，塑造了什么样的男性气质？）
 
 大家有什么答案么~~
+
+=======
+
+【Business Insider】【为什么有才华，有能力女性更容易陷入有毒的伴侣关系】
+
+1. 她们总想在关系中做的更好，以修复关系。
+
+2. 有毒的伴侣会盯上有能力的女性，因为她们有可以被榨取的资本/关爱。
+
+https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-For-Toxic-Partners-03-01 
+
+我想给这条下面加个提示，比如怎么识别/离开有毒的关系。但没找到什么好资料。。。。
+
+大家有什么资料推荐吗？
