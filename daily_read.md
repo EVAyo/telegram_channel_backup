@@ -16724,3 +16724,17 @@ https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
 
 【【科普】【反对过度减...】
 【科普】【反对过度减肥】 1. 你的身体不需要保健品来帮忙排毒。 2. （如果你是一个健康人的话）你的肝肾胆皮肺会负责排出你身体中的毒素。 3. 是的，我们常常会接触有毒物质，比如重金属或污染物。有时这些物质会累积在我们体内。 保健品行业宣称任何量级的外来物质都会对人体产生损害。这种说法是没有科学依据的。 4. 实验证明，节食48小时，对健康年轻女性来说，会造成皮质醇升高。 皮质醇（一种应激激素），会刺激食欲，帮助增重。 总的来说，排毒节食法会给人的精神和身体带来压力。 3. 排毒节食法会造成疲惫，头痛，恶心，失眠，焦虑，颤抖。保健品宣称这些症状代表“毒素离开身体”。这是在骗人。 4. 将食物与罪恶，羞耻，污染相联系，很可能会破坏当事人对营养的认知。 5. 排毒保健没有科学依据。 6. 多喝水。多吃纤维类食物。 7. 食物没有毒。节食行业才有毒。 https://www.facebook.com/transarmy/posts/267216644773521
+
+=======
+
+《每日文章精选 2021-03-02》 https://t.me/daily_read 
+
+1. 【女性主义VS多元文化主义：女权主义者如何面对少数族群中的男权主张？】https://mp.weixin.qq.com/s/mNLkgThZCUGslIjtt1MjyA
+
+2. 【理性客观中立，有问题】https://mp.weixin.qq.com/s/GRXq2EShz2Wf9BiWgjwH2g
+
+3. 【性别、性还是女性气质？竞技体育性别测试测什么？】https://mp.weixin.qq.com/s?__biz=MzA4Nzc3MDIxMA==&mid=2247484340&idx=1&sn=1b8d7c6f22570b16c8e7cac1ef9e3b2c
+
+4. 【首先，我们不认为存在生理性别 ｜跨儿中心回应】https://mp.weixin.qq.com/s?__biz=MzIxNDE2MjM2Mw==&amp;mid=2652152140&amp;idx=1&amp;sn=a35d15f4110651eed11d1c23fa5a3aef
+
+5. 【男性女权主义者如何在性别平权运动中自处 —— 从法大卫生巾互助活动谈起】https://mp.weixin.qq.com/s/u_BRIv-i18W46q49FEHa-g
