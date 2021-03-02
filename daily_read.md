@@ -16772,3 +16772,17 @@ https://philomedium.com/blog/81420 https://philomedium.com/blog/81471
 
 【My stroke of insight】
 https://www.ted.com/talks/jill_bolte_taylor_my_stroke_of_insight
+
+=======
+
+《每日文章精选 2021-03-02》 https://t.me/daily_read 
+
+1. 【「宅男无罪」：《生活大爆炸》的性别陷阱】https://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&mid=2649763089&idx=1&sn=f959362e73da4d5dbd8db3eb1c67c77e&scene=19#wechat_redirect
+
+2. 【女性主义VS多元文化主义：女权主义者如何面对少数族群中的男权主张？】https://mp.weixin.qq.com/s/mNLkgThZCUGslIjtt1MjyA
+
+3. 【理性客观中立，有问题】https://mp.weixin.qq.com/s/GRXq2EShz2Wf9BiWgjwH2g
+
+4. 【校园里的隐形人：美国同性恋教师的身份管理】https://mp.weixin.qq.com/s/m9qVnjTI5MneBk98ZwSCbw
+
+5. 【离开还是留下？我们试图在豆瓣劝分小组找寻婚恋关系的万灵药】https://www.douban.com/note/778795599
