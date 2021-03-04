@@ -16854,3 +16854,17 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 【史上最低调的诺贝尔颁...】
 史上最低调的诺贝尔颁奖 伯克利诺奖日 (2020) #水山汉化# 1 2020年化学奖授予发现CRISPR-CAS9的2位女科学家 2 这大概是诺奖历史上最低调的授奖仪式，在得奖人家后院进行 3 到场的只有包括丈夫儿子的11人，简短仪式后吃的是外卖 http://m.weibo.cn/status/K2WgmaQBH
+
+=======
+
+《每日文章精选 2021-03-04》 https://t.me/daily_read 
+
+1. 【反对一切形式的高考招生性别歧视，她们寄出了建议信】https://mp.weixin.qq.com/s/Th-IkMEYD-p5CgqkvmJ2GA
+
+2. 【「宅男无罪」：《生活大爆炸》的性别陷阱】https://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&mid=2649763089&idx=1&sn=f959362e73da4d5dbd8db3eb1c67c77e&scene=19#wechat_redirect
+
+3. 【女性主义VS多元文化主义：女权主义者如何面对少数族群中的男权主张？】https://mp.weixin.qq.com/s/mNLkgThZCUGslIjtt1MjyA
+
+4. 【理性客观中立，有问题】https://mp.weixin.qq.com/s/GRXq2EShz2Wf9BiWgjwH2g
+
+5. 【校园里的隐形人：美国同性恋教师的身份管理】https://mp.weixin.qq.com/s/m9qVnjTI5MneBk98ZwSCbw
