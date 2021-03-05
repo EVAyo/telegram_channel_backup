@@ -16871,4 +16871,14 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 =======
 
-每日文章精选
+《每日文章精选 2021-03-05》 https://t.me/daily_read 
+
+1. 【反对一切形式的高考招生性别歧视，她们寄出了建议信】https://mp.weixin.qq.com/s/Th-IkMEYD-p5CgqkvmJ2GA
+
+2. 【「宅男无罪」：《生活大爆炸》的性别陷阱】https://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&mid=2649763089&idx=1&sn=f959362e73da4d5dbd8db3eb1c67c77e&scene=19#wechat_redirect
+
+3. 【江宏杰这是活生生的“软饭硬吃”吗？】https://mp.weixin.qq.com/s/Y9C8ZrtJ3TKc6191ru4gDA
+
+4. 【“女权主义”五问：为什么不叫平权？田园女权这个词有什么不合适？】https://mp.weixin.qq.com/s?__biz=MzU1NTQ1MjM3Ng==&amp;mid=2247493934&amp;idx=1&amp;sn=be3fc2d26fe2a5b96bbbe07459631d9c
+
+5. 【校园里的隐形人：美国同性恋教师的身份管理】https://mp.weixin.qq.com/s/m9qVnjTI5MneBk98ZwSCbw
