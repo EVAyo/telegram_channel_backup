@@ -16964,3 +16964,17 @@ https://mp.weixin.qq.com/s/Y9C8ZrtJ3TKc6191ru4gDA
 
 【八十年代韓國勞工的困境，在二十一世紀重新上演了嗎？】
 尽管一般认为，1987年韩国开启了民主化转型的道路。但一切还在变化中。针对空前团结的工人势力，当时的韩国资本家，在从草根运动中走出的左翼自由主义民选政治家的帮助下，实施了改革。中产知识分子与过去的工人分化了，连工人内部也出现了分化。 对于一些在过去参与到民主化运动中来的知识分子来说，拥有组建自由主义政党的自由，和不受军警打击的自由就是他们的最后目标。因而他们很快脱离了劳工运动，投入到其它也具有进步性质、但更为温和的市民运动当中去。还有一些386世代背弃过去的承诺，在上台后继续推行损害草根利益的政策。 https://theinitium.com/article/20200215-opinion-labor-movement-korea-history
+
+=======
+
+《每日文章精选 2021-03-07》 https://t.me/daily_read 
+
+1. 【中国女性地位够高了吗？】https://mp.weixin.qq.com/s/8Sqd2g1pSH4MvK_QfN8Dvw
+
+2. 【江宏杰这是活生生的“软饭硬吃”吗？】https://mp.weixin.qq.com/s/Y9C8ZrtJ3TKc6191ru4gDA
+
+3. 【“女权主义”五问：为什么不叫平权？田园女权这个词有什么不合适？】https://mp.weixin.qq.com/s?__biz=MzU1NTQ1MjM3Ng==&amp;mid=2247493934&amp;idx=1&amp;sn=be3fc2d26fe2a5b96bbbe07459631d9c
+
+4. 【反对一切形式的高考招生性别歧视，她们寄出了建议信】https://mp.weixin.qq.com/s/Th-IkMEYD-p5CgqkvmJ2GA
+
+5. 【校园里的隐形人：美国同性恋教师的身份管理】https://mp.weixin.qq.com/s/m9qVnjTI5MneBk98ZwSCbw
