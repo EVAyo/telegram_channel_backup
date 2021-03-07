@@ -2088,3 +2088,9 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 我想给这条下面加个提示，比如怎么识别/离开有毒的关系。但没找到什么好资料。。。。
 
 大家有什么资料推荐吗？
+
+=======
+
+好奇一下，用简中reddit群体大吗？大致是什么样的人？
+
+我想在reddit上开启一些平权相关的讨论，不知道可不可行~
