@@ -17015,4 +17015,14 @@ https://www.wainao.me/wainao-reads/fea-wechat-02072021
 
 =======
 
-每日文章精选
+《每日文章精选 2021-03-08》 https://t.me/daily_read 
+
+1. 【中国女性地位够高了吗？】https://mp.weixin.qq.com/s/8Sqd2g1pSH4MvK_QfN8Dvw
+
+2. 【多少女性科学家被隐姓埋名，连致谢里都不曾有她们的名字】https://mp.weixin.qq.com/s?__biz=MTg1MjI3MzY2MQ==&amp;mid=2651790849&amp;idx=1&amp;sn=ad5821cb5c7e93e0abc94f881a94c2e1
+
+3. 【自治区的女性教育机会均等，谁做得最差？】https://www.douban.com/note/796285807
+
+4. 【江宏杰这是活生生的“软饭硬吃”吗？】https://mp.weixin.qq.com/s/Y9C8ZrtJ3TKc6191ru4gDA
+
+5. 【“女权主义”五问：为什么不叫平权？田园女权这个词有什么不合适？】https://mp.weixin.qq.com/s?__biz=MzU1NTQ1MjM3Ng==&amp;mid=2247493934&amp;idx=1&amp;sn=be3fc2d26fe2a5b96bbbe07459631d9c
