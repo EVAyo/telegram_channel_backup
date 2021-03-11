@@ -17142,3 +17142,17 @@ https://www.wainao.me/wainao-reads/Xinjiang-cotton-12222020
 
 【【你经历过或听说过的...】
 【你经历过或听说过的最荒诞的真实事件】 还是想再说一下蛋壳公寓的事，蛋壳这个事估计我能记一辈子。 昨天周末本来心情很好，想去故宫附近逛一逛，结果发现自己还因蛋壳受害者的身份在安检的“黑名单”上，刷身份证会显示“请等待”，还有有专人过来排查盘问，问我是不是还租房呢，房子怎么样了。我就挺生气的，说你们还真TM能查出来啊（当时我就对安检爆粗了），我说房子还住着呢，最近没有产生纠纷什么的，然后对我单独安检了一遍放我过去了。 其实去年就听说有安检对蛋壳受害者的区别对待，没想到几个月过去了，我们还在名单上。 http://www.douban.com/people/156609716/status/3324873472
+
+=======
+
+《每日文章精选 2021-03-10》 https://t.me/daily_read 
+
+1. 【从一起性侵谋杀案中死里逃生｜三明治】https://mp.weixin.qq.com/s/UF6IZXJPQxTAmAZNGEkI_A
+
+2. 【左翼自由主义者在当代中国：如何思考？如何行动？】https://mp.weixin.qq.com/s?__biz=MzIzNzcwMjI5OQ==&mid=2247483868&idx=1&sn=3ffc1fd0abd36eb9979a9f44080862d8
+
+3. 【《无声》：当性暴力，在特教学校“蔓延”】https://mp.weixin.qq.com/s/w3JHqQQSOvtpbibwOOIvsw
+
+4. 【“我不想做爱，不是有病，也不需要强奸来治疗”】https://mp.weixin.qq.com/s/ca1QWT1b1YDCquGYW5gtBQ
+
+5. 【圆人转载 | 她为什么要烧毁“女生节”横幅？】https://mp.weixin.qq.com/s/yIzREnzUGwxucWp2irBGfg
