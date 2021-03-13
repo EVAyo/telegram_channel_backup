@@ -2094,3 +2094,7 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 好奇一下，用简中reddit群体大吗？大致是什么样的人？
 
 我想在reddit上开启一些（中文）平权相关的讨论，不知道可不可行~
+
+=======
+
+不知道 Tumblr 上有中文圈子吗？大概是怎么样的？
