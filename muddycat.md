@@ -2098,3 +2098,9 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 =======
 
 不知道 Tumblr 上有中文圈子吗？大概是怎么样的？
+
+=======
+
+问一个问题哦，据说英文世界的交友app里，很多人会写 no asian
+
+那这个是歧视吗？
