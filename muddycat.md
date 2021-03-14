@@ -2112,3 +2112,9 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 这个形式有帮助交流吗？
 
 还是只是让大家在需要发长文的时候，多一步做成图片的麻烦？
+
+=======
+
+对了，女权之声的创始人冯媛是个什么样的人？为什么网上我找不太到她的资料？
+
+倒是吕频的资料很多。。。
