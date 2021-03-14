@@ -2104,3 +2104,11 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 问一个问题哦，据说英文世界的交友app里，很多人会写 no asian
 
 那这个是歧视吗？
+
+=======
+
+大家怎么看推特的140字限制？
+
+这个形式有帮助交流吗？
+
+还是只是让大家在需要发长文的时候，多一步做成图片的麻烦？
