@@ -2118,3 +2118,11 @@ https://telegra.ph/The-Truth-About-Why-Intelligent-High-Performing-Women-Fall-Fo
 对了，女权之声的创始人冯媛是个什么样的人？为什么网上我找不太到她的资料？
 
 倒是吕频的资料很多。。。
+
+=======
+
+https://mp.weixin.qq.com/s?__biz=MzAwNjY1NzM5MA==&amp;mid=2650721240&amp;idx=1&amp;sn=97f2eed3e709ebf3dea865235d1290ed
+
+大家对这篇怎么看
+
+引申的一个问题是，大家对麦金农如何评价？
