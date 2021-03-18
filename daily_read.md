@@ -17395,20 +17395,6 @@ https://mp.weixin.qq.com/s/Ke5z-L9MylB3XZt8gmKS2w
 
 1. 【和妈妈的一次聊天】https://www.douban.com/note/796417566
 
-2. 【在中国，「阴道」说什么】https://mp.weixin.qq.com/s/3maBA6BwBSMfdmbmYwTdDQ
-
-3. 【“月经迟迟未来后，我却没有验孕的勇气”】https://mp.weixin.qq.com/s/Mhn0lA5K8jfsaE-Y4Kf8Uw
-
-4. 【“iPad猎巫”事件下，是针对女性的三重暴力】http://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247530461&amp;idx=1&amp;sn=adb6c454c69af00e4eebbedb7a6f7a8a
-
-5. 【亚洲首个国家：日本法院裁定禁止同性婚姻违宪】https://mp.weixin.qq.com/s?__biz=MzkyOTE2NzE2MA==&amp;mid=2247483884&amp;idx=1&amp;sn=10f342555236c35b9ad02af83c043a8c
-
-=======
-
-《每日文章精选 2021-03-17》 https://t.me/daily_read 
-
-1. 【和妈妈的一次聊天】https://www.douban.com/note/796417566
-
 2. 【意难平，高考分数男女相差155分|谈招生性别歧视【有点田园】ep49】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247486924&amp;idx=1&amp;sn=b6e8da832183af5070deaae945d1e9d0
 
 3. 【在中国，「阴道」说什么】https://mp.weixin.qq.com/s/3maBA6BwBSMfdmbmYwTdDQ
@@ -17450,3 +17436,17 @@ https://mp.weixin.qq.com/s/3maBA6BwBSMfdmbmYwTdDQ
 
 【宫颈柱状上皮异位，在...】
 宫颈柱状上皮异位，在过去被称为“宫颈糜烂”，它只是雌激素水平上升引起的生理性变化，是非常正常的表现，压根不是病，也不需要治疗。 如果觉得身体不舒服，怀疑有宫颈炎或宫颈癌，请直接去正规医院做检查。但是如果有医生告诉你说你糜烂了需要治疗，最好的方法就是：换个医生。 https://m.weibo.cn/status/K6zLheNZg
+
+=======
+
+《每日文章精选 2021-03-18》 https://t.me/daily_read 
+
+1. 【【学人专题】苏熠慧 洪磊 | 交叉性视角下的男售货员性别气质分析——以上海市两家品牌店为例】https://mp.weixin.qq.com/s?__biz=MzAwNjY1NzM5MA==&amp;mid=2650721170&amp;idx=5&amp;sn=7170cbf7ba30609be356b5fab8559b14
+
+2. 【一度由女性主导的啤酒业是如何被女巫指控中断的？】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247504627&amp;idx=1&amp;sn=7bdfdace5dee39f95f05c6ba7dafabc7
+
+3. 【意难平，高考分数男女相差155分|谈招生性别歧视【有点田园】ep49】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247486924&amp;idx=1&amp;sn=b6e8da832183af5070deaae945d1e9d0
+
+4. 【在中国，「阴道」说什么】https://mp.weixin.qq.com/s/3maBA6BwBSMfdmbmYwTdDQ
+
+5. 【“月经迟迟未来后，我却没有验孕的勇气”】https://mp.weixin.qq.com/s/Mhn0lA5K8jfsaE-Y4Kf8Uw
