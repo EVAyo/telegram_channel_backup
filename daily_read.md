@@ -17518,3 +17518,17 @@ https://telegra.ph/2021-03-18-%25E6%2599%259A%25E6%258A%25A5%25E4%25B8%259C%25E4
 
 【#妇产科的人间冷暖#...】
 #妇产科的人间冷暖# 第6期 产科有一种病房叫：高危病房。 通常都是存在高危因素需要住院的孕妇才需要住进高危病房，所以在高危病房可以看到很多人间冷暖，而且有时候医生不仅可以看到，还有可能需要参与其中……但是医患之间的边界到底在哪里呢？ 这次给大家分享一位在孕期下面长出「笋」样赘生物的孕妇，通过她的情况让我们一起探讨病例背后的思考。 我是六层楼，我爱这个世界。 #春季健康讲堂# https://m.weibo.cn/status/K6Tvmwckz
+
+=======
+
+《每日文章精选 2021-03-19》 https://t.me/daily_read 
+
+1. 【【学人专题】苏熠慧 洪磊 | 交叉性视角下的男售货员性别气质分析——以上海市两家品牌店为例】https://mp.weixin.qq.com/s?__biz=MzAwNjY1NzM5MA==&amp;mid=2650721170&amp;idx=5&amp;sn=7170cbf7ba30609be356b5fab8559b14
+
+2. 【属于女性的城市使用权，请还给她们】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247530556&amp;idx=1&amp;sn=e960598b19946b58fa10b8d7c22c7931
+
+3. 【一度由女性主导的啤酒业是如何被女巫指控中断的？】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247504627&amp;idx=1&amp;sn=7bdfdace5dee39f95f05c6ba7dafabc7
+
+4. 【意难平，高考分数男女相差155分|谈招生性别歧视【有点田园】ep49】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247486924&amp;idx=1&amp;sn=b6e8da832183af5070deaae945d1e9d0
+
+5. 【在中国，「阴道」说什么】https://mp.weixin.qq.com/s/3maBA6BwBSMfdmbmYwTdDQ
