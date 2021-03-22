@@ -17648,3 +17648,17 @@ https://telegra.ph/2021-03-20-%25E5%25B0%258F%25E7%25AB%25AF%25E7%25BD%2591%25E7
 
 【火烈鸟可以喝沸腾的水】
 火烈鸟可以喝沸腾的水 火烈鸟所居住的大多数湖中盐分含量都很高，对一些火烈鸟来说唯一的淡水来源是热间隙泉，它们可以喝下温度接近沸点的水，同时特殊坚韧的皮肤和腿上的鳞屑可防止灼伤。 https://m.weibo.cn/status/K72y2w7bZ
+
+=======
+
+《每日文章精选 2021-03-22》 https://t.me/daily_read 
+
+1. 【盆底肌修复：性别和阶层的身体战场】https://mp.weixin.qq.com/s?__biz=MzI2MDA1OTQwNg==&amp;mid=2649768910&amp;idx=1&amp;sn=d22ae3b16a78f26184842bb3e8aade19
+
+2. 【属于女性的城市使用权，请还给她们】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247530556&amp;idx=1&amp;sn=e960598b19946b58fa10b8d7c22c7931
+
+3. 【【学人专题】苏熠慧 洪磊 | 交叉性视角下的男售货员性别气质分析——以上海市两家品牌店为例】https://mp.weixin.qq.com/s?__biz=MzAwNjY1NzM5MA==&amp;mid=2650721170&amp;idx=5&amp;sn=7170cbf7ba30609be356b5fab8559b14
+
+4. 【一度由女性主导的啤酒业是如何被女巫指控中断的？】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&amp;mid=2247504627&amp;idx=1&amp;sn=7bdfdace5dee39f95f05c6ba7dafabc7
+
+5. 【意难平，高考分数男女相差155分|谈招生性别歧视【有点田园】ep49】http://mp.weixin.qq.com/s?__biz=MzU5ODY5ODA1MA==&amp;mid=2247486924&amp;idx=1&amp;sn=b6e8da832183af5070deaae945d1e9d0
