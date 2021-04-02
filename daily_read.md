@@ -18122,3 +18122,17 @@ https://opinion.udn.com/opinion/story/120732/5358889
 
 【【美国历史】罗伯特·...】
 【美国历史】罗伯特·萧上校出生于波士顿一个废奴主义家庭。 南北战争期间，罗伯特的父亲筹组了美国历史上第一个黑人部队，由罗伯特任指挥官。任职期间，罗伯特曾带领他的军队，抗议联邦政府对黑人士兵的粮饷歧视。 1863年7月18日，华格纳堡攻防战，罗伯特身中三弹，当场死亡。 战役结束后，南方邦联向北方归还了其他所有白人军官的尸体，但将罗伯特与他手下的黑人士兵埋在了当地，作为一种侮辱。 对此，罗伯特的父亲说：「罗伯特能和勇敢的黑人士兵长眠在一起，是一种荣耀，也是我们家人所期望的。」 https://www.facebook.com/HistoryHustle/photos/a.1718941751709144/2945826869020620
+
+=======
+
+《每日文章精选 2021-04-02》 https://t.me/daily_read 
+
+1. 【以法作盾，家暴受害者们得到保护了吗？丨反家暴法五周年】https://mp.weixin.qq.com/s/bEm3VEqHj15NuSpo0FGvVA
+
+2. 【纪念第12个跨性别现身日】https://mp.weixin.qq.com/s/9mSU41NnIip5lfSFsMbe2w
+
+3. 【又一个女性遇害，他们却把“不是所有男人”推上热搜】https://mp.weixin.qq.com/s/CjyEHr4fjVel-FWy0GZXYA
+
+4. 【我的抑郁症，与女本柔弱无关】https://mp.weixin.qq.com/s/NXadDjSOYck-nYzbPWKCoA
+
+5. 【作为一名「男性女权主义者」，是什么体验？】https://mp.weixin.qq.com/s/jSiV8STRANWBoFbF3B1lIg
