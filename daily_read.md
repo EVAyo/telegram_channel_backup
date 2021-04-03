@@ -18204,3 +18204,17 @@ Vol.166【人群踩踏保命指南】 计算机仿真模拟如何发现踩踏事
 
 https://%E3%80%90telegra.ph...%E3%80%91
 https://mp.weixin.qq.com/s/bEm3VEqHj15NuSpo0FGvVA
+
+=======
+
+《每日文章精选 2021-04-03》 https://t.me/daily_read 
+
+1. 【179起人身安全保护令：看见家暴受害者的困境】https://mp.weixin.qq.com/s/6p3Q8rBRPfPH6m4GeoBJaw
+
+2. 【以法作盾，家暴受害者们得到保护了吗？丨反家暴法五周年】https://mp.weixin.qq.com/s/bEm3VEqHj15NuSpo0FGvVA
+
+3. 【纪念第12个跨性别现身日】https://mp.weixin.qq.com/s/9mSU41NnIip5lfSFsMbe2w
+
+4. 【又一个女性遇害，他们却把“不是所有男人”推上热搜】https://mp.weixin.qq.com/s/CjyEHr4fjVel-FWy0GZXYA
+
+5. 【我的抑郁症，与女本柔弱无关】https://mp.weixin.qq.com/s/NXadDjSOYck-nYzbPWKCoA
