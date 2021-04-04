@@ -18252,3 +18252,17 @@ https://www.rfi.fr/cn/%25E6%2594%25BF%25E6%25B2%25BB/20210319-%25E4%25B8%25AD%25
 
 【陈又津／逃难这件事：印尼清共年代，华人颠沛流离的故事】
 https://opinion.udn.com/opinion/story/6785/5344962
+
+=======
+
+《每日文章精选 2021-04-04》 https://t.me/daily_read 
+
+1. 【成为自由职业者后，我与男友却渐进渐远了】https://mp.weixin.qq.com/s/HGOJYxNNw9TEsfM3aWVskQ
+
+2. 【因为反对歧视非洲人，我们被网暴了】https://mp.weixin.qq.com/s/zPGjgmUTmcJ73wQGTG1HyQ
+
+3. 【女孩跳楼后，被性侵案摧毁的家庭｜谷雨】https://www.douban.com/note/797569862
+
+4. 【【安利贴】月经杯使用一周年pros & cons总结】https://www.douban.com/note/799200753
+
+5. 【179起人身安全保护令：看见家暴受害者的困境】https://mp.weixin.qq.com/s/6p3Q8rBRPfPH6m4GeoBJaw
