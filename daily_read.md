@@ -18464,3 +18464,37 @@ http://www.douban.com/people/1071517/status/3380879472
 
 【【日本：承认同性伴侣...】
 【日本：承认同性伴侣的地区增加到100个，高中教科书介绍同性婚姻】日本发同性伴侣证书的地区在继续增多，到4月1日为止，总计已有100个地方政府实行承认同性伴侣的伴侣宣誓证书制度，这些地区覆盖了超过三分之一的全国人口。近日又有多个地区开始实行伴侣证书制度，例如东京都的足立区以及其它多个城市，其中有的地区不仅承认同性伴侣，还同时承认同性伴侣与孩子组成的家庭。 另一方面，日本的文部科学省在本周公布了2022年度的高中教科书审定结果，获得通过的这些教科书包含LGBT相关内容，例如，高中一年级使用的家庭基础科目教科书介绍了同性配偶家庭的现实存在，包括列出同性婚姻合法的国家以及介绍同性伴侣关系。在公共或公民科目教科书中，将讲解LGBT、性倾向和性别身份的含义，此外健康、体育等科目的教科书也将有LGBT相关内容。新增这些内容是为了让中学生了解LGBT相关知识、了解社会发展的现实，也促进对不同群体的包容和尊重、减少歧视。 https://weibo.com/2254857871/K9ko6qoyA
+
+=======
+
+每日文章精选
+
+【【与动物的一次奇妙相...】
+【与动物的一次奇妙相遇】 我妈昨天在树旁呆了一下午，领雀嘴鹎吃樱桃 🍒 http://www.douban.com/people/60583222/status/3382125028
+
+【所有年轻人，无论ta...】
+所有年轻人，无论ta的性向如何，都应该得到保护和支持，以充分发挥ta的潜力。 https://www.facebook.com/photo?fbid=10216664988130389&set=gm.946446186118293 【注】哈维·米尔克是美国政坛中第一位公开同性恋身份的政治人物。他在1978年1月8日就任旧金山市市议员。1978年11月27日，哈维被射杀身亡。
+
+【气候异常令针对女性的暴力加剧】
+https://matters.news/%40globalmonitor/%25E6%25B0%25A3%25E5%2580%2599%25E7%2595%25B0%25E5%25B8%25B8%25E4%25BB%25A4%25E9%2587%259D%25E5%25B0%258D%25E5%25A5%25B3%25E6%2580%25A7%25E7%259A%2584%25E6%259A%25B4%25E5%258A%259B%25E5%258A%25A0%25E5%258A%2587-bafyreiakzf2kp5u7yhiky4cidy3pisg2stpniddghok4ccrivibbbvbjfu
+
+【陈又津／逃难这件事：印尼清共年代，华人颠沛流离的故事】
+https://opinion.udn.com/opinion/story/6785/5344962
+
+【包括伊顿在内的几十所...】
+包括伊顿在内的几十所上流私立中学，集体被曝盛行校园“强奸文化”，还收到5000余条性侵指控，引爆英国舆论，彻底打碎了精英滤镜…… https://m.weibo.cn/status/Ka0slDuZJ
+
+【意大利宣布，废除电影...】
+意大利宣布，废除电影审查制度。以后电影制作者只需根据观众年龄对电影分级，意政府不再有权禁止电影上映或对电影进行编辑更改。意文化部长称，“允许国家干预艺术家自由的管控制度将被彻底废止。” https://m.weibo.cn/status/K9XVXFKcr https://www.france24.com/en/live-news/20210406-final-curtain-for-italian-film-censorship
+
+【【打动过你的现代艺术...】
+【打动过你的现代艺术作品】 德国某小镇，广场上摆满了女性受害者的红鞋子，每一双鞋下面写着她们的名字，年龄，遇害时间以及施暴者的信息。 这其中绝大多数施暴者是女生的丈夫/男友/前任。 http://www.douban.com/people/2072047/status/3367994600
+
+【愤怒是你的一部分。愤...】
+愤怒是你的一部分。愤怒是在提醒你，你受到的对待是不公正、不可接受的。 你的愤怒明白你应该被温柔而公正的对待，它爱你。 https://www.facebook.com/alliesacademy/photos/a.1830296213932952/2519557408340159 【注】这条推文是基于推主的个人经历而写。推主之后也指出，愤怒不能用作伤害他人的借口。
+
+【source】
+http://www.douban.com/people/1071517/status/3380879472
+
+【#英国】
+?q=%23%E8%8B%B1%E5%9B%BD ?q=%23%E5%8C%97%E7%88%B1%E5%B0%94%E5%85%B0 ?q=%23%E6%8A%97%E8%AE%AE ?q=%23%E8%84%B1%E6%AC%A7 ?q=%23%E7%BA%B5%E7%81%AB 【英国北爱尔兰骚乱持续六天，40多名警察受伤 】 当地时间7日晚 https://telete.in/bigcrowdev 英国北爱尔兰首府贝尔法斯特再次发生严重骚乱。示威者大闹街头 不仅抢劫公交车后纵火，还向警察扔石块和汽油弹。 此前几天，在该市发生的暴乱已造成40余名警察受伤，9人被捕，包括一名13岁男孩。 英国“脱欧”后 北爱尔兰与英国本土之间出现新的贸易壁垒 引发北爱尔兰地区亲英民众的强烈抗议。 此外 警方2日决定不起诉涉嫌违反防疫规定的爱尔兰民族主义政党“新芬党”领导人，也导致局势进一步紧张。 7日，数十名亲英派示威者走上街头，与上百名亲爱尔兰派示威者对峙 双方互掷燃烧瓶。警察稍后赶到现场，也成为袭击对象。( https://www.thepaper.cn/newsDetail_forward_12100170 )( http://www.chinanews.com/gj/2021/04-08/9450355.shtml ) 相关报道 21-04-05 【N Ireland sees 3rd night of unrest amid post-Brexit tensions】 - https://apnews.com/article/brexit-belfast-ireland-police-northern-ireland-815eafa49c6232ee807356feaa6474b0 21-04-07 【Bus torched in more Northern Ireland violence as British and Irish leaders call for calm】 - https://edition.cnn.com/2021/04/07/europe/northern-ireland-belfast-riots-intl-hnk/index.html
