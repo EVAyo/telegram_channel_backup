@@ -18532,3 +18532,17 @@ http://www.douban.com/people/1071517/status/3380879472
 
 【【老照片里的中国】】
 【老照片里的中国】 二我轩照相馆出品 杭州1911（AI上色） http://www.douban.com/people/3402721/status/3381983137
+
+=======
+
+《每日文章精选 2021-04-09》 https://t.me/daily_read 
+
+1. 【大车司机服毒自尽，为什么“北斗掉线”成了他们的噩梦？】https://mp.weixin.qq.com/s/KIMVEyGQGuelSLIPoBLKPQ
+
+2. 【生孩子的感受：痛、很痛、十级痛、痛不欲生、痛裂天灵盖】https://mp.weixin.qq.com/s/Lo5Zxvom2VdMjn-qNuNTiA
+
+3. 【波兰设计师用卡尔维诺的小说做了个数据可视化】https://www.douban.com/note/795967475
+
+4. 【被曝光的内衣店下架了，但性化儿童的产业还在继续】https://mp.weixin.qq.com/s/6hdg9xG5iHPZTOgh3kNRUg
+
+5. 【轻描淡写的苦难，是对“我的姐姐们”的不尊重】https://mp.weixin.qq.com/s/v0KHQYYI-T6VPuAqMHRsUg
