@@ -18682,3 +18682,17 @@ https://www.guokr.com/article/456891
 
 【又是一年樱花季，不如...】
 又是一年樱花季，不如出门和猫咪们一起赏花吧 https://m.weibo.cn/status/KaicW9PWQ
+
+=======
+
+《每日文章精选 2021-04-13》 https://t.me/daily_read 
+
+1. 【自爱还是自爱，写一下我们和他们的黑历史】https://www.douban.com/note/688768892
+
+2. 【上百万女孩被男友性侵，没有人相信，没有人关注】https://mp.weixin.qq.com/s/NM_pzdAsZOpg0NTrIOfL2w
+
+3. 【肖美丽：成为“公敌”的第十二天】https://mp.weixin.qq.com/s/9N4wdIHKO3-1zet9VYPKvA
+
+4. 【快手上的新城市打工人】https://mp.weixin.qq.com/s/VVinL0x5WmDdbzf1Qg7IdA
+
+5. 【生孩子的感受：痛、很痛、十级痛、痛不欲生、痛裂天灵盖】https://mp.weixin.qq.com/s/Lo5Zxvom2VdMjn-qNuNTiA
