@@ -2216,3 +2216,7 @@ https://telegra.ph/%E5%B8%9D%E5%9B%BD%E5%9B%9E%E6%97%8B%E9%95%96%E6%95%88%E5%BA%
 4. 宣传要多用工人，而不是外部人员。
 
 https://www.thenation.com/article/activism/bessemer-alabama-amazon-union/tnamp/
+
+=======
+
+为什么法广会和法轮功媒体合作啊。。。
