@@ -18838,3 +18838,17 @@ https://www.douban.com/note/795967475
 
 【鬼打墙：随着中共压制新疆，一位女性挣扎自救（下）】
 https://t.me/MothLib “我有集中营的梦，形式各异，”她告诉我。有时候被关在牢房里。有一次被关在鸡笼。还有一次，在按摩店做按摩，往边上看，看见被囚禁的人，自己还被关着。“差不多有一年时间，我每天都做这样的噩梦，很多次我哭着醒来，害怕至极。这是一种折磨，因为即使你在一个安全的地方，你也不停重复着那段经历。” 上篇： https://telete.in/MothLib/2982
+
+=======
+
+《每日文章精选 2021-04-16》 https://t.me/daily_read 
+
+1. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+
+2. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+
+3. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+
+4. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
+
+5. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
