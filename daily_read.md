@@ -18920,3 +18920,17 @@ Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女�
 
 【【2021豆瓣春季摄...】
 【2021豆瓣春季摄影大赛】 沾花惹草第一名 http://www.douban.com/people/79682679/status/3393111052
+
+=======
+
+《每日文章精选 2021-04-17》 https://t.me/daily_read 
+
+1. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+
+2. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+3. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+
+4. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+
+5. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
