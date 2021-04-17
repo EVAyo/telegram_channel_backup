@@ -18925,12 +18925,114 @@ Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女�
 
 《每日文章精选 2021-04-17》 https://t.me/daily_read 
 
-1. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+1. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
 
-2. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+2. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
 
-3. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+3. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
 
-4. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+4. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
 
-5. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
+5. 【手术日记】https://www.douban.com/note/800030835
+
+=======
+
+《每日文章精选 2021-04-17》 https://t.me/daily_read 
+
+1. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+2. 【Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女儿】https://m.weibo.cn/status/KbkVmcH5v
+
+3. 【英国伦敦反警察法抗议示威超过百人被捕】https://www.thepaper.cn/newsDetail_forward_12052562
+
+4. 【全国多地离婚冷静期数据】https://m.weibo.cn/status/Kb9dKoNM5
+
+5. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+
+6. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+
+7. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
+
+8. 【#96岁摆摊奶奶停止出摊# 太累需要休息】https://m.weibo.cn/status/Kb8EKnDg8
+
+9. 【效果初显！#江苏上万对夫妻冷静期内放弃离婚#】https://m.weibo.cn/status/Kb8vYjbKu
+
+10. 【给大家分享一个来自罗马尼亚的真实恐怖故事，后续的发展也极具戏剧化色彩，谁又能想到呢，包括始作俑者自己】https://m.weibo.cn/status/Kb4za4CAf
+
+11. 【科普：人类有多少种生理性别？】https://m.weibo.cn/status/Kb2linF1W
+
+12. 【科普】https://www.douban.com/note/792256537
+
+13. 【手术日记】https://www.douban.com/note/800030835
+
+14. 【和平协议之后的高加索没有和平】https://www.thepaper.cn/newsDetail_forward_12158205
+
+15. 【讲一个有关快递的故事】https://m.weibo.cn/status/Kb0BcnFCT
+
+16. 【咆哮女王也太会用比喻了吧#金牌译制# source】https://m.weibo.cn/status/Kb1ZMh7Hd
+
+17. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+
+18. 【来自投稿】https://m.weibo.cn/status/KaU6edJnS
+
+19. 【割腕之后，他的卡车没有超重】https://mp.weixin.qq.com/s/XdMGK9g1usmxVG9nexPBPg
+
+20. 【我以前看见那种“拧不开瓶盖要不要让男的帮着拧”的帖子觉得匪夷所思：拧个瓶盖要多大劲儿啊你是不是残废】https://m.weibo.cn/status/KaUyYAWgl
+
+=======
+
+《每日文章精选 2021-04-17》 https://t.me/daily_read 
+
+1. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+2. 【Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女儿】https://m.weibo.cn/status/KbkVmcH5v
+
+3. 【英国伦敦反警察法抗议示威超过百人被捕】https://www.thepaper.cn/newsDetail_forward_12052562
+
+4. 【全国多地离婚冷静期数据】https://m.weibo.cn/status/Kb9dKoNM5
+
+5. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+
+6. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+
+7. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
+
+8. 【#96岁摆摊奶奶停止出摊# 太累需要休息】https://m.weibo.cn/status/Kb8EKnDg8
+
+9. 【效果初显！#江苏上万对夫妻冷静期内放弃离婚#】https://m.weibo.cn/status/Kb8vYjbKu
+
+10. 【给大家分享一个来自罗马尼亚的真实恐怖故事，后续的发展也极具戏剧化色彩，谁又能想到呢，包括始作俑者自己】https://m.weibo.cn/status/Kb4za4CAf
+
+11. 【科普：人类有多少种生理性别？】https://m.weibo.cn/status/Kb2linF1W
+
+12. 【手术日记】https://www.douban.com/note/800030835
+
+13. 【和平协议之后的高加索没有和平】https://www.thepaper.cn/newsDetail_forward_12158205
+
+14. 【讲一个有关快递的故事】https://m.weibo.cn/status/Kb0BcnFCT
+
+15. 【咆哮女王也太会用比喻了吧#金牌译制# source】https://m.weibo.cn/status/Kb1ZMh7Hd
+
+16. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+
+17. 【割腕之后，他的卡车没有超重】https://mp.weixin.qq.com/s/XdMGK9g1usmxVG9nexPBPg
+
+18. 【我以前看见那种“拧不开瓶盖要不要让男的帮着拧”的帖子觉得匪夷所思：拧个瓶盖要多大劲儿啊你是不是残废】https://m.weibo.cn/status/KaUyYAWgl
+
+19. 【恋爱对女性的意义被高估了】https://m.weibo.cn/status/KaUdUdM68
+
+20. 【全职太太离婚时，可以拿到家务补偿吗？丨橙律师问答】https://mp.weixin.qq.com/s/_TrgTluG7oD-Eue6vzNnjQ
+
+=======
+
+《每日文章精选 2021-04-17》 https://t.me/daily_read 
+
+1. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+2. 【Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女儿】https://m.weibo.cn/status/KbkVmcH5v
+
+3. 【英国伦敦反警察法抗议示威超过百人被捕】https://www.thepaper.cn/newsDetail_forward_12052562
+
+4. 【全国多地离婚冷静期数据】https://m.weibo.cn/status/Kb9dKoNM5
+
+5. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
