@@ -19070,3 +19070,75 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 【#我们去踏青吧# #...】
 #我们去踏青吧# #阡陌花开# 秤锤树，国家二级保护濒危种。 像玉片一样的小花瓣！ https://m.weibo.cn/status/Kb3Zd9G5t
+
+=======
+
+《每日文章精选 2021-04-18》 https://t.me/daily_read 
+
+1. 【【来自投稿】20世纪初，一对同性恋人】https://m.weibo.cn/status/Kbv6XqFhu
+
+2. 【【案情速报】Jingyao诉刘强东案仍在进行，审讯（trial）再次延期至2022年3月28日】https://m.weibo.cn/status/KbsLKBToK
+
+3. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+4. 【为求男宝，有多少女性沦为“生育机器”？】https://m.weibo.cn/status/KbrtWEjGf
+
+5. 【做了套打拳入门图解，灵感源于一位说不了名字的女人（林毛毛）写的微博P2-P5是动图，不动戳大】https://m.weibo.cn/detail/4626691034452985
+
+=======
+
+《每日文章精选 2021-04-18》 https://t.me/daily_read 
+
+1. 【【案情速报】Jingyao诉刘强东案仍在进行，审讯（trial）再次延期至2022年3月28日】https://m.weibo.cn/status/KbsLKBToK
+
+2. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+3. 【为求男宝，有多少女性沦为“生育机器”？】https://m.weibo.cn/status/KbrtWEjGf
+
+4. 【对于“文科误国”背后的整个潜台词和逻辑，一向都很清楚】https://m.weibo.cn/status/Kbem5f8ex
+
+5. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+6. 【Ada Lovelace 被认为是世界上第一位程序员，她是诗人拜伦的女儿】https://m.weibo.cn/status/KbkVmcH5v
+
+7. 【英国伦敦反警察法抗议示威超过百人被捕】https://www.thepaper.cn/newsDetail_forward_12052562
+
+8. 【全国多地离婚冷静期数据】https://m.weibo.cn/status/Kb9dKoNM5
+
+9. 【马丹 | 移动的原子化劳动：自雇卡车司机劳动过程的四个特征】https://mp.weixin.qq.com/s/Ukmlcgu_f8uBN_J5S_m0BA
+
+10. 【我一路行走，企图甩掉这条黑狗】https://mp.weixin.qq.com/s/0fwC9J3cmeJ9cEgGukY40Q
+
+11. 【亚马逊工会遭遇挫败 美国劳工运动或将再思考发展方向】https://www.douban.com/note/800367848
+
+12. 【#96岁摆摊奶奶停止出摊# 太累需要休息】https://m.weibo.cn/status/Kb8EKnDg8
+
+13. 【效果初显！#江苏上万对夫妻冷静期内放弃离婚#】https://m.weibo.cn/status/Kb8vYjbKu
+
+14. 【给大家分享一个来自罗马尼亚的真实恐怖故事，后续的发展也极具戏剧化色彩，谁又能想到呢，包括始作俑者自己】https://m.weibo.cn/status/Kb4za4CAf
+
+15. 【科普：人类有多少种生理性别？】https://m.weibo.cn/status/Kb2linF1W
+
+16. 【手术日记】https://www.douban.com/note/800030835
+
+17. 【和平协议之后的高加索没有和平】https://www.thepaper.cn/newsDetail_forward_12158205
+
+18. 【讲一个有关快递的故事】https://m.weibo.cn/status/Kb0BcnFCT
+
+19. 【咆哮女王也太会用比喻了吧#金牌译制# source】https://m.weibo.cn/status/Kb1ZMh7Hd
+
+20. 【深扒缠在3000万货车司机脖子上的北斗利益链】https://mp.weixin.qq.com/s/2kOuYpFaPJYnV5WIW_423g
+
+=======
+
+《每日文章精选 2021-04-18》 https://t.me/daily_read 
+
+1. 【【案情速报】Jingyao诉刘强东案仍在进行，审讯（trial）再次延期至2022年3月28日】https://m.weibo.cn/status/KbsLKBToK
+
+2. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+3. 【为求男宝，有多少女性沦为“生育机器”？】https://m.weibo.cn/status/KbrtWEjGf
+
+4. 【对于“文科误国”背后的整个潜台词和逻辑，一向都很清楚】https://m.weibo.cn/status/Kbem5f8ex
+
+5. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
