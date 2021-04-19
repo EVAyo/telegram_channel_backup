@@ -19142,3 +19142,41 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【对于“文科误国”背后的整个潜台词和逻辑，一向都很清楚】https://m.weibo.cn/status/Kbem5f8ex
 
 5. 【阿根廷“绿色浪潮”：一份堕胎法案，半部女性斗争史】https://www.thepaper.cn/newsDetail_forward_12203621
+
+=======
+
+《每日文章精选 2021-04-19》 https://t.me/daily_read 
+
+1. 【男性马路杀手占到了85%，学车app却在教育“女司机”】https://mp.weixin.qq.com/s/RXe5XHkqOMOqDA9-tRtKTw
+
+2. 【多数事务社｜锐评：请给货车司机留一条”活路”】https://mp.weixin.qq.com/s/tVb3ZcrKbHfvySAMLsQCpg
+
+3. 【游戏是性别最平等的场域吗？】https://mp.weixin.qq.com/s/m7IYesgdlzsd1tvRz1RWVA
+
+4. 【Mark Rober讲述儿子的故事：他是自闭症，也是有超能力的天使】https://m.weibo.cn/status/KbCc3nawk
+
+5. 【晚饭聊到美女与野兽】https://m.weibo.cn/status/Kbxz5c6a5
+
+=======
+
+《每日文章精选 2021-04-19》 https://t.me/daily_read 
+
+1. 【男性马路杀手占到了85%，学车app却在教育“女司机”】https://mp.weixin.qq.com/s/RXe5XHkqOMOqDA9-tRtKTw
+
+2. 【多数事务社｜锐评：请给货车司机留一条”活路”】https://mp.weixin.qq.com/s/tVb3ZcrKbHfvySAMLsQCpg
+
+3. 【游戏是性别最平等的场域吗？】https://mp.weixin.qq.com/s/m7IYesgdlzsd1tvRz1RWVA
+
+4. 【Mark Rober讲述儿子的故事：他是自闭症，也是有超能力的天使】https://m.weibo.cn/status/KbCc3nawk
+
+5. 【晚饭聊到美女与野兽，说最后野兽变回王子，是因为遇到true love，咒语解除】https://m.weibo.cn/status/Kbxz5c6a5
+
+6. 【男权的真心话】https://m.weibo.cn/status/KbAa5hvae
+
+7. 【【案情速报】Jingyao诉刘强东案仍在进行，审讯（trial）再次延期至2022年3月28日】https://m.weibo.cn/status/KbsLKBToK
+
+8. 【同样是发生车祸，为什么女人总是伤得更重？】https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
+
+9. 【为求男宝，有多少女性沦为“生育机器”？】https://m.weibo.cn/status/KbrtWEjGf
+
+10. 【对于“文科误国”背后的整个潜台词和逻辑，一向都很清楚】https://m.weibo.cn/status/Kbem5f8ex
