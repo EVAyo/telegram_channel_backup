@@ -19180,3 +19180,41 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【为求男宝，有多少女性沦为“生育机器”？】https://m.weibo.cn/status/KbrtWEjGf
 
 10. 【对于“文科误国”背后的整个潜台词和逻辑，一向都很清楚】https://m.weibo.cn/status/Kbem5f8ex
+
+=======
+
+《每日文章精选 2021-04-20》 https://t.me/daily_read 
+
+1. 【橙雨伞 | “玫瑰少年”去世21年：世界变得更好了吗？】https://mp.weixin.qq.com/s/c6MxEtXfVN1uNKCrlWkoVQ
+
+2. 【山东“合村并居”，振兴乡村从住窝棚开始？】https://mp.weixin.qq.com/s/gaMY7tkkE_uazy2MylD4kQ
+
+3. 【作为男生，你能为女权做的10件实事1️⃣ 请充分利用自己男性的身份，制止生活中的各种“性别歧视”】https://m.weibo.cn/status/KbEYicHc5
+
+4. 【孩子得了癫痫，国内国外大不同】https://www.douban.com/note/800684753
+
+5. 【那些大病后的次生灾害，和被它们所打翻的人的人生】https://www.douban.com/note/800720948
+
+=======
+
+《每日文章精选 2021-04-20》 https://t.me/daily_read 
+
+1. 【橙雨伞 | “玫瑰少年”去世21年：世界变得更好了吗？】https://mp.weixin.qq.com/s/c6MxEtXfVN1uNKCrlWkoVQ
+
+2. 【山东“合村并居”，振兴乡村从住窝棚开始？】https://mp.weixin.qq.com/s/gaMY7tkkE_uazy2MylD4kQ
+
+3. 【作为男生，你能为女权做的10件实事1️⃣ 请充分利用自己男性的身份，制止生活中的各种“性别歧视”】https://m.weibo.cn/status/KbEYicHc5
+
+4. 【孩子得了癫痫，国内国外大不同】https://www.douban.com/note/800684753
+
+5. 【那些大病后的次生灾害，和被它们所打翻的人的人生】https://www.douban.com/note/800720948
+
+6. 【看到有人调侃女同性恋床死，说一下我看到的一些文章】https://m.weibo.cn/status/KbKHomSRu
+
+7. 【访谈｜纽约亚裔劳工在当下的困境与斗争】https://www.thepaper.cn/newsDetail_forward_12259815
+
+8. 【OMG子，男孩，你穿裙子也好看！#男生就不能穿裙子吗# #金牌译制# source】https://m.weibo.cn/status/KbEM1gUT3
+
+9. 【男性马路杀手占到了85%，学车app却在教育“女司机”】https://mp.weixin.qq.com/s/RXe5XHkqOMOqDA9-tRtKTw
+
+10. 【多数事务社｜锐评：请给货车司机留一条”活路”】https://mp.weixin.qq.com/s/tVb3ZcrKbHfvySAMLsQCpg
