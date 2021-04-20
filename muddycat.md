@@ -2224,7 +2224,3 @@ https://www.thenation.com/article/activism/bessemer-alabama-amazon-union/tnamp/
 =======
 
 也门和沙特的战争是怎么回事，有懂的朋友说说吗？谢谢！
-
-=======
-
-我看在很多缅甸相关的推特帖子上都写着「NUG ASSEMBLE」，这句话是什么意思？
