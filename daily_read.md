@@ -19232,3 +19232,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【山东“合村并居”，振兴乡村从住窝棚开始？】https://mp.weixin.qq.com/s/gaMY7tkkE_uazy2MylD4kQ
 
 5. 【作为男生，你能为女权做的10件实事1️⃣ 请充分利用自己男性的身份，制止生活中的各种“性别歧视”】https://m.weibo.cn/status/KbEYicHc5
+
+=======
+
+《每日文章精选 2021-04-21》 https://t.me/daily_read 
+
+1. 【“女士菜单”不让女人看价格，还管这叫礼节？】https://mp.weixin.qq.com/s/rs-ZvBu8hlvGmK_EeZKu3g
+
+2. 【深度丨持续六年微博举报，“只招男性”何时终结？】https://mp.weixin.qq.com/s/RElRh4p6yDJlgwBgTs3HSQ
+
+3. 【【今时今日】曝光黑厂东方日升】https://mp.weixin.qq.com/s/GXkfJb4RRDX0TrVpyWi3pg
+
+4. 【上海警方拘留消费者，美国警方搜查特斯拉】https://mp.weixin.qq.com/s/HlDdSBnuEoyFEK0QpVYnaw
+
+5. 【这支公益短片创意很棒——说出了很多人的心声希望世界少一些歧视，多一些关心~ source】https://m.weibo.cn/status/KbMLGaKF5
