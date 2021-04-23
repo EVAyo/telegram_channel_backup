@@ -19270,3 +19270,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【深度丨持续六年微博举报，“只招男性”何时终结？】https://mp.weixin.qq.com/s/RElRh4p6yDJlgwBgTs3HSQ
 
 10. 【今时今日】【曝光黑厂东方日升】https://mp.weixin.qq.com/s/GXkfJb4RRDX0TrVpyWi3pg
+
+=======
+
+《每日文章精选 2021-04-23》 https://t.me/daily_read 
+
+1. 【与LGBTQ残障人士的一场聊天】https://mp.weixin.qq.com/s/dY4J32LdTcg9QwPHDtiv-w
+
+2. 【爱尔兰Lidl超市从五月起免费向顾客提供月经用品】https://m.weibo.cn/status/Kc4b9hY1D
+
+3. 【那些真正的“渣男”行径】https://m.weibo.cn/status/Kc7365fKR
+
+4. 【当一个中年女权主义者是什么体验？｜坏女行四方01】https://mp.weixin.qq.com/s/eo0qwOc4S-AKyB2_Stu1rw
+
+5. 【当我的青春痘会说话：一个重度痤疮患者的记录】https://mp.weixin.qq.com/s/uGzz92LGejBN0ujYEWbqtA
