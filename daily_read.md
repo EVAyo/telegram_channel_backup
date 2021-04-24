@@ -19298,3 +19298,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【独家|枪击案中的华人按摩女：生前俭朴安静 一百个陌生人为她送行】https://m.weibo.cn/status/KbOK5fPqs
 
 5. 【与LGBTQ残障人士的一场聊天】https://mp.weixin.qq.com/s/dY4J32LdTcg9QwPHDtiv-w
+
+=======
+
+《每日文章精选 2021-04-24》 https://t.me/daily_read 
+
+1. 【关注了一个账号，主人是住百京城中村的年轻妈妈】https://m.weibo.cn/status/KcmWawxkz
+
+2. 【不要再说行业拒绝女人是因为条件艰苦了】https://m.weibo.cn/status/KcdDvF26E
+
+3. 【也别谈什么保证休假，双休了】https://m.weibo.cn/status/KcduSjJ2O
+
+4. 【对了，关于纪念“万婴之母”林巧稚这件事，除了致敬之外，还有两个点值得说一说】https://m.weibo.cn/status/KccCUbLt1
+
+5. 【劳动论｜劳动条件如此恶劣，亚马逊工会运动为何失败？】https://www.thepaper.cn/newsDetail_forward_12338485
