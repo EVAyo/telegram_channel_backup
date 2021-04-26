@@ -2224,3 +2224,13 @@ https://www.thenation.com/article/activism/bessemer-alabama-amazon-union/tnamp/
 =======
 
 也门和沙特的战争是怎么回事，有懂的朋友说说吗？谢谢！
+
+=======
+
+我想我们都知道，一个人说「国蝻」，而被人攻击的可能性，要远远高于ta说「傻|逼」而被人攻击的可能性。
+
+在这样的情形下，对两种行为给以一样大小的攻击，是否合理？
+
+比起「比烂」，我更担心「烂」本身。而批判「滥行」的最有效，最合理的办法，是将批评对准始作俑者。
+
+https://t.me/LiberalegalitarianisminChinese/56993
