@@ -19324,3 +19324,41 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【属于女性的城市使用权，请还给她们】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&amp;mid=2247530556&amp;idx=1&amp;sn=e960598b19946b58fa10b8d7c22c7931
 
 4. 【英国：将厌女犯罪列入仇恨犯罪】https://m.weibo.cn/status/K6XcHh0WA
+
+=======
+
+《每日文章精选 2021-04-26》 https://t.me/daily_read 
+
+1. 【多数事务社｜锐评：寒门博士的成功，教育公平的“失败”】https://mp.weixin.qq.com/s/uMBsUVTVZ3IuHz_prAMyBA
+
+2. 【纪念2021年“女同志现身日”】https://mp.weixin.qq.com/s/rIvcQkdLewq9-f9Z2_JwXQ
+
+3. 【韩亚航空前CEO拒绝批准女员工放生理假，被罚款200万韩元】https://m.weibo.cn/status/KcHA2sC9U
+
+4. 【迎接Lesbian Visibility Day昨天在法國的dyke march】https://m.weibo.cn/5014199045/4630254255605210
+
+5. 【“没有女同性恋的一天就像没有阳光的一天】https://m.weibo.cn/status/KcGFdEsIG
+
+=======
+
+《每日文章精选 2021-04-26》 https://t.me/daily_read 
+
+1. 【多数事务社｜锐评：寒门博士的成功，教育公平的“失败”】https://mp.weixin.qq.com/s/uMBsUVTVZ3IuHz_prAMyBA
+
+2. 【纪念2021年“女同志现身日”】https://mp.weixin.qq.com/s/rIvcQkdLewq9-f9Z2_JwXQ
+
+3. 【韩亚航空前CEO拒绝批准女员工放生理假，被罚款200万韩元】https://m.weibo.cn/status/KcHA2sC9U
+
+4. 【迎接Lesbian Visibility Day昨天在法國的dyke march】https://m.weibo.cn/5014199045/4630254255605210
+
+5. 【“没有女同性恋的一天就像没有阳光的一天】https://m.weibo.cn/status/KcGFdEsIG
+
+6. 【如果把一些新闻对比着看，会很有意思】https://m.weibo.cn/status/KcFtOvvVo
+
+7. 【看到一条评论：虽然拿了奥斯卡，但是这么多人都看不到，替她遗憾】https://m.weibo.cn/status/KcFOO82rb
+
+8. 【贾法·帕纳西：在没有自由的国家里如何拍电影】https://www.douban.com/note/752763828
+
+9. 【杨笠，冲出国门】https://m.weibo.cn/status/KcBlbrEgi
+
+10. 【为什么我会反复反复说恋爱脑是要不得的呢，因为爱情这个东西，其实就是男权给女人洗脑的一大法宝】https://m.weibo.cn/status/KczPYeQTP
