@@ -2240,3 +2240,7 @@ https://t.me/LiberalegalitarianisminChinese/56993
 有些中文圈特色左每次说类似这种女权要争取男人支持的时候我就会说：您说得对，所以社会主义要争取富人支持，不能挑起阶级矛盾
 
 https://t.me/LiberalegalitarianisminChinese/57083
+
+=======
+
+「说说你的优点/缺点」=「说说你对于我们公司来说，有什么可以利用之处/潜在风险」
