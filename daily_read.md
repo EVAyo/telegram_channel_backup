@@ -19362,3 +19362,15 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【杨笠，冲出国门】https://m.weibo.cn/status/KcBlbrEgi
 
 10. 【为什么我会反复反复说恋爱脑是要不得的呢，因为爱情这个东西，其实就是男权给女人洗脑的一大法宝】https://m.weibo.cn/status/KczPYeQTP
+
+=======
+
+《每日文章精选 2021-04-27》 https://t.me/daily_read 
+
+1. 【清华尬舞：女性的身体没责任寄托这么多微言大义】https://mp.weixin.qq.com/s/FrzMJgTafMhQzU3Npmmskg
+
+2. 【现在的招聘环境】https://m.weibo.cn/status/KcS0i5Bve
+
+3. 【过完劳动节的调班，不妨看看中秋节的，调休连国庆，周末连连炸】https://m.weibo.cn/status/KcPocmbRF
+
+4. 【南亚观察丨印度政府抗疫何以“慢悠悠”？】https://www.thepaper.cn/newsDetail_forward_12398934
