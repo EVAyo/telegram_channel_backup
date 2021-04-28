@@ -19374,3 +19374,75 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【过完劳动节的调班，不妨看看中秋节的，调休连国庆，周末连连炸】https://m.weibo.cn/status/KcPocmbRF
 
 4. 【南亚观察丨印度政府抗疫何以“慢悠悠”？】https://www.thepaper.cn/newsDetail_forward_12398934
+
+=======
+
+《每日文章精选 2021-04-27》 https://t.me/daily_read 
+
+1. 【骄傲月 | 旧文新发 | 性少数群体九问】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651201423&idx=1&sn=3e2577815057e4b78b5d34b562255a71
+
+2. 【她们本来是最需要保护的人，却深藏在弱势群体的角落】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247484299&idx=1&sn=f286c514a8e8b3b2205a0a38f180cf65
+
+3. 【HI, 我是一名大码女孩，这是我的一些约会经历#Story Time# #金牌译制# /】https://m.weibo.cn/status/KcTr1dS9I
+
+4. 【和上海人恋爱了，但我并不开心 | 知识库】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247486931&idx=1&sn=b4d6ad01ed84f740225f456127f2497c
+
+5. 【清华尬舞：女性的身体没责任寄托这么多微言大义】https://mp.weixin.qq.com/s/FrzMJgTafMhQzU3Npmmskg
+
+=======
+
+《每日文章精选 2021-04-27》 https://t.me/daily_read 
+
+1. 【骄傲月 | 旧文新发 | 性少数群体九问】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651201423&idx=1&sn=3e2577815057e4b78b5d34b562255a71
+
+2. 【她们本来是最需要保护的人，却深藏在弱势群体的角落】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247484299&idx=1&sn=f286c514a8e8b3b2205a0a38f180cf65
+
+3. 【HI, 我是一名大码女孩，这是我的一些约会经历#Story Time# #金牌译制# /】https://m.weibo.cn/status/KcTr1dS9I
+
+4. 【和上海人恋爱了，但我并不开心 | 知识库】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247486931&idx=1&sn=b4d6ad01ed84f740225f456127f2497c
+
+5. 【清华尬舞：女性的身体没责任寄托这么多微言大义】https://mp.weixin.qq.com/s/FrzMJgTafMhQzU3Npmmskg
+
+6. 【现在的招聘环境……？【网评】 这充分说明“待遇差”对公司本身的影响：连会说人话的hr都招不到】https://m.weibo.cn/status/KcS0i5Bve
+
+7. 【过完劳动节的调班，不妨看看中秋节的，调休连国庆，周末连连炸，气【网评】 看生气了，人不双休会死的】https://m.weibo.cn/status/KcPocmbRF
+
+8. 【7个中国家政阿姨的故事，刷爆我的朋友圈！】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247498314&idx=1&sn=88ef86bb8d8eab036362b269f1828915
+
+9. 【南亚观察丨印度政府抗疫何以“慢悠悠”？】https://www.thepaper.cn/newsDetail_forward_12398934
+
+10. 【荷兰“橙色房子”凭什么成为世界反家暴的范本？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247501437&idx=1&sn=a841eac43ef9e40dac7dfc6102ad2884
+
+=======
+
+《每日文章精选 2021-04-27》 https://t.me/daily_read 
+
+1. 【骄傲月 | 旧文新发 | 性少数群体九问】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651201423&idx=1&sn=3e2577815057e4b78b5d34b562255a71
+
+2. 【她们本来是最需要保护的人，却深藏在弱势群体的角落】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247484299&idx=1&sn=f286c514a8e8b3b2205a0a38f180cf65
+
+3. 【HI, 我是一名大码女孩，这是我的一些约会经历#Story Time# #金牌译制# /】https://m.weibo.cn/status/KcTr1dS9I
+
+4. 【和上海人恋爱了，但我并不开心 | 知识库】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247486931&idx=1&sn=b4d6ad01ed84f740225f456127f2497c
+
+5. 【清华尬舞：女性的身体没责任寄托这么多微言大义】https://mp.weixin.qq.com/s/FrzMJgTafMhQzU3Npmmskg
+
+6. 【现在的招聘环境……？】https://m.weibo.cn/status/KcS0i5Bve
+
+7. 【过完劳动节的调班，不妨看看中秋节的，调休连国庆，周末连连炸，气】https://m.weibo.cn/status/KcPocmbRF
+
+8. 【7个中国家政阿姨的故事，刷爆我的朋友圈！】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247498314&idx=1&sn=88ef86bb8d8eab036362b269f1828915
+
+9. 【南亚观察丨印度政府抗疫何以“慢悠悠”？】https://www.thepaper.cn/newsDetail_forward_12398934
+
+10. 【荷兰“橙色房子”凭什么成为世界反家暴的范本？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247501437&idx=1&sn=a841eac43ef9e40dac7dfc6102ad2884
+
+11. 【还有人不了解女人生育后的真实身体吗？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247514366&idx=1&sn=0c85285c688f0d45f0be9ae1b8f86d24
+
+12. 【被锁10年的残障女性，是底层社会的一个缩影】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247512305&idx=1&sn=53fd0eb755cbd33b5efa98825d55fed7
+
+13. 【拉拉伴侣要生孩子，得先坐下来谈彼此的权益保障】https://mp.weixin.qq.com/s?__biz=MzU3NjU1OTQ5Mg==&mid=2247485193&idx=1&sn=df0d338d82e45ed21f373981ed68079a
+
+14. 【我们A卵B怀，是想让孩子跟我俩都有关系】https://mp.weixin.qq.com/s?__biz=MzU3NjU1OTQ5Mg==&mid=2247486223&idx=1&sn=5a3bc9d786b4da39d90ee609e0645aad
+
+15. 【同性婚姻，要等多少个12年？】https://mp.weixin.qq.com/s?__biz=MzU3NjU1OTQ5Mg==&mid=2247485542&idx=1&sn=d2923235e43be263c2e1ffa9573ce482
