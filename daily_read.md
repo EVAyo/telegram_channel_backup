@@ -19446,3 +19446,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【我们A卵B怀，是想让孩子跟我俩都有关系】https://mp.weixin.qq.com/s?__biz=MzU3NjU1OTQ5Mg==&mid=2247486223&idx=1&sn=5a3bc9d786b4da39d90ee609e0645aad
 
 15. 【同性婚姻，要等多少个12年？】https://mp.weixin.qq.com/s?__biz=MzU3NjU1OTQ5Mg==&mid=2247485542&idx=1&sn=d2923235e43be263c2e1ffa9573ce482
+
+=======
+
+《每日文章精选 2021-04-28》 https://t.me/daily_read 
+
+1. 【林奕含婚礼演讲：精神病去污名化的终极遗愿】https://mp.weixin.qq.com/s/9PaeS2zSsiGWu1iwfK_jTg
+
+2. 【14岁“出嫁”，16岁生女，17岁离世，女孩小泽的匆匆一生】https://mp.weixin.qq.com/s/qix9EXBqsGsmh4YBKiqxvQ
+
+3. 【妈妈注意到，5岁的小儿子最近总是抱着姐姐的旧娃娃，很是喜欢】https://m.weibo.cn/status/KcWWapcBW
+
+4. 【姐，好羡慕你啊，五点就能下班了】https://m.weibo.cn/status/Kd0751G4j
+
+5. 【特写｜等待春天：两位母亲和成年自闭症孩子的生命故事】https://www.thepaper.cn/newsDetail_forward_12311675
