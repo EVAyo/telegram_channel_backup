@@ -19460,3 +19460,95 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【姐，好羡慕你啊，五点就能下班了】https://m.weibo.cn/status/Kd0751G4j
 
 5. 【特写｜等待春天：两位母亲和成年自闭症孩子的生命故事】https://www.thepaper.cn/newsDetail_forward_12311675
+
+=======
+
+《每日文章精选 2021-04-29》 https://t.me/daily_read 
+
+1. 【#不结婚老了真的会很惨吗# 二胎之后，想把所有单身女朋友都拉黑】https://m.weibo.cn/status/KdaOejvTL
+
+2. 【从某种角度来讲，也算是#非虚构头脑清醒爽文bot# 的投稿了……仅供参考，不求共识】https://m.weibo.cn/status/Kd9cuwzUg
+
+3. 【五一劳动节，事实上只有一天的假期】https://m.weibo.cn/status/Kd9tnuwnt
+
+4. 【#女硕士因残障未通过教资体检#：笔试面试全过，被卡在了体检环节】https://m.weibo.cn/status/Kd7nIBFP2
+
+5. 【部分地区试点HPV疫苗免费接种】http://m.weibo.cn/1783475181/4631310172422996
+
+6. 【他山之石 | 同性恋与共产党】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651200898&idx=1&sn=f746f34ee3017c16b98692d5ea789afd
+
+7. 【工作手记｜当我在体制内做维权社工的时候，我在干什么？】https://www.douban.com/note/779929228
+
+8. 【曝光“癌症治疗黑幕”的医生被停诊！张煜医生：我不后悔发文！】https://mp.weixin.qq.com/s/Fywr6x45OguSsz66884WMg
+
+9. 【曝“肿瘤治疗黑幕”的医生被停诊】https://m.weibo.cn/status/Kd7j5t4sl
+
+10. 【#双硕士女子因残疾考教师资格证失败#】https://m.weibo.cn/status/Kd3263mhl
+
+=======
+
+《每日文章精选 2021-04-29》 https://t.me/daily_read 
+
+1. 【#不结婚老了真的会很惨吗# 二胎之后，想把所有单身女朋友都拉黑】https://m.weibo.cn/status/KdaOejvTL
+
+2. 【从某种角度来讲，也算是#非虚构头脑清醒爽文bot# 的投稿了……仅供参考，不求共识】https://m.weibo.cn/status/Kd9cuwzUg
+
+3. 【五一劳动节，事实上只有一天的假期】https://m.weibo.cn/status/Kd9tnuwnt
+
+4. 【#女硕士因残障未通过教资体检#：笔试面试全过，被卡在了体检环节】https://m.weibo.cn/status/Kd7nIBFP2
+
+5. 【部分地区试点HPV疫苗免费接种】http://m.weibo.cn/1783475181/4631310172422996
+
+6. 【他山之石 | 同性恋与共产党】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651200898&idx=1&sn=f746f34ee3017c16b98692d5ea789afd
+
+7. 【工作手记｜当我在体制内做维权社工的时候，我在干什么？】https://www.douban.com/note/779929228
+
+8. 【曝光“癌症治疗黑幕”的医生被停诊！张煜医生：我不后悔发文！】https://mp.weixin.qq.com/s/Fywr6x45OguSsz66884WMg
+
+9. 【曝“肿瘤治疗黑幕”的医生被停诊】https://m.weibo.cn/status/Kd7j5t4sl
+
+10. 【#双硕士女子因残疾考教师资格证失败#】https://m.weibo.cn/status/Kd3263mhl
+
+11. 【马克思主义对待同性恋是什么态度？】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651200998&idx=1&sn=2d00357a888a8db7c3cf2596411cca37
+
+12. 【作为MtF的我理解女性，却不被女性理解丨Transtory】https://mp.weixin.qq.com/s/JaDf9Lvquk4n2e_Yvg14Yw
+
+13. 【印度女儿们的求救声有谁能听见？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247502970&idx=1&sn=e7c4f204a1531caf87ed40026d47dc8f
+
+14. 【那个被劝退的同性恋学生，决定起诉学校】https://mp.weixin.qq.com/s/mGytGJLrU0g6cw-Hgnxo2g
+
+15. 【自杀两次、住进精神病院的我，做过六次电休克】https://mp.weixin.qq.com/s/5jgsFX8oPlGqdXweYWOKyw
+
+=======
+
+《每日文章精选 2021-04-29》 https://t.me/daily_read 
+
+1. 【不结婚老了真的会很惨吗 二胎之后，想把所有单身女朋友都拉黑】https://m.weibo.cn/status/KdaOejvTL
+
+2. 【从某种角度来讲，也算是非虚构头脑清醒爽文bot 的投稿了……仅供参考，不求共识】https://m.weibo.cn/status/Kd9cuwzUg
+
+3. 【五一劳动节，事实上只有一天的假期】https://m.weibo.cn/status/Kd9tnuwnt
+
+4. 【女硕士因残障未通过教资体检：笔试面试全过，被卡在了体检环节】https://m.weibo.cn/status/Kd7nIBFP2
+
+5. 【部分地区试点HPV疫苗免费接种】http://m.weibo.cn/1783475181/4631310172422996
+
+6. 【他山之石 | 同性恋与共产党】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651200898&idx=1&sn=f746f34ee3017c16b98692d5ea789afd
+
+7. 【工作手记｜当我在体制内做维权社工的时候，我在干什么？】https://www.douban.com/note/779929228
+
+8. 【曝光“癌症治疗黑幕”的医生被停诊！张煜医生：我不后悔发文！】https://mp.weixin.qq.com/s/Fywr6x45OguSsz66884WMg
+
+9. 【曝“肿瘤治疗黑幕”的医生被停诊】https://m.weibo.cn/status/Kd7j5t4sl
+
+10. 【双硕士女子因残疾考教师资格证失败】https://m.weibo.cn/status/Kd3263mhl
+
+11. 【马克思主义对待同性恋是什么态度？】https://mp.weixin.qq.com/s?__biz=MzIyNDA5MTUwNw==&mid=2651200998&idx=1&sn=2d00357a888a8db7c3cf2596411cca37
+
+12. 【作为MtF的我理解女性，却不被女性理解丨Transtory】https://mp.weixin.qq.com/s/JaDf9Lvquk4n2e_Yvg14Yw
+
+13. 【印度女儿们的求救声有谁能听见？】https://mp.weixin.qq.com/s?__biz=MzU0NTEyMjI1Mg==&mid=2247502970&idx=1&sn=e7c4f204a1531caf87ed40026d47dc8f
+
+14. 【那个被劝退的同性恋学生，决定起诉学校】https://mp.weixin.qq.com/s/mGytGJLrU0g6cw-Hgnxo2g
+
+15. 【自杀两次、住进精神病院的我，做过六次电休克】https://mp.weixin.qq.com/s/5jgsFX8oPlGqdXweYWOKyw
