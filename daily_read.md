@@ -19610,3 +19610,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【女硕士因残障未通过教资体检：笔试面试全过，被卡在了体检环节】https://m.weibo.cn/status/Kd7nIBFP2
 
 15. 【部分地区试点HPV疫苗免费接种】http://m.weibo.cn/1783475181/4631310172422996
+
+=======
+
+《每日文章精选 2021-05-01》 https://t.me/daily_read 
+
+1. 【残障人士能做的工作多出我们想象，但他们没有被提供平等的机会】https://mp.weixin.qq.com/s/2ViAoFfX9BehjiMe1OZJCw
+
+2. 【北京男子造谣被揭穿摔打博美犬致死】https://m.weibo.cn/status/KdlDXxQ5L
+
+3. 【国家卫健委：聚焦全面防控青少年女性等重点人群吸烟全力推进无烟党政机关建设】https://m.weibo.cn/status/KdqouqiKc
+
+4. 【劳动节原本不是庆祝劳动或者休息，而是为了纪念和提醒：劳动者们有权利捍卫自己劳动和休息的相关权益】https://m.weibo.cn/status/Kdpz2A0XO
+
+5. 【小镇青年数据报告：百分之四十以上女性表示能够接受单身终老，近六成男性受访者表示没爱情也能将就结婚】https://m.weibo.cn/status/KdmdOy9CH
+
+6. 【无声咖啡馆传递“有声”的爱，聋人小哥治愈系微笑暖人心】https://m.weibo.cn/status/Jtegzfr45
+
+7. 【大厂里的外包年轻人】https://mp.weixin.qq.com/s/biaIbnQygwRBC73NllHKxg
+
+8. 【矮个子妈妈的家里，所有家具都是迷你版的，儿子仿佛来到了小人国.…这对母子好可爱呀~】https://m.weibo.cn/status/KdhULwqPs
+
+9. 【大家好，我是小“吴”！这应该是我最后一次单纯因为案件发声了】https://m.weibo.cn/status/KdiNYcwXl
+
+10. 【老故事隐匿在泛黄时光里“你走之后 世间也再无我的姓名”】https://m.weibo.cn/status/KdgJqhkMI
