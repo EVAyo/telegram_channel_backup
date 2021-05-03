@@ -19654,3 +19654,41 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 7. 【残障人士能做的工作多出我们想象，但他们没有被提供平等的机会】https://mp.weixin.qq.com/s/2ViAoFfX9BehjiMe1OZJCw
 
 8. 【北京男子造谣被揭穿摔打博美犬致死】https://m.weibo.cn/status/KdlDXxQ5L
+
+=======
+
+《每日文章精选 2021-05-03》 https://t.me/daily_read 
+
+1. 【咱们女工有力量 这个真实的世界，有无数女性从事着体力劳动】https://m.weibo.cn/status/KdJz4k0iF
+
+2. 【深度报道：印度火葬工人亲述疫情经历】https://m.weibo.cn/status/KdCX3ljWi
+
+3. 【阿兰达蒂·罗伊：作为“危机制造机”的政府正将印度拖入地狱】https://www.thepaper.cn/newsDetail_forward_12476976
+
+4. 【别让男性凝视规训你的身体】https://m.weibo.cn/status/KdCKO12jY
+
+5. 【学会欣赏自己】https://m.weibo.cn/status/KdDu36gPW
+
+=======
+
+《每日文章精选 2021-05-03》 https://t.me/daily_read 
+
+1. 【咱们女工有力量 这个真实的世界，有无数女性从事着体力劳动】https://m.weibo.cn/status/KdJz4k0iF
+
+2. 【深度报道：印度火葬工人亲述疫情经历】https://m.weibo.cn/status/KdCX3ljWi
+
+3. 【阿兰达蒂·罗伊：作为“危机制造机”的政府正将印度拖入地狱】https://www.thepaper.cn/newsDetail_forward_12476976
+
+4. 【别让男性凝视规训你的身体】https://m.weibo.cn/status/KdCKO12jY
+
+5. 【学会欣赏自己】https://m.weibo.cn/status/KdDu36gPW
+
+6. 【在重男轻女家庭中长大的我，自从上大学后就和我父母切断了关系】https://m.weibo.cn/status/KdA3qCJQ0
+
+7. 【总有人爱说我胖，我觉得这件事我自己清楚的很欸，你真的不用每天都来提醒我】https://m.weibo.cn/status/KduWk2ZeL
+
+8. 【小哥哥发视频吐槽，那些喜欢分享自己女友私照的男生...这么简单的逻辑都不懂吗？】https://m.weibo.cn/status/KduAZnghE
+
+9. 【我真的很想知道被外界视为美丽的感觉Discussion 金牌译制 /】https://m.weibo.cn/status/Kdv90hNpX
+
+10. 【绵阳副校长吴某某猥亵案宣判获刑14年】https://m.weibo.cn/status/KdueaBx2d
