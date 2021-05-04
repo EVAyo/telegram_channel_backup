@@ -19692,3 +19692,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【我真的很想知道被外界视为美丽的感觉Discussion 金牌译制 /】https://m.weibo.cn/status/Kdv90hNpX
 
 10. 【绵阳副校长吴某某猥亵案宣判获刑14年】https://m.weibo.cn/status/KdueaBx2d
+
+=======
+
+《每日文章精选 2021-05-04》 https://t.me/daily_read 
+
+1. 【印度女子为确诊母亲做人工呼吸 依然无法挽回其生命】https://m.weibo.cn/status/KdLzhF5UD
+
+2. 【热搜里东京饮用水致癌物那一条，用心在哪里真是很明显了】https://m.weibo.cn/status/KdRo5zPHL
+
+3. 【《2020年农民工监测调查报告》出炉，数字里藏了多少农民工的苦】https://www.douban.com/note/801782910
+
+4. 【咱们女工有力量 这个真实的世界，有无数女性从事着体力劳动】https://m.weibo.cn/status/KdJz4k0iF
+
+5. 【深度报道：印度火葬工人亲述疫情经历】https://m.weibo.cn/status/KdCX3ljWi
