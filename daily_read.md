@@ -19720,3 +19720,21 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【咱们女工有力量 这个真实的世界，有无数女性从事着体力劳动】https://m.weibo.cn/status/KdJz4k0iF
 
 5. 【深度报道：印度火葬工人亲述疫情经历】https://m.weibo.cn/status/KdCX3ljWi
+
+=======
+
+《每日文章精选 2021-05-05》 https://t.me/daily_read 
+
+1. 【逃离浪漫爱异性恋女权主义者约炮血泪史-05-05】 https://mp.weixin.qq.com/s/fRZZV33Z_Mmq2W1h5FEaNA
+
+2. 【深度报道：印度火葬工人亲述疫情经历】https://m.weibo.cn/status/KdCX3ljWi
+
+3. 【关于男性凝视与二次元角色形象各方面的相关性】https://m.weibo.cn/status/Ke3iY0Gg4
+
+4. 【思觉失调（俗称精神分裂）患者家属自述】https://m.weibo.cn/detail/4633411480455323?cid=4633533425126036
+
+5. 【上海长乐路上的卖花小贩】http://www.douban.com/people/161426447/status/3371357655
+
+6. 【HM，这几个动作平时在家里做做，真的很有效的】http://www.douban.com/people/3483055/status/3420377878
+
+7. 【缅甸此刻 Burma Now | 反军政府政变示威 2021春天革命海报选】https://mp.weixin.qq.com/s/d0Dyq7SvlxHQLo4zNwVekg
