@@ -19738,3 +19738,35 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 6. 【HM，这几个动作平时在家里做做，真的很有效的】http://www.douban.com/people/3483055/status/3420377878
 
 7. 【缅甸此刻 Burma Now | 反军政府政变示威 2021春天革命海报选】https://mp.weixin.qq.com/s/d0Dyq7SvlxHQLo4zNwVekg
+
+=======
+
+《每日文章精选 2021-05-06》 https://t.me/daily_read 
+
+1. 【“老公”去世10年后，他终于领到了未亡人退休金】https://mp.weixin.qq.com/s/9ZogzJePIGaRg9e24j0Kxw
+
+2. 【八比一，绝对碾压】https://mp.weixin.qq.com/s/yJ7wbt-Y3tkbgQ3G1QTEFw
+
+3. 【“鸡娃”孩子用体罚，父母该负法律责任吗？｜橙律师问答】https://mp.weixin.qq.com/s/FmuN7v4BbJ0big13jCvpXg
+
+4. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+5. 【音乐剧女演员有多难丁臻滢，中国最优秀的音乐剧女演员之一，即使是她，处境也如此艰难】https://m.weibo.cn/status/KebNcue7m
+
+=======
+
+《每日文章精选 2021-05-06》 https://t.me/daily_read 
+
+1. 【“老公”去世10年后，他终于领到了未亡人退休金】https://mp.weixin.qq.com/s/9ZogzJePIGaRg9e24j0Kxw
+
+2. 【八比一，绝对碾压】https://mp.weixin.qq.com/s/yJ7wbt-Y3tkbgQ3G1QTEFw
+
+3. 【“鸡娃”孩子用体罚，父母该负法律责任吗？｜橙律师问答】https://mp.weixin.qq.com/s/FmuN7v4BbJ0big13jCvpXg
+
+4. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+5. 【音乐剧女演员有多难丁臻滢，中国最优秀的音乐剧女演员之一，即使是她，处境也如此艰难】https://m.weibo.cn/status/KebNcue7m
+
+6. 【写诗成名后，农妇韩仕梅决意出走】https://mp.weixin.qq.com/s/gf4MSUjWUBNYtzH9BIz-xg
+
+7. 【嘲讽清华校庆舞蹈，是一场厌女的狂欢】https://mp.weixin.qq.com/s/jDcXZJM7BepsgKMqkWFkRw
