@@ -19770,3 +19770,41 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 6. 【写诗成名后，农妇韩仕梅决意出走】https://mp.weixin.qq.com/s/gf4MSUjWUBNYtzH9BIz-xg
 
 7. 【嘲讽清华校庆舞蹈，是一场厌女的狂欢】https://mp.weixin.qq.com/s/jDcXZJM7BepsgKMqkWFkRw
+
+=======
+
+《每日文章精选 2021-05-07》 https://t.me/daily_read 
+
+1. 【四个动作缓解脊椎压力】https://m.weibo.cn/status/KekAz3bb1
+
+2. 【因为批评了乃万的发言，一位患癌症的女孩被网暴诅咒去死，同时她的水滴筹也在被虫男举报】https://m.weibo.cn/status/KejvbqlaK
+
+3. 【烟台市某技校15岁男学生遭男教师性侵，校方：系宿管，警方已立案】https://weibo.com/1703524110/Kd9DEfxpn
+
+4. 【乃万有感】https://m.weibo.cn/status/KefgHtsrd
+
+5. 【欧洲部分国家平均每周工作时长（2019）】http://www.douban.com/group/topic/224726036
+
+=======
+
+《每日文章精选 2021-05-07》 https://t.me/daily_read 
+
+1. 【刷到这条的姐妹 请放下手机 立刻做一遍（脊椎手术10万+这个事 还有多少人记得！四个动作缓解脊椎压力】https://m.weibo.cn/status/KekAz3bb1
+
+2. 【因为批评了乃万的发言，一位患癌症的女孩被网暴诅咒去死，同时她的水滴筹也在被虫男举报】https://m.weibo.cn/status/KejvbqlaK
+
+3. 【烟台市某技校15岁男学生遭男教师性侵，校方：系宿管，警方已立案】https://weibo.com/1703524110/Kd9DEfxpn
+
+4. 【乃万有感】https://m.weibo.cn/status/KefgHtsrd
+
+5. 【欧洲部分国家平均每周工作时长（2019）】http://www.douban.com/group/topic/224726036
+
+6. 【“老公”去世10年后，他终于领到了未亡人退休金】https://mp.weixin.qq.com/s/9ZogzJePIGaRg9e24j0Kxw
+
+7. 【八比一，绝对碾压】https://mp.weixin.qq.com/s/yJ7wbt-Y3tkbgQ3G1QTEFw
+
+8. 【“鸡娃”孩子用体罚，父母该负法律责任吗？｜橙律师问答】https://mp.weixin.qq.com/s/FmuN7v4BbJ0big13jCvpXg
+
+9. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+10. 【音乐剧女演员有多难丁臻滢，中国最优秀的音乐剧女演员之一，即使是她，处境也如此艰难】https://m.weibo.cn/status/KebNcue7m
