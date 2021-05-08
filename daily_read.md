@@ -19808,3 +19808,73 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
 
 10. 【音乐剧女演员有多难丁臻滢，中国最优秀的音乐剧女演员之一，即使是她，处境也如此艰难】https://m.weibo.cn/status/KebNcue7m
+
+=======
+
+《每日文章精选 2021-05-08》 https://t.me/daily_read 
+
+1. 【来自投稿】【许立志，男，1990年出生于广东揭阳，诗人】https://m.weibo.cn/status/KeyqvqyBY
+
+2. 【参加婚礼的一些感悟：为什么女方和女方家长要哭】http://www.douban.com/group/topic/224943221
+
+3. 【搬运一下这方面的知识，希望大家用不到吧，被qj后你最好是不要独自去报警】https://m.weibo.cn/status/KexaAesLs
+
+4. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+5. 【如果象征着美丽的女神阿芙洛狄忒有小肚腩的话，那你也可以有】https://m.weibo.cn/status/KevZQocwl
+
+=======
+
+《每日文章精选 2021-05-08》 https://t.me/daily_read 
+
+1. 【来自投稿】【许立志，男，1990年出生于广东揭阳，诗人】https://m.weibo.cn/status/KeyqvqyBY
+
+2. 【参加婚礼的一些感悟：为什么女方和女方家长要哭】http://www.douban.com/group/topic/224943221
+
+3. 【搬运一下这方面的知识，希望大家用不到吧，被qj后你最好是不要独自去报警】https://m.weibo.cn/status/KexaAesLs
+
+4. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+5. 【如果象征着美丽的女神阿芙洛狄忒有小肚腩的话，那你也可以有】https://m.weibo.cn/status/KevZQocwl
+
+6. 【保安会开玩笑说：这小区没有危险的罪犯，只有危险的业主】https://www.douban.com/note/802096595
+
+7. 【看了今晚的直播，没错，现在想法已经不一样了，还是有钱有自由来的好】https://m.weibo.cn/status/Kep6O0gvB
+
+8. 【为什么现在的未婚小女孩都觉得已婚女过得水深火热？】http://www.douban.com/group/topic/224082014
+
+9. 【性别刻板印象如何影响着我们？】http://www.douban.com/people/31970740/status/3424148937
+
+=======
+
+《每日文章精选 2021-05-08》 https://t.me/daily_read 
+
+1. 【来自投稿】【许立志，男，1990年出生于广东揭阳，诗人】https://m.weibo.cn/status/KeyqvqyBY
+
+2. 【参加婚礼的一些感悟：为什么女方和女方家长要哭】http://www.douban.com/group/topic/224943221
+
+3. 【搬运一下这方面的知识，希望大家用不到吧，被qj后你最好是不要独自去报警】https://m.weibo.cn/status/KexaAesLs
+
+4. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
+
+5. 【如果象征着美丽的女神阿芙洛狄忒有小肚腩的话，那你也可以有】https://m.weibo.cn/status/KevZQocwl
+
+6. 【保安会开玩笑说：这小区没有危险的罪犯，只有危险的业主】https://www.douban.com/note/802096595
+
+7. 【看了今晚的直播，没错，现在想法已经不一样了，还是有钱有自由来的好】https://m.weibo.cn/status/Kep6O0gvB
+
+8. 【给家里打了个电话，心好凉】https://m.weibo.cn/status/KeqKo8n96
+
+9. 【为什么现在的未婚小女孩都觉得已婚女过得水深火热？】http://www.douban.com/group/topic/224082014
+
+10. 【性别刻板印象如何影响着我们？】http://www.douban.com/people/31970740/status/3424148937
+
+11. 【西方高等教育行业困局：爱的教育还是令人痛苦的工作】https://www.thepaper.cn/newsDetail_forward_12437619
+
+12. 【甜美又暴力的羊毛毡】https://m.weibo.cn/status/KelKH2TpG
+
+13. 【工作8小时是上限而不是下限】https://m.weibo.cn/status/KdNLLlDX2
+
+14. 【刷到这条的姐妹 请放下手机 立刻做一遍（脊椎手术10万+这个事 还有多少人记得！四个动作缓解脊椎压力】https://m.weibo.cn/status/KekAz3bb1
+
+15. 【因为批评了乃万的发言，一位患癌症的女孩被网暴诅咒去死，同时她的水滴筹也在被虫男举报】https://m.weibo.cn/status/KejvbqlaK
