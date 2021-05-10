@@ -19950,3 +19950,51 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【印度新冠疫情人道援助倡议】https://mp.weixin.qq.com/s/Cn5_kRoAyF3op5s86nKewA
 
 15. 【如果象征着美丽的女神阿芙洛狄忒有小肚腩的话，那你也可以有】https://m.weibo.cn/status/KevZQocwl
+
+=======
+
+《每日文章精选 2021-05-10》 https://t.me/daily_read 
+
+1. 【吾儿林唯麒，现就读于成都49中，是一名高二的学生】https://m.weibo.cn/status/KeLxV4p0U
+
+2. 【我的同性爱情故事】http://www.douban.com/people/61814370/status/3428610054
+
+3. 【婚礼是女孩一生中最重要的日子是不是一个我们从小听到大的洗脑包】http://www.douban.com/group/topic/225184851
+
+4. 【1994年，谷建芬老师遭遇的性别歧视】http://www.douban.com/people/1742954/status/3424445424
+
+5. 【魏圆圆案：非婚生六个月幼儿判给“把孩子扔给保姆摔伤手腕”的父亲】http://www.douban.com/people/179661323/status/3428205163
+
+6. 【她存在过，她消失了】https://www.douban.com/note/802307060
+
+7. 【同声传译｜女权主义视角下的生理/社会性别（一）】https://mp.weixin.qq.com/s?__biz=MjM5NDQ0NDQwMA==&mid=2650105510&idx=1&sn=2e5f82399fdc0eddc32d7ccae627f673
+
+8. 【美国生育率跌至百年来最低，看到这些消息，80后们出来说了说自己不愿生娃的原因…】https://m.weibo.cn/status/Kewl9wQgB
+
+9. 【管理组公告：在瓜组进行女权讨论的前提】http://www.douban.com/group/topic/175367614
+
+10. 【恐怖惊悚片里，“女鬼”的设定其实挺能反应女性地位的】http://www.douban.com/group/topic/202220629
+
+=======
+
+《每日文章精选 2021-05-10》 https://t.me/daily_read 
+
+1. 【因为使用棉条，家人说我是王八蛋】https://mp.weixin.qq.com/s/lpW11xlyP1OLKdkFlYmfGg
+
+2. 【吾儿林唯麒，现就读于成都49中，是一名高二的学生】https://m.weibo.cn/status/KeLxV4p0U
+
+3. 【我的同性爱情故事】http://www.douban.com/people/61814370/status/3428610054
+
+4. 【婚礼是女孩一生中最重要的日子是不是一个我们从小听到大的洗脑包】http://www.douban.com/group/topic/225184851
+
+5. 【1994年，谷建芬老师遭遇的性别歧视】http://www.douban.com/people/1742954/status/3424445424
+
+6. 【魏圆圆案：非婚生六个月幼儿判给“把孩子扔给保姆摔伤手腕”的父亲】http://www.douban.com/people/179661323/status/3428205163
+
+7. 【她存在过，她消失了】https://www.douban.com/note/802307060
+
+8. 【同声传译｜女权主义视角下的生理/社会性别（一）】https://mp.weixin.qq.com/s?__biz=MjM5NDQ0NDQwMA==&mid=2650105510&idx=1&sn=2e5f82399fdc0eddc32d7ccae627f673
+
+9. 【美国生育率跌至百年来最低，看到这些消息，80后们出来说了说自己不愿生娃的原因…】https://m.weibo.cn/status/Kewl9wQgB
+
+10. 【管理组公告：在瓜组进行女权讨论的前提】http://www.douban.com/group/topic/175367614
