@@ -20070,3 +20070,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【婚礼是女孩一生中最重要的日子是不是一个我们从小听到大的洗脑包】http://www.douban.com/group/topic/225184851
 
 15. 【1994年，谷建芬老师遭遇的性别歧视】http://www.douban.com/people/1742954/status/3424445424
+
+=======
+
+《每日文章精选 2021-05-12》 https://t.me/daily_read 
+
+1. 【同性恋出柜率为什么只有5%？同志阿强：帮助他们被亲人接纳】https://mp.weixin.qq.com/s/a-rG8VBOpOMsLuVIlTFgCQ
+
+2. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
+
+3. 【讲点道理，“女子本弱，为母则刚”这句话表面上看起来是二象性，其实就是典型的精神压迫里面的二重奏】https://m.weibo.cn/status/KeZ5rb5kp
+
+4. 【到底是谁设计的女式牛仔裤啊？这裤兜也太反人类了吧！女裤裤兜太反人类了 金牌译制】https://m.weibo.cn/status/Kf9MzCZTw
+
+5. 【今日阳间新闻：英国将全面禁止对跨性别者进行性别认知矫正治疗，由女王本人亲自宣布】http://www.douban.com/people/191454756/status/3431403127
+
+6. 【录下老板“潜规则”的音频，是在侵犯老板的隐私？｜橙律师问答】https://mp.weixin.qq.com/s/KILVAfKivbSOWu-n3BQNKA
+
+7. 【川震十年 “我们的娃娃”还在等一个答案】http://www.douban.com/people/32481146/status/3431230861
+
+8. 【惨绝！缅甸诗人被拘留一夜死亡 妻子见到遗体「器官都被摘除」】http://mp.weixin.qq.com/s?__biz=MzA4MjA0NDEyMw==&mid=2447610590&idx=7&sn=1f505b4746b7b5b2fae33447b31147d6
+
+9. 【吊篮撞楼死者家属称被围殴抢手机 吊篮撞楼死者家属称遗体被抢走】https://m.weibo.cn/status/KeYB2sIZm
+
+10. 【武汉吊篮工人死亡事件后续，死者家属遭到建设方暴力殴打，现正向社会公开求助】https://m.weibo.cn/status/KeYAG0oiM
