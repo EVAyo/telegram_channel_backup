@@ -20094,3 +20094,91 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【吊篮撞楼死者家属称被围殴抢手机 吊篮撞楼死者家属称遗体被抢走】https://m.weibo.cn/status/KeYB2sIZm
 
 10. 【武汉吊篮工人死亡事件后续，死者家属遭到建设方暴力殴打，现正向社会公开求助】https://m.weibo.cn/status/KeYAG0oiM
+
+=======
+
+《每日文章精选 2021-05-13》 https://t.me/daily_read 
+
+1. 【“谁说单身生育不行，我都当场怼回去”｜坏女行四方03】https://mp.weixin.qq.com/s/jp4qTtCYfZcKUOZsKlpCoQ
+
+2. 【跨性别权利】【整复外科社会工作|上海九院跨儿就诊手册】https://mp.weixin.qq.com/s/wnvrYViJfsJSxzAlAM_mUw
+
+3. 【缅甸】【一个Myanmar小女孩给联合国的信😭】http://www.douban.com/people/53803167/status/3363976162
+
+4. 【如果没有网络关注，没有校门口的声援，家长和公众还有多久才能知道这些细节】http://www.douban.com/people/151257956/status/3432665747
+
+5. 【我的故事 ~我和爱人20年在一起的回顾】https://m.weibo.cn/status/IpZzl6Vxm
+
+6. 【中国老人聊LGBT】https://m.weibo.cn/status/IpM9OlX8T
+
+7. 【婚礼上的超飒新娘两个女孩子在她们的婚礼上执手仗剑，太帅了！】https://m.weibo.cn/status/IkAhLca52
+
+8. 【全国性别暴力求助热线合集】https://m.weibo.cn/detail/4575564989473310
+
+9. 【Ted演讲】【跨性别者自述】https://m.weibo.cn/detail/4493271482678930
+
+10. 【她们追踪了N号房】https://weibo.com/ttarticle/p/show?id=2309404606611560988820&luicode=10000011&lfid=1076031357494880
+
+11. 【亲友会手语版彩虹MV发布】https://m.weibo.cn/detail/4618582945697652
+
+12. 【LGBT权利】【被强制做性别扭转该怎么自救？】 https://m.weibo.cn/detail/4630201830480674
+
+13. 【我是超小米，非常简单的三个字，很多不到学龄的小朋友都认识】https://m.weibo.cn/status/Kfb43ci98
+
+14. 【TED演讲：不要问家暴受害者“为什么不离开”】https://m.weibo.cn/status/JlZ3b85Ui
+
+15. 【这集les情侣的故事好可爱出租什么都不干的人】https://m.weibo.cn/status/JoSVb8IZf 
+
+16. 【恐同教材是中国高校制度性恐同的一部分】https://m.weibo.cn/status/JkMfe48fu
+
+17. 【你我生来赤裸，其余皆为变装】https://m.weibo.cn/detail/4627064411656289
+
+18. 【火车上有个人倒了,乘务人员发现这人两天没吃饭】http://www.douban.com/group/topic/225031867
+
+19. 【同性恋出柜率为什么只有5%？同志阿强：帮助他们被亲人接纳】https://mp.weixin.qq.com/s/a-rG8VBOpOMsLuVIlTFgCQ
+
+20. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
+
+=======
+
+《每日文章精选 2021-05-13》 https://t.me/daily_read 
+
+1. 【“谁说单身生育不行，我都当场怼回去”｜坏女行四方03】https://mp.weixin.qq.com/s/jp4qTtCYfZcKUOZsKlpCoQ
+
+2. 【整复外科社会工作|上海九院跨儿就诊手册】https://mp.weixin.qq.com/s/wnvrYViJfsJSxzAlAM_mUw
+
+3. 【缅甸】【一个Myanmar小女孩给联合国的信😭】http://www.douban.com/people/53803167/status/3363976162
+
+4. 【非常赞同】http://www.douban.com/people/151257956/status/3432665747
+
+5. 【我的故事 ~我和爱人20年在一起的回顾】https://m.weibo.cn/status/IpZzl6Vxm
+
+6. 【中国老人聊LGBT(爸妈特别版)预告看了那么多城市的老人聊“听过没见过”的性少数，事不关己，高高挂起】https://m.weibo.cn/status/IpM9OlX8T
+
+7. 【婚礼上的超飒新娘两个女孩子在她们的婚礼上执手仗剑，太帅了！】https://m.weibo.cn/status/IkAhLca52
+
+8. 【全国性别暴力求助热线合集】https://m.weibo.cn/detail/4575564989473310
+
+9. 【Ted】【这是我参加TedxSuzhouWomen 2018演讲时的完整视频】https://m.weibo.cn/detail/4493271482678930
+
+10. 【她们追踪了N号房】https://weibo.com/ttarticle/p/show?id=2309404606611560988820&luicode=10000011&lfid=1076031357494880
+
+11. 【亲友会手语版彩虹MV发布】https://m.weibo.cn/detail/4618582945697652
+
+12. 【LGBT权利】https://m.weibo.cn/detail/4630201830480674
+
+13. 【我是超小米】https://m.weibo.cn/status/Kfb43ci98
+
+14. 【TED演讲：不要问家暴受害者“为什么不离开”】https://m.weibo.cn/status/JlZ3b85Ui
+
+15. 【这集les情侣的故事好可爱出租什么都不干的人】https://m.weibo.cn/status/JoSVb8IZf
+
+16. 【恐同教材是中国高校制度性恐同的一部分】https://m.weibo.cn/status/JkMfe48fu
+
+17. 【你我生来赤裸，其余皆为变装】https://m.weibo.cn/detail/4627064411656289
+
+18. 【火车上有个人倒了,乘务人员发现这人两天没吃饭】http://www.douban.com/group/topic/225031867
+
+19. 【同性恋出柜率为什么只有5%？同志阿强：帮助他们被亲人接纳】https://mp.weixin.qq.com/s/a-rG8VBOpOMsLuVIlTFgCQ
+
+20. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
