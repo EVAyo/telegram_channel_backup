@@ -20182,3 +20182,55 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【同性恋出柜率为什么只有5%？同志阿强：帮助他们被亲人接纳】https://mp.weixin.qq.com/s/a-rG8VBOpOMsLuVIlTFgCQ
 
 20. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
+
+=======
+
+《每日文章精选 2021-05-14》 https://t.me/daily_read 
+
+1. 【就是现在！亲眼看到了警察对家暴是怎么处理的！】http://www.douban.com/group/topic/225640005
+
+2. 【没想到我也被骗婚了，呵呵哒】http://www.douban.com/group/topic/212224916
+
+3. 【你所遭遇的“男性凝视”】http://www.douban.com/people/m-chow-chow/status/3426831094
+
+4. 【你所遭受的“招聘暴力”】http://www.douban.com/people/1349095/status/3434079358
+
+5. 【Brave Girls海报手势】https://m.weibo.cn/status/KfrdQcHg2
+
+6. 【与此同时 ｜ 与东耶路撒冷共此时】https://mp.weixin.qq.com/s/9DzgYBCT99qqGdYCe0rc5Q
+
+7. 【今天是开斋节，穆斯林最重要的节日之一】http://www.douban.com/people/3845314/status/3433320651
+
+8. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
+
+9. 【为什么更年期可能是件好事情？】https://weibo.com/ttarticle/p/show?id=2309634635455609241986
+
+10. 【攻略&日常绘 | 单身狗如何处理全麻手术相关事宜（手术项目：腹腔镜子宫肌瘤剔除术）】https://www.douban.com/note/802634895
+
+=======
+
+《每日文章精选 2021-05-14》 https://t.me/daily_read 
+
+1. 【就是现在！亲眼看到了警察对家暴是怎么处理的！】http://www.douban.com/group/topic/225640005
+
+2. 【没想到我也被骗婚了，呵呵哒】http://www.douban.com/group/topic/212224916
+
+3. 【你所遭遇的“男性凝视”】http://www.douban.com/people/m-chow-chow/status/3426831094
+
+4. 【你所遭受的“招聘暴力”】http://www.douban.com/people/1349095/status/3434079358
+
+5. 【Brave Girls海报手势】https://m.weibo.cn/status/KfrdQcHg2
+
+6. 【与此同时 ｜ 与东耶路撒冷共此时】https://mp.weixin.qq.com/s/9DzgYBCT99qqGdYCe0rc5Q
+
+7. 【今天是开斋节，穆斯林最重要的节日之一】http://www.douban.com/people/3845314/status/3433320651
+
+8. 【疫情下的印度华人：焚尸味闻到吐，归国遥不可及】https://mp.weixin.qq.com/s/jFUBcW6Ega74CSr-WbdtGg
+
+9. 【为什么更年期可能是件好事情？】https://weibo.com/ttarticle/p/show?id=2309634635455609241986
+
+10. 【攻略&日常绘 | 单身狗如何处理全麻手术相关事宜（手术项目：腹腔镜子宫肌瘤剔除术）】https://www.douban.com/note/802634895
+
+11. 【作为女人，我们该如何生气？| 别的女孩的2018年】https://mp.weixin.qq.com/s?__biz=MzUyMDkyNjQ3MA==&mid=2247485500&idx=1&sn=e8c6897b52b81ab6aa6d86d3b722f623
+
+12. 【长得漂亮，是不是就不需要女权主义了？】https://mp.weixin.qq.com/s?__biz=MzUyMDkyNjQ3MA==&mid=2247485684&idx=1&sn=ae617c48e8b615e92389605157f6febd
