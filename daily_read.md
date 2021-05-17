@@ -20260,3 +20260,81 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 10. 【给骑手买五险一金，外卖会涨价，你能接受吗？】http://www.douban.com/people/71239192/status/3435474828
 
 11. 【假如给骑手买保险，美团就会破产，你能接受么？我可以】http://www.douban.com/people/27405327/status/3434660710
+
+=======
+
+《每日文章精选 2021-05-16》 https://t.me/daily_read 
+
+1. 【我所经历的印度女权主义】https://www.douban.com/note/797279326
+
+2. 【其实女生在面对男性的“恐惧感”，如果男人们能够多了解一点，对于男性来说，也是好事】https://m.weibo.cn/status/KfN10cuhW
+
+3. 【5·17国际不再恐同日】https://m.weibo.cn/status/KfNozFnCG
+
+4. 【性别是我找工作的第一道墙】http://www.douban.com/group/topic/226128489
+
+5. 【邰丽华呼吁推广听障者教师资格认定】https://m.weibo.cn/status/KfLlgdWJi
+
+6. 【截图来龙去脉：同志教师劳动权第一案】https://m.weibo.cn/status/GBPX7mMTt
+
+7. 【秘密港】https://m.weibo.cn/status/KfDmKvJIB
+
+8. 【纪念“国际不再恐同日”】http://www.douban.com/people/155114190/status/3438217256
+
+9. 【她转过身时用手盖住了杯子】https://m.weibo.cn/status/KfL5ye7BI
+
+10. 【国有约8500万残疾人，他们或许看不见，或许听不见……他们的生活面临许多障碍，容易遭遇歧视和偏见】https://m.weibo.cn/detail/4637373583589596
+
+11. 【巴勒斯坦加沙地带，一位家里遭到以色列空袭的孩子，正在废墟里搜集自己仅剩的“童年”】https://m.weibo.cn/status/KfM901yBb
+
+12. 【517原创研究 | 同性亲密关系中的角色】https://mp.weixin.qq.com/s?__biz=MzAxMzQ3MDI0Mg==&mid=2649704464&idx=1&sn=7c261ec9edb0563b18c5e654daf8f6a2
+
+13. 【很多女孩在公交地铁上被骚扰，动都不敢动一下，最后给自己造成了很严重的心理困扰，甚至到了需要治疗的地步】https://m.weibo.cn/status/KcRO6rK64
+
+14. 【看到有人宣传要为了“美观”进行阴唇割除手术】https://m.weibo.cn/detail/4637443568963603
+
+15. 【男朋友有处女情结，我该怎么处理呢】http://www.douban.com/group/topic/226185129
+
+16. 【蔡康永出柜14年后再度开腔，直言“娱乐圈的人出柜前都先来问我”】https://m.weibo.cn/status/KfMwf56Bn
+
+17. 【争议纷扰过后，我们对于代孕有了进一步的认识吗？| 思想界】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247503509&idx=1&sn=7907f9547e2af845ad076f03afe3ae9f
+
+18. 【女性能否拥有哺育自由？ | 母亲节】https://mp.weixin.qq.com/s/-ApVGoZLsW0nTxYJH9H3RA
+
+19. 【单身女生防骚扰小贴士】https://m.weibo.cn/status/KfMqa034H
+
+20. 【人类学家张劼颖：“我做垃圾分类也没用”这种话，在某种程度上是推卸责任｜专访】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247497506&idx=1&sn=2c224a685d3fc4aa49a235e3ebb6c23a
+
+21. 【巴勒斯坦父亲自述：30名亲戚因战争死去，骗6岁女儿以色列不会再空袭】https://mp.weixin.qq.com/s/JGeDyEB9Xi8pbvag9-2Sbg
+
+22. 【全公司聚餐吃披萨故意不叫我！英国女子怒告公司，获赔2.3万英镑......】https://m.weibo.cn/status/KfJML3jMO
+
+23. 【粉丝文化是如何被异化的？从“倒奶打投”谈起】https://mp.weixin.qq.com/s/Yc_X8jclGVTOMW2eK1ibDQ
+
+24. 【517世界不再恐同日·前夜：东直门外大街，欧盟大使馆、德国大使馆、加拿大大使馆】http://www.douban.com/people/29610886/status/3437878063
+
+25. 【从农民工到女商贩：出门闯荡这些年我从未恐慌】https://mp.weixin.qq.com/s/FzMZXgAfmJGbg87avxQthg 
+
+26. 【我希望北上这种发达一线城市的朋友，在所有谈到教育资源分配不均的话题时，能表现出适当的沉默】https://m.weibo.cn/status/KfMfUpSoE
+
+27. 【西安直播“播”不了包容】https://mp.weixin.qq.com/s/zs0S2F2lTkV4TI7KXbsS5Q
+
+28. 【托尼·朱特：破除犹太民族神话，重新思考巴以问题】https://www.thepaper.cn/newsDetail_forward_12696708
+
+29. 【劳动论｜贬值、隐形与斗争困境：未来工作夹缝中的医疗照护】https://www.thepaper.cn/newsDetail_forward_12696705
+
+30. 【从今天起，我就要做“美女无用教派”创始人，宗旨就是不看美女，不夸美女，不写美女，不画美女，不做美女】https://m.weibo.cn/status/KfJWecV63
+
+31. 【如果用王慧文的薪酬给美团470万骑手买3元的保险，王慧文的薪酬将降到800万左右，相当于普通人不吃不喝一辈子的工资】https://m.weibo.cn/status/KfHvJdlWJ
+
+32. 【人当然也不能没有工作，但工作绝对有好坏之分】https://m.weibo.cn/status/KfITLpw5G
+
+33. 【大城市为何女性更多】https://m.weibo.cn/1745047435/4635768230249071
+
+34. 【广东一新郎当众撕毁结婚誓词，还给新娘下最后通牒：嫁不嫁】https://m.weibo.cn/status/KfJ9LE2Bq
+
+35. 【九一一事件：一个中国左.派的回想】https://mp.weixin.qq.com/s/yzri6NJkyIOGTgQdvyGu6A 
+
+36. 【以巴这些事的前世今生】https://share.api.weibo.cn/share/222310429.html?weibo_id=4636917339786473
+
+37. 【工会运动失败后，亚马逊工人期望怎样的改革？】https://www.thepaper.cn/newsDetail_forward_12639320
