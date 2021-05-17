@@ -20338,3 +20338,37 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 36. 【以巴这些事的前世今生】https://share.api.weibo.cn/share/222310429.html?weibo_id=4636917339786473
 
 37. 【工会运动失败后，亚马逊工人期望怎样的改革？】https://www.thepaper.cn/newsDetail_forward_12639320
+
+=======
+
+《每日文章精选 2021-05-17》 https://t.me/daily_read 
+
+1. 【你在生活中感受到“GirlsHelpGirls”的时刻】https://www.douban.com/people/2175450/status/3439336426
+
+2. 【17岁跨性别者曝扭转治疗内幕】https://m.weibo.cn/status/KfTWGeix5
+
+3. 【论在北大附中上学】https://m.weibo.cn/status/KfSVfekYG
+
+4. 【原来女性发明了这么多东西，不看这个完全不知道！】http://www.douban.com/group/topic/226452440
+
+5. 【“所有美好的品格，不应该分性别】https://m.weibo.cn/status/KfT1Dz1IS
+
+6. 【 在人间 | 一位跨性别者的17岁：逃离，流浪，自残】https://mp.weixin.qq.com/s/cXLzCjgS6Oy2A-yabCWJcg
+
+7. 【今天是世界不恐同日，有一些话想要说】http://www.douban.com/people/29610886/status/3438900687
+
+8. 【月经杯科普】http://www.douban.com/people/156815176/status/3438910033
+
+9. 【很遗憾，我不男不女】https://mp.weixin.qq.com/s?__biz=MjA1ODMxMDQwMQ==&mid=2657452049&idx=1&sn=e677a5a1333fed094be1654bb405ad9c
+
+10. 【同一天的新闻，女人行凶伤人，知道把凶手性别写出来】http://www.douban.com/people/1102609/status/3438882910
+
+11. 【517，让我们手“拉”手在一起】https://mp.weixin.qq.com/s/w_aVSO4gLpml9ryTQbozSQ
+
+12. 【女人，有权利做她想做的任何事，成为她想成为的任何样子】https://m.weibo.cn/status/KfS2NxfRf
+
+13. 【日剧《我要准时下班》将翻拍为国产电视剧，剧集定名《我喜欢加班的理由》】https://m.weibo.cn/status/KfShlsde6
+
+14. 【与此同时 ｜ 与东耶路撒冷共此时】https://mp.weixin.qq.com/s/9DzgYBCT99qqGdYCe0rc5Q
+
+15. 【我是残障者，也是性少数：我爱你，只因为爱】https://mp.weixin.qq.com/s/XHYsgBgwSol8esmUjgt03Q
