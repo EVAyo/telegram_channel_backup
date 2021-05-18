@@ -20372,3 +20372,31 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【与此同时 ｜ 与东耶路撒冷共此时】https://mp.weixin.qq.com/s/9DzgYBCT99qqGdYCe0rc5Q
 
 15. 【我是残障者，也是性少数：我爱你，只因为爱】https://mp.weixin.qq.com/s/XHYsgBgwSol8esmUjgt03Q
+
+=======
+
+《每日文章精选 2021-05-18》 https://t.me/daily_read 
+
+1. 【关于北大附中的争论想到某位女生写的文章《一个北大既得利益者的自述》】https://m.weibo.cn/status/Kg5Az11Wj
+
+2. 【关于所谓的“巴以冲突”的真相】https://mp.weixin.qq.com/s/g5sZrxQuvdcn_P3rOI0dfg
+
+3. 【试用期被辞退也是要赔偿的！】https://www.douban.com/note/802266351
+
+4. 【关于昨日参加柏林支持巴勒斯坦protest的一些见闻和想法】http://www.douban.com/people/1155157/status/3438154088
+
+5. 【私密部位整形，到底是身体疾病还是脑子有病？】https://www.douban.com/note/802961966
+
+6. 【托尼·朱特：破除犹太民族神话，重新思考巴以问题】https://www.thepaper.cn/newsDetail_forward_12696708
+
+7. 【骄傲地爱，爱谁谁！| 国际不再恐同日的五封来信】https://mp.weixin.qq.com/s/5j6lUrc7zuTloaODKWg5Sw
+
+8. 【与马克宏商榷反锡安主义与反犹太主义】https://mp.weixin.qq.com/s/_CnAdAORPqcaYUK2e60ouA
+
+9. 【你知道“非二元性别”吗？】https://mp.weixin.qq.com/s/JoRSaP72qy4hTPHZzHuKgw
+
+10. 【你在生活中感受到“GirlsHelpGirls”的时刻】https://www.douban.com/people/2175450/status/3439336426
+
+11. 【17岁跨性别者曝扭转治疗内幕】https://m.weibo.cn/status/KfTWGeix5
+
+12. 【原来女性发明了这么多东西，不看这个完全不知道！】http://www.douban.com/group/topic/226452440
