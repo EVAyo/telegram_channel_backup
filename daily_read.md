@@ -20400,3 +20400,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 11. 【17岁跨性别者曝扭转治疗内幕】https://m.weibo.cn/status/KfTWGeix5
 
 12. 【原来女性发明了这么多东西，不看这个完全不知道！】http://www.douban.com/group/topic/226452440
+
+=======
+
+《每日文章精选 2021-05-19》 https://t.me/daily_read 
+
+1. 【论同志文学和耽美/百合文学的区别】https://m.weibo.cn/status/Kge8TdK4E
+
+2. 【背奶妈妈的“主战场”：洗手间】https://m.weibo.cn/status/Kga2nlG3s
+
+3. 【多图带你了解性少数群体的真实处境】https://m.weibo.cn/status/Kga0xE6LT
+
+4. 【在难民营居住的一家人，七个人被炸死，五名儿童两名妇女，唯一的幸存者是2个月大的婴儿】http://www.douban.com/people/sirius_cc/status/3437858790
+
+5. 【“两国方案”已破产，能否重建一个族群平等的“以色列-巴勒斯坦国”？】https://mp.weixin.qq.com/s/1RJJwj57TDkgrEwNWewfew
+
+6. 【上海，一个性少数者决定出柜】https://mp.weixin.qq.com/s/g4v6DF0Xk843X4bY9ZLPlg
+
+7. 【我好讨厌胸罩】https://m.weibo.cn/status/Kg6lcm2CA
+
+8. 【“不愿伤害平民”，意大利码头工人拒绝为以色列装运军火】http://m.thepaper.cn/rss_newsDetail_12713470
+
+9. 【关于北大附中的争论想到某位女生写的文章《一个北大既得利益者的自述》】https://m.weibo.cn/status/Kg5Az11Wj
+
+10. 【关于所谓的“巴以冲突”的真相】https://mp.weixin.qq.com/s/g5sZrxQuvdcn_P3rOI0dfg
