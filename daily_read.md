@@ -20424,3 +20424,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【关于北大附中的争论想到某位女生写的文章《一个北大既得利益者的自述》】https://m.weibo.cn/status/Kg5Az11Wj
 
 10. 【关于所谓的“巴以冲突”的真相】https://mp.weixin.qq.com/s/g5sZrxQuvdcn_P3rOI0dfg
+
+=======
+
+《每日文章精选 2021-05-20》 https://t.me/daily_read 
+
+1. 【犹太人反以色列犹太复国主义占领行径】https://mp.weixin.qq.com/s/ZNwAC6t29MmewT0eQC01yA
+
+2. 【LGBT|FTM】https://m.weibo.cn/status/KgiTCffCb
+
+3. 【对话牛津大学唐凌博士】https://m.weibo.cn/status/K54o1lVU7
+
+4. 【“美而不自知”真是男权社会对女神的最重要标准，就是你得条件又好又低自尊】https://www.douban.com/people/1305935/status/3443048015
+
+5. 【女同性恋为了入党退了校园里的彩虹群】https://m.weibo.cn/status/KgfaJCfcO 
+
+6. 【性资本：从定义到批判】https://m.weibo.cn/status/KgiGorUMy
+
+7. 【博物馆日｜从殖民起源到取消文化：未曾纯真的博物馆】https://www.thepaper.cn/newsDetail_forward_12713324
+
+8. 【“两国方案”已破产，能否重建一个族群平等的“以色列-巴勒斯坦国”？】https://mp.weixin.qq.com/s/1RJJwj57TDkgrEwNWewfew
+
+9. 【请不要谴责性侵犯夺走了女孩的“贞操”】https://www.douban.com/note/664311480
+
+10. 【我的曾祖父是崩得分子：20世纪反锡安主义的犹太左翼运动】https://mp.weixin.qq.com/s/N3KXJqXtw0ubdPDAWssxFg
