@@ -20448,3 +20448,45 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【请不要谴责性侵犯夺走了女孩的“贞操”】https://www.douban.com/note/664311480
 
 10. 【我的曾祖父是崩得分子：20世纪反锡安主义的犹太左翼运动】https://mp.weixin.qq.com/s/N3KXJqXtw0ubdPDAWssxFg
+
+=======
+
+《每日文章精选 2021-05-21》 https://t.me/daily_read 
+
+1. 【与马克宏商榷反锡安主义与反犹太主义】https://mp.weixin.qq.com/s/_CnAdAORPqcaYUK2e60ouA
+
+2. 【美国公司出售为跨性别儿童编织的阴茎假体】https://m.weibo.cn/status/KgwPFt0PG
+
+3. 【胸罩政治及漫长的需要遮挡的人生】https://www.douban.com/note/803196791
+
+4. 【14岁男同因性取向被原生家庭弃养】https://m.weibo.cn/status/Kguojwx6D
+
+5. 【《POSE》演员Billy Porter公开自己是HIV感染者】https://m.weibo.cn/status/KgsIlBlMz
+
+6. 【跨性别者在性少数群体中可以说是少数中的少数】https://m.weibo.cn/status/Kgu9KrP1R
+
+7. 【DF特稿 | 上海非婚妈妈生育金领取的百转千回】https://mp.weixin.qq.com/s/Tt8s3_4IKj5bAzEkLI9eKw
+
+8. 【“浩劫”仍未结束：关于巴勒斯坦难民回归的迷思和可能】https://mp.weixin.qq.com/s/5F97IswdJ0wnYX6_19-LtQ
+
+9. 【Bi+人群的隐性困境】https://m.weibo.cn/status/KguhosbLr
+
+10. 【bi+人群的隐性困境（好文分享+个人经历探讨）】https://www.douban.com/group/topic/208295744
+
+11. 【521：表白姐妹，一起搞钱一起快乐！】https://mp.weixin.qq.com/s/FDT1K7LDOaaZL4_YYgQUSg
+
+12. 【这些年来贬值最大的不是货币，而是你的努力】https://m.weibo.cn/status/KgsBK5AxT
+
+13. 【女性权益保护】http://www.douban.com/people/1059355/status/3444227589
+
+14. 【阴道炎（Vaginitis），不用谈之色变】https://www.douban.com/note/637919835
+
+15. 【「宫颈糜烂」不是病，为何还在治？】https://www.zhihu.com/question/20381610
+
+16. 【“不愿伤害平民”，意大利码头工人拒绝为以色列装运军火】http://m.thepaper.cn/rss_newsDetail_12713470
+
+17. 【伊朗男导演从伦敦回到家乡工作生活……结果就因为他47岁还没结婚，遭到父母谋杀分尸……】https://m.weibo.cn/status/KgluabYEQ
+
+18. 【18年的旧金山游行的两位爷爷，已经55年了love is love🌈面对世俗的两位爷爷】https://m.weibo.cn/status/Kgoe0lbkR
+
+19. 【犹太人反以色列犹太复国主义占领行径】https://mp.weixin.qq.com/s/ZNwAC6t29MmewT0eQC01yA
