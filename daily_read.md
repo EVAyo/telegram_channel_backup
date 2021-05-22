@@ -20490,3 +20490,23 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 18. 【18年的旧金山游行的两位爷爷，已经55年了love is love🌈面对世俗的两位爷爷】https://m.weibo.cn/status/Kgoe0lbkR
 
 19. 【犹太人反以色列犹太复国主义占领行径】https://mp.weixin.qq.com/s/ZNwAC6t29MmewT0eQC01yA
+
+=======
+
+《每日文章精选 2021-05-22》 https://t.me/daily_read 
+
+1. 【3美媒观察巴以停火的3个角度：战争罪、美以关系和下一次】https://mp.weixin.qq.com/s/rP--Iuf4HxIYEdNfgX_iEw
+
+2. 【一边A罩杯，一边D罩杯的女人，也可以活出自己的精彩】https://m.weibo.cn/status/KgCTozVyI
+
+3. 【英版“玫瑰少年”，12岁因性取向霸凌自杀】https://m.weibo.cn/status/KgCxgk7mH
+
+4. 【访谈反以犹太活动家：以色列种族隔离是一整套经济秩序】https://mp.weixin.qq.com/s/g5bmbvUJBtw8u1GJ0Q7Oyg
+
+5. 【这就是那个自驾游大姐的访谈】https://m.weibo.cn/status/KgD2rpwTz
+
+6. 【对亚裔美国人的疫情歧视由来已久】https://zhuanlan.zhihu.com/p/374402027
+
+7. 【多年前美国霍尼韦尔公司的人来访厂，就要求员工宿舍必须配备空调，否则不予订单】https://m.weibo.cn/status/KgCHikMZC
+
+8. 【LGBTQ+的生活体验和对性别与性取向的探索过程，以及对现实生活中性与性别领域的二元对立/两极化范式的反思】https://m.weibo.cn/status/KgxXvy5hM
