@@ -20442,3 +20442,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 7. 【多年前美国霍尼韦尔公司的人来访厂，就要求员工宿舍必须配备空调，否则不予订单】https://m.weibo.cn/status/KgCHikMZC
 
 8. 【LGBTQ+的生活体验和对性别与性取向的探索过程，以及对现实生活中性与性别领域的二元对立/两极化范式的反思】https://m.weibo.cn/status/KgxXvy5hM
+
+=======
+
+《每日文章精选 2021-05-23》 https://t.me/daily_read 
+
+1. 【来聊聊彩虹群体出柜血泪史！｜【你的光芒】第39期】https://m.weibo.cn/status/KgGSYdTp5
+
+2. 【人口普查里缺失的3490万女孩，去哪里了？】https://mp.weixin.qq.com/s?__biz=MzI5NDQ4MjYzMQ==&mid=2247570131&idx=1&sn=dee1faa6ad101e8af27c636b9b3ebb28
+
+3. 【一位妈妈拍下了在家带孩子和收拾的一天，带娃、做家务从早忙到晚!】https://m.weibo.cn/status/KgLgRndKM
+
+4. 【访谈反以犹太活动家：以色列种族隔离是一整套经济秩序】https://mp.weixin.qq.com/s/g5bmbvUJBtw8u1GJ0Q7Oyg
+
+5. 【访谈犹太活动家因为支持巴勒斯坦抗争我被起诉反犹】 http://www.douban.com/people/1131757/status/3444294140
