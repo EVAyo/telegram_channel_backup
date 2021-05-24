@@ -20477,6 +20477,44 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 8. 孩子疏远家长的原因 https://weibo.com/ttarticle/x/m/show/id/2309404325864123817046
 
+9. “骂”是虐待，是语言和情感暴力 https://m.weibo.cn/status/4319250094856968
+
+10. “家丑不可外扬” 是一种毒性思想，常常被家庭中的虐待者拿来禁声虐待的受害者 https://m.weibo.cn/status/4319972010793638
+
 【心理互助账号】
 
 1. 复杂性创伤后应激 https://m.weibo.cn/u/6889199898
+
+=======
+
+《每日文章精选 2021-05-24》 https://t.me/daily_read 
+
+1. 【我们需要为所有孩子提供包容和公平的 优质教育】https://m.weibo.cn/status/KgXKq6KUy
+
+2. 【虚拟团结、相对弱势与性别隔离：针对中国卡车司机的一组调研 | 专访】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247496352&idx=1&sn=75a184628be1406cf98d2fd37e7653bc
+
+3. 【每年的5月24日是泛性恋现身日，在这一天我们希望打破迷思，提高对泛性恋群体的可见度】http://www.douban.com/people/22189974/status/3449009720
+
+4. 【丽江反杀案女方申请国赔18万，亲属：已去外地，她对这里有阴影】https://m.weibo.cn/status/KgW06v25i
+
+5. 【黄关军曾想老了去教聋哑孩子跑步】https://m.weibo.cn/status/KgV3hfEuJ
+
+6. 【我国警察一览自行车被偷——受害人有错强奸案件——受害人过错伤害案件——被害人过错养狗问题——别养了】http://www.douban.com/people/58799069/status/3448815067
+
+7. 【我所经历的印度女权主义】https://www.douban.com/note/797279326
+
+8. 【马拉松事故里面去世的有位残运会冠军，经济窘迫吃泡面，为了几千块钱参加比赛，聋哑无法呼救】https://m.weibo.cn/status/KgVH4B0gc
+
+9. 【这个已故跑者的人生路途中只有朋友和他自己，背后的那个强大的（）做了什么呢？很难不介意】http://www.douban.com/people/149192718/status/3448478157
+
+10. 【哥伦比亚抗议：反抗不公与加剧不公】https://mp.weixin.qq.com/s/BsfzwNfAlOOFtVSm-Bxwug
+
+11. 【作为跨儿，我好想爱这个世界】https://mp.weixin.qq.com/s/8la7SQErQZysnufQARCh8Q
+
+12. 【“被性教育课程排斥在外”？请使用跨性别友好语言】https://mp.weixin.qq.com/s/ZKQ_2nwDqUux16xgMjdkCA
+
+13. 【甘肃景泰一马拉松百公里越野赛已发现16人遇难】https://m.weibo.cn/status/KgLw6CJ32
+
+14. 【台湾同婚合法两周年，已有5871对同性情侣结婚】https://m.weibo.cn/status/KgOk6aDEz
+
+15. 【来聊聊彩虹群体出柜血泪史！｜【你的光芒】第39期】https://m.weibo.cn/status/KgGSYdTp5
