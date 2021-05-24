@@ -20471,6 +20471,12 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 5. 自恋人格障碍虐待 https://weibo.com/ttarticle/x/m/show/id/2309404320474581610292
 
+6. 表格：什么是无效化 https://m.weibo.cn/6889199898/4319070868390378
+
+7. 虐待的多种形态 https://m.weibo.cn/status/4320503000670103
+
+8. 孩子疏远家长的原因 https://weibo.com/ttarticle/x/m/show/id/2309404325864123817046
+
 【心理互助账号】
 
 1. 复杂性创伤后应激 https://m.weibo.cn/u/6889199898
