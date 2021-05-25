@@ -2323,4 +2323,32 @@ None
 
 =======
 
-关于心理自助与互助，大家有什么比较好的材料吗？
+【心理自助互助工具箱】
+
+1. 控制闪回的14步 https://m.weibo.cn/status/Hg8rD0gOr
+
+2. 虐待关系中的操纵行为 https://weibo.com/ttarticle/p/show?id=2309404344168787910022
+
+3. 煤气灯操纵Gaslight https://m.weibo.cn/status/4319968063823495 
+
+4. 认可和希望 VS. 毒性正能量 https://m.weibo.cn/detail/4336865136023979
+
+5. 自恋人格障碍虐待 https://weibo.com/ttarticle/x/m/show/id/2309404320474581610292
+
+6. 表格：什么是无效化 https://m.weibo.cn/6889199898/4319070868390378
+
+7. 虐待的多种形态 https://m.weibo.cn/status/4320503000670103
+
+8. 孩子疏远家长的原因 https://weibo.com/ttarticle/x/m/show/id/2309404325864123817046
+
+9. “骂”是虐待，是语言和情感暴力 https://m.weibo.cn/status/4319250094856968
+
+10. “家丑不可外扬” 是一种毒性思想，常常被家庭中的虐待者拿来禁声虐待的受害者 https://m.weibo.cn/status/4319972010793638
+
+【心理互助账号】
+
+1. 复杂性创伤后应激 https://m.weibo.cn/u/6889199898
+
+=======
+
+关于心理自助与互助，大家还有什么比较好的材料吗？（上边是我的一些整理）
