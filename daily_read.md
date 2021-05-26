@@ -20518,3 +20518,37 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【台湾同婚合法两周年，已有5871对同性情侣结婚】https://m.weibo.cn/status/KgOk6aDEz
 
 15. 【来聊聊彩虹群体出柜血泪史！｜【你的光芒】第39期】https://m.weibo.cn/status/KgGSYdTp5
+
+=======
+
+《每日文章精选 2021-05-25》 https://t.me/daily_read 
+
+1. 【疫情期间快递员外卖员获得的赞誉，能够补偿其遭受的控制和伤害吗？| 劳动节】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247496745&idx=1&sn=f015b72bb6ee72f13e0c0a0997e026c9
+
+2. 【从韦伯的“天职”到格雷伯的“狗屁工作”，我们如何认识工作与人的关系？】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247504220&idx=1&sn=7f9e427f6a360c4ffdac41f92a7bbc3b
+
+3. 【暖心❤️同志夫夫为养子女出版图画书《My Daddies》】https://m.weibo.cn/status/Kh7u12bWn
+
+4. 【850张跨性别者人脸雕塑现身伦敦美术馆】https://m.weibo.cn/status/Kh7Qrhg3D
+
+5. 【出生时拥有男女两套生殖器官，手术后同时拥有两个丁丁的人】https://m.weibo.cn/status/Kh5cMm2u4
+
+6. 【女士内衣广告不上身，怎么就招惹到男性了？】https://mp.weixin.qq.com/s/mpdUqGfDUmjgcDyeBkd1bg
+
+7. 【艾利奥特·佩吉晒出性别置换手术后新照，腹肌瞩目】http://www.douban.com/people/1109497/status/3449848519
+
+8. 【巴勒斯坦加沙地带，一位家里遭到以色列空袭的孩子，正在废墟里搜集自己仅剩的“童年”】https://m.weibo.cn/status/KfM901yBb
+
+9. 【R.I.P.🕯菲律宾跨性别男子被奸杀后肢解】https://m.weibo.cn/status/KgZKVxJUK
+
+10. 【西好莱坞市：《生来如此》彩虹地景亮相，Lady Gaga到场】https://m.weibo.cn/status/KgVESC5S8
+
+11. 【“浩劫”仍未结束：关于巴勒斯坦难民回归的迷思和可能】https://mp.weixin.qq.com/s/5F97IswdJ0wnYX6_19-LtQ
+
+12. 【我们需要为所有孩子提供包容和公平的 优质教育】https://m.weibo.cn/status/KgXKq6KUy
+
+13. 【虚拟团结、相对弱势与性别隔离：针对中国卡车司机的一组调研 | 专访】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247496352&idx=1&sn=75a184628be1406cf98d2fd37e7653bc
+
+14. 【每年的5月24日是泛性恋现身日，在这一天我们希望打破迷思，提高对泛性恋群体的可见度】http://www.douban.com/people/22189974/status/3449009720
+
+15. 【丽江反杀案女方申请国赔18万，亲属：已去外地，她对这里有阴影】https://m.weibo.cn/status/KgW06v25i
