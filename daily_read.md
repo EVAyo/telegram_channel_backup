@@ -20552,3 +20552,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【每年的5月24日是泛性恋现身日，在这一天我们希望打破迷思，提高对泛性恋群体的可见度】http://www.douban.com/people/22189974/status/3449009720
 
 15. 【丽江反杀案女方申请国赔18万，亲属：已去外地，她对这里有阴影】https://m.weibo.cn/status/KgW06v25i
+
+=======
+
+《每日文章精选 2021-05-26》 https://t.me/daily_read 
+
+1. 【一种不存在的疾病 ，在中国被治疗了二十年】https://m.weibo.cn/status/KhfesCDP6
+
+2. 【他叫黄关军，是一名来自四川的选手，亚洲第一+残运会冠军也许，挽救他生命的上一次机会，出现在一个月前】https://m.weibo.cn/status/Kh7hSoVDx
+
+3. 【暖心❤️上千名高中生请愿：把跨性别男孩的“名字”还给他】https://m.weibo.cn/status/Khgw11dKW
+
+4. 【➡️女权是改变社会压迫性的结构，而不是把矛头对准个人】https://m.weibo.cn/status/KheKkzW1W
+
+5. 【调查发现：59%的女性游戏玩家会隐藏性别，以避免被骚扰】https://m.weibo.cn/status/Khg8Biak0
+
+6. 【最近广东地区各种限电，有的开五停二，有的开四停三，工厂叫苦连天，甚至有单都不敢接】https://m.weibo.cn/status/KheIUvrrl
+
+7. 【同性情侣该如何维权“情侣套票”】https://m.weibo.cn/status/KheqaljGy
+
+8. 【扫描全网后，我们整理出一份最全的毕业生劳动合同排雷指南】https://mp.weixin.qq.com/s?__biz=Mzg2NzU5MDUxOQ==&mid=2247483853&idx=1&sn=f5affad3253b870ea7e7b801ed46cace
+
+9. 【石油黄昏时代的沙特阿美】https://mp.weixin.qq.com/s/BsfzwNfAlOOFtVSm-Bxwug
+
+10. 【律师谈同性恋人购情侣票入园遭拒：不合法且存在歧视】https://m.weibo.cn/detail/4640821242497799
