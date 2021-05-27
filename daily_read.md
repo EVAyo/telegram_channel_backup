@@ -20576,3 +20576,47 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【石油黄昏时代的沙特阿美】https://mp.weixin.qq.com/s/BsfzwNfAlOOFtVSm-Bxwug
 
 10. 【律师谈同性恋人购情侣票入园遭拒：不合法且存在歧视】https://m.weibo.cn/detail/4640821242497799
+
+=======
+
+《每日文章精选 2021-05-27》 https://t.me/daily_read 
+
+1. 【跨越半世纪的爱，1950年同志婚礼现场大曝光】https://m.weibo.cn/status/KhqIdcuu4
+
+2. 【漫威新作《永恒族》中首位同志英雄登场】https://m.weibo.cn/status/Khpgd60x9
+
+3. 【广州男子专挑女司机变道时碰瓷被刑拘 单月制造7次事故】https://m.weibo.cn/status/Khpnj8A9s
+
+4. 【美国一高中毕业照P图挡住女生胸口和肩膀：“这令女孩对自己的身体感到羞耻”】https://m.weibo.cn/status/KhqnYfcC2
+
+5. 【“女孩子都是香香软软的”这句话属实让人不适】http://www.douban.com/group/topic/227959318
+
+6. 【活着就好难了😭（我的全部工资）】http://www.douban.com/group/topic/227478809
+
+7. 【有人来问「避孕贴」的事情】https://m.weibo.cn/status/KhpuvBFig
+
+8. 【中国富豪在塞班建赌场剥削中国劳工，被美国法院判赔540万美元】https://www.douban.com/note/803779353
+
+9. 【啧，又不是结婚能拿补助，只是“取消”彩礼，一分钱没出，上嘴皮一碰下嘴皮，男人欢天喜地娶上了媳妇】http://www.douban.com/people/45046701/status/3452290102
+
+10. 【布鲁塞尔地铁线路图以杰出女性先驱姓名重新命名地铁站】https://m.weibo.cn/status/Khf2gw95Y
+
+11. 【以色列建国70周年｜一个国家的诞生和一群人的绝望】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484011&idx=1&sn=905d7269a6bb8bcfd539b59857a5b5b5
+
+12. 【为什么不能以“孩子气”或“诗人脾性”为顾城杀妻开脱？| 顾城谢烨逝世27周年】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247500855&idx=1&sn=4479395ca47dec8ecfac83e55c199dde
+
+13. 【疫病大流行下的“撤侨”：全球化与民族主义的国际法】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485332&idx=1&sn=23b364ad1510d3c20f7475650d98378f
+
+14. 【哥伦比亚抗议：反抗不公与加剧不公】https://mp.weixin.qq.com/s/BsfzwNfAlOOFtVSm-Bxwug
+
+15. 【雄安成为婚俗改革试验区，只改彩礼，不改冠姓权】http://www.douban.com/group/topic/227858566
+
+16. 【Truth matters.】http://www.douban.com/people/180693708/status/3452181499
+
+17. 【母乳喂养，大概是我30年来做的最错误和盲目的决定】https://www.douban.com/people/146510389/status/3452128334
+
+18. 【潦草的创刊词：字节PUA北大实习生引发的紧急上线】https://mp.weixin.qq.com/s/KniohYbeOsYhvxO3eAprmA
+
+19. 【一种不存在的疾病 ，在中国被治疗了二十年】https://m.weibo.cn/status/KhfesCDP6
+
+20. 【他叫黄关军，是一名来自四川的选手，亚洲第一+残运会冠军也许，挽救他生命的上一次机会，出现在一个月前】https://m.weibo.cn/status/Kh7hSoVDx
