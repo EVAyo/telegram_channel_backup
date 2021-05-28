@@ -20620,3 +20620,23 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【一种不存在的疾病 ，在中国被治疗了二十年】https://m.weibo.cn/status/KhfesCDP6
 
 20. 【他叫黄关军，是一名来自四川的选手，亚洲第一+残运会冠军也许，挽救他生命的上一次机会，出现在一个月前】https://m.weibo.cn/status/Kh7hSoVDx
+
+=======
+
+《每日文章精选 2021-05-28》 https://t.me/daily_read 
+
+1. 【白银越野赛部分遇难者名单】https://m.weibo.cn/status/KhB50vY9X
+
+2. 【1936年，因为反对民选的左翼共和政府，西班牙军人佛朗哥发动武装叛乱】https://m.weibo.cn/status/KhrIQcQqG
+
+3. 【祈求同情，或被包装：这些年的港产片这样写性小众群体】https://mp.weixin.qq.com/s/GeG9Fq-GNHf8r-NaQ4In7Q
+
+4. 【大卫·格雷伯：为什么越来越多“狗屁工作”被创造了出来？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484181&idx=1&sn=f39f45ceea7bf77b9bdc45b6ed9a9e1a
+
+5. 【因为极端天气，我曾叫停一场百公里越野赛】https://mp.weixin.qq.com/s/2Lp20L43XZLB-cGWxdVxqg
+
+6. 【疫论·劳动｜疫情下的美国工作：传染病会加速机器换人吗？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485243&idx=2&sn=9468ad0803531918da5f25cfe4135766
+
+7. 【对不起，“聋”不是遇难的原因！！】https://mp.weixin.qq.com/s/JK5R_aCrkjTKpFIrgI2-Vw
+
+8. 【“我是网约车司机，聋人沈师傅”35岁的他戴着助听器认真开车，想做一个生活的奔跑者】https://m.weibo.cn/status/KhrwPygsm
