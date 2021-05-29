@@ -20640,3 +20640,19 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 7. 【对不起，“聋”不是遇难的原因！！】https://mp.weixin.qq.com/s/JK5R_aCrkjTKpFIrgI2-Vw
 
 8. 【“我是网约车司机，聋人沈师傅”35岁的他戴着助听器认真开车，想做一个生活的奔跑者】https://m.weibo.cn/status/KhrwPygsm
+
+=======
+
+《每日文章精选 2021-05-28》 https://t.me/daily_read 
+
+1. 【“我们是巴勒斯坦”：巴勒斯坦与全球抗争的情感团结】https://www.thepaper.cn/newsDetail_forward_12881207
+
+2. 【数百名巴勒斯坦艺术家和作家联署呼吁停止种族隔离和对巴勒斯坦人的暴力】https://m.weibo.cn/status/KhBZFyVtI
+
+3. 【生活中有哪些不易察觉的性别歧视？】http://www.douban.com/people/1087580/status/3454317923
+
+4. 【网易正式调查HR不当言论】https://m.weibo.cn/status/KhA2yvc7u
+
+5. 【网易互娱HR称帮忙下药撩女同事，网易：已解除劳务合同】https://m.weibo.cn/status/Khx9mzsqx
+
+6. 【那个男生，冲上主席台】https://mp.weixin.qq.com/s/1ea8tgNCKFGiFrNi2kWckw
