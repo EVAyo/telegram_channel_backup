@@ -20656,3 +20656,13 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 5. 【网易互娱HR称帮忙下药撩女同事，网易：已解除劳务合同】https://m.weibo.cn/status/Khx9mzsqx
 
 6. 【那个男生，冲上主席台】https://mp.weixin.qq.com/s/1ea8tgNCKFGiFrNi2kWckw
+
+=======
+
+《每日文章精选 2021-05-29》 https://t.me/daily_read 
+
+1. 【我，一个自闭症人士，为什么要当老师？】https://mp.weixin.qq.com/s/HWxsBkTRqMFiR4ymKNWf4A
+
+2. 【陈述事实＝引战？】https://m.weibo.cn/status/KhHBCgCiF
+
+3. 【从绝望到反抗：日本不稳定劳动者的社会运动】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484879&idx=1&sn=6300412a43f4ad824298ad752f46a6b5
