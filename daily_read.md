@@ -20666,3 +20666,61 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 2. 【陈述事实＝引战？】https://m.weibo.cn/status/KhHBCgCiF
 
 3. 【从绝望到反抗：日本不稳定劳动者的社会运动】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484879&idx=1&sn=6300412a43f4ad824298ad752f46a6b5
+
+=======
+
+《每日文章精选 2021-05-29》 https://t.me/daily_read 
+
+1. 【南斯拉夫残骸：卡在时间的断层中】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484780&idx=1&sn=b3ec1a8cd2ac522b827c3d22b94de97f
+
+2. 【尽绵薄之力再次呼吁请重视产妇尊严吧！】http://www.douban.com/group/topic/198117710
+
+3. 【Obaida Akram，两年前作为主角被拍进一个关于巴勒斯坦被囚禁的孩子们的短片中】https://m.weibo.cn/status/Kgfd0iJG1
+
+4. 【就，我其实真的不愿意被人叫“东哥”】https://www.douban.com/people/1087580/status/3456249727
+
+5. 【大卫·格雷伯：为什么越来越多“狗屁工作”被创造了出来？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484181&idx=1&sn=f39f45ceea7bf77b9bdc45b6ed9a9e1a
+
+6. 【请教育部门别再成为残障人士前进路上的拦路虎了！】https://mp.weixin.qq.com/s/HL2QAfOcRrI5oGZbkN8Xsw
+
+7. 【双腿残疾就不能当老师吗？】https://mp.weixin.qq.com/s/YQ99JBxHU9X3TQJUdvK9tA
+
+8. 【为拿教师资格证，我去迁了户口】https://mp.weixin.qq.com/s/PptVcMDE5DexBRwAY_fnkQ
+
+9. 【被体检卡住残障老师：他们出现在学校里，才会影响新一批年轻人】https://mp.weixin.qq.com/s/YL0w-4k3zILlOmat7fKsCQ
+
+10. 【融合教育那些事儿】https://mp.weixin.qq.com/s/B4FfiM4TK2Ovw-l2HChtwA
+
+=======
+
+《每日文章精选 2021-05-29》 https://t.me/daily_read 
+
+1. 【南斯拉夫残骸：卡在时间的断层中】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484780&idx=1&sn=b3ec1a8cd2ac522b827c3d22b94de97f
+
+2. 【尽绵薄之力再次呼吁请重视产妇尊严吧！】http://www.douban.com/group/topic/198117710
+
+3. 【Obaida Akram，两年前作为主角被拍进一个关于巴勒斯坦被囚禁的孩子们的短片中】https://m.weibo.cn/status/Kgfd0iJG1
+
+4. 【就，我其实真的不愿意被人叫“东哥”】https://www.douban.com/people/1087580/status/3456249727
+
+5. 【大卫·格雷伯：为什么越来越多“狗屁工作”被创造了出来？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484181&idx=1&sn=f39f45ceea7bf77b9bdc45b6ed9a9e1a
+
+6. 【请教育部门别再成为残障人士前进路上的拦路虎了！】https://mp.weixin.qq.com/s/HL2QAfOcRrI5oGZbkN8Xsw
+
+7. 【双腿残疾就不能当老师吗？】https://mp.weixin.qq.com/s/YQ99JBxHU9X3TQJUdvK9tA
+
+8. 【为拿教师资格证，我去迁了户口】https://mp.weixin.qq.com/s/PptVcMDE5DexBRwAY_fnkQ
+
+9. 【被体检卡住残障老师：他们出现在学校里，才会影响新一批年轻人】https://mp.weixin.qq.com/s/YL0w-4k3zILlOmat7fKsCQ
+
+10. 【融合教育那些事儿】https://mp.weixin.qq.com/s/B4FfiM4TK2Ovw-l2HChtwA
+
+11. 【我，一个自闭症人士，为什么要当老师？】https://mp.weixin.qq.com/s/HWxsBkTRqMFiR4ymKNWf4A
+
+12. 【为什么一定要有残障老师？】https://mp.weixin.qq.com/s/HdogiL9TUGPIyrSSUflp7A
+
+13. 【更多的“邹蜜”，也都渴望改变】https://mp.weixin.qq.com/s/XN1XM4E_4mEtlIpWIaeaxQ
+
+14. 【关于将助残日改成残障人节的倡议信】https://mp.weixin.qq.com/s/oZkCecf-NWJfaeFqg_xJHg
+
+15. 【《掌声》：一篇让残障者困境继续加深的课文】https://mp.weixin.qq.com/s/YMy0keeTzKsTU0enAdT0_Q
