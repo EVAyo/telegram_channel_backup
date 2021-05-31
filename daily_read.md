@@ -20729,7 +20729,7 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 《每日文章精选 2021-05-31》 https://t.me/daily_read 
 
-1. 【​伤害过7000个孩子、曾遭全网痛恨的杨永信，如今居然当上了副院长】https://mp.weixin.qq.com/s/P7Q7hpmpO3prxreKcqLqcg
+1. 【 伤害过7000个孩子、曾遭全网痛恨的杨永信，如今居然当上了副院长】https://mp.weixin.qq.com/s/P7Q7hpmpO3prxreKcqLqcg
 
 2. 【那间发现215具儿童尸体的寄宿学校，曾是加拿大的噩梦|今日加政】https://mp.weixin.qq.com/s/dBzr4SavAB0ywx2UZC3edA
 
@@ -20745,7 +20745,7 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 8. 【我也比较认同这种说法，杀害伴侣是家庭暴力的最终表现形式，并不能孤立地去看它是一次的杀害行为】http://www.douban.com/people/7158011/status/3458349187
 
-9. 【呵呵】http://www.douban.com/people/1000437/status/3458368268
+9. 【“你们现在可以生了”并不能让人多生孩子】http://www.douban.com/people/1000437/status/3458368268
 
 10. 【六一送弟弟什么礼物 → 六一送小朋友什么礼物改成这样很难吗？ source】https://m.weibo.cn/status/Ki1RW1dQ0
 
@@ -20759,7 +20759,7 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 15. 【新新工人：从iPhone车间到脱口秀舞台，从富士康到深圳】https://mp.weixin.qq.com/s/1BeHdQa6_cs0wpfMMa7dbw
 
-16. 【我朋友圈的一个瑜伽店老板给我看吐了】https://m.weibo.cn/status/KhZ2sfALB
+16. 【2021年了我都震惊还有人这么宣传，为了赚钱传播焦虑物化女性一把好手】https://m.weibo.cn/status/KhZ2sfALB
 
 17. 【诺贝尔奖得主马拉拉的父亲自述】https://weibo.com/7487711100/Kge86sfx8
 
@@ -20768,3 +20768,47 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【疫论·劳动｜疫情下的跨国劳工——回乡、失业、隔离与劳动】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485384&idx=2&sn=c3c581ced948b9f2e99014ea126d3d80
 
 20. 【生育对于一位女性意味着什么？】http://www.douban.com/people/2824538/status/3457810121
+
+=======
+
+《每日文章精选 2021-05-31》 https://t.me/daily_read 
+
+21. 【误读：酷儿经历与酷儿艺术在中国】https://m.weibo.cn/status/4624812423512139
+
+22. 【酷儿与规范】https://m.weibo.cn/status/KhU35ezpF
+
+23. 【南京女生的同事发文了】http://www.douban.com/group/topic/228377026
+
+24. 【英国仇恨犯罪与厌女】https://m.weibo.cn/status/KhTq8ex88
+
+25. 【文凭、技能与地位：如果学到的知识用不上，我们为何还要上大学？】https://mp.weixin.qq.com/s?__biz=MzI3NzUyMTE3NA==&mid=2247489525&idx=1&sn=d2a2dac98694fa59bcdd202d09b9e1a2
+
+26. 【翻到一篇好棒的男杀女伴侣的相关文献】https://m.weibo.cn/status/KhTDy3dls
+
+27. 【从斯科特到格雷伯：无政府主义与人类学】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484736&idx=1&sn=4ebe8766b8f6b2776a3c933a08921907
+
+28. 【她/他们只是孩子——纪念巴以冲突中死去的69位儿童】https://mp.weixin.qq.com/s/VN9m8vrIvMgVDpKcC36uOg
+
+29. 【再说一次，南京事起第一时间就能传男的“杀了出轨的老婆和姘头”的人，极蠢极恶】https://www.douban.com/people/1874079/status/3456657056
+
+30. 【情侣夫妻叫感情纠纷】https://www.douban.com/people/1874079/status/3456664760
+
+31. 【也许你不知道，莫扎特有一个姐姐娜奈尔，有可能是一个更伟大的作曲家和演奏家】http://www.douban.com/group/topic/228262452
+
+32. 【哪些画与画家让你觉得遇见知己】http://www.douban.com/people/cattisky/status/3020871033
+
+33. 【南斯拉夫残骸：卡在时间的断层中】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484780&idx=1&sn=b3ec1a8cd2ac522b827c3d22b94de97f
+
+34. 【尽绵薄之力再次呼吁请重视产妇尊严吧！】http://www.douban.com/group/topic/198117710
+
+35. 【Obaida Akram，两年前作为主角被拍进一个关于巴勒斯坦被囚禁的孩子们的短片中】https://m.weibo.cn/status/Kgfd0iJG1
+
+36. 【就，我其实真的不愿意被人叫“东哥”】https://www.douban.com/people/1087580/status/3456249727
+
+37. 【大卫·格雷伯：为什么越来越多“狗屁工作”被创造了出来？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247484181&idx=1&sn=f39f45ceea7bf77b9bdc45b6ed9a9e1a
+
+38. 【请教育部门别再成为残障人士前进路上的拦路虎了！】https://mp.weixin.qq.com/s/HL2QAfOcRrI5oGZbkN8Xsw
+
+39. 【双腿残疾就不能当老师吗？】https://mp.weixin.qq.com/s/YQ99JBxHU9X3TQJUdvK9tA
+
+40. 【为拿教师资格证，我去迁了户口】https://mp.weixin.qq.com/s/PptVcMDE5DexBRwAY_fnkQ
