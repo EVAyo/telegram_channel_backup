@@ -20812,3 +20812,33 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 39. 【双腿残疾就不能当老师吗？】https://mp.weixin.qq.com/s/YQ99JBxHU9X3TQJUdvK9tA
 
 40. 【为拿教师资格证，我去迁了户口】https://mp.weixin.qq.com/s/PptVcMDE5DexBRwAY_fnkQ
+
+=======
+
+《每日文章精选 2021-06-01》 https://t.me/daily_read 
+
+1. 【老公得了肝癌晚期，她把孩子打了】http://www.douban.com/group/topic/228682393
+
+2. 【在性别问题上，我就是比较双标，为什么？原因如图：因为女性和男性面对的不是同一个社会】http://www.douban.com/people/161160490/status/3459758228
+
+3. 【“职业女性”是一个伪概念】https://www.douban.com/people/2473154/status/3458479234
+
+4. 【爱与生命白日谈 被长期污名的跨性别者】https://m.weibo.cn/status/Ki7Tr9wrk
+
+5. 【张萌专栏 | 生个孩子我还不能决定他跟谁姓了？】https://mp.weixin.qq.com/s/RU7qW7vKCmaaIffaRR1lcQ
+
+6. 【当残障权利遭遇社会质疑，我们该怎么办？】https://mp.weixin.qq.com/s/Jg5odMgUJnwSikyFEGckJQ
+
+7. 【疫论·社会｜古巴“医疗外交”：走向商品化的国际人道主义？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485375&idx=1&sn=0d26a139edc999a8cc545d63d1c18cd1
+
+8. 【结扎故事】http://www.douban.com/group/topic/228542012
+
+9. 【生活组这位姐们儿太野了】http://www.douban.com/group/topic/228559583
+
+10. 【“男性接受了太多成功学的教育，对社会、对女性，一律看成资源，去掠夺，去占有】http://www.douban.com/people/rex2xt/status/3459004406
+
+11. 【希望大家明白，能够不婚不育或者晚婚晚育，是需要经济、教育、原生家庭等多方面的支撑的】https://m.weibo.cn/status/Ki42H4zOp
+
+12. 【 伤害过7000个孩子、曾遭全网痛恨的杨永信，如今居然当上了副院长】https://mp.weixin.qq.com/s/P7Q7hpmpO3prxreKcqLqcg
+
+13. 【那间发现215具儿童尸体的寄宿学校，曾是加拿大的噩梦|今日加政】https://mp.weixin.qq.com/s/dBzr4SavAB0ywx2UZC3edA
