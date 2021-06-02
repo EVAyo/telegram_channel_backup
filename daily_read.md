@@ -20842,3 +20842,15 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 12. 【 伤害过7000个孩子、曾遭全网痛恨的杨永信，如今居然当上了副院长】https://mp.weixin.qq.com/s/P7Q7hpmpO3prxreKcqLqcg
 
 13. 【那间发现215具儿童尸体的寄宿学校，曾是加拿大的噩梦|今日加政】https://mp.weixin.qq.com/s/dBzr4SavAB0ywx2UZC3edA
+
+=======
+
+《每日文章精选 2021-06-02》 https://t.me/daily_read 
+
+1. 【在一段本该平等的关系中，授予别人特权，自己却承担不平等的义务，如果是心甘情愿的，我只能把这种行为称之为“献媚”。】https://www.douban.com/people/48795282/status/3460774164
+
+2. 【“恶之平庸”离我们有多远？从桶川跟踪狂杀人事件到N号房】https://mp.weixin.qq.com/s/VvTxS1pLY9LD3c9dSIq8iA
+
+3. 【100年前的今天，Oklahoma州发生震惊美国的种族大屠杀。超过300个黑人被杀，几十个社区被烧。史称Tulsa Race Massacre】https://m.weibo.cn/status/Ki5Qb7ZK6
+
+4. 【pride存在的意义在于纪念和解放。骄傲月日历的“分类”恰恰是反分类的，因为它消解了分类标准的单一性，性别、性取向和浪漫关系取向等等从不同的方向切分了性/别的多维世界，这些暂定的认同意味着所有人都可以告别某种身份并拥抱另一种身份，而不需要为其存在本身无法被理解而恐惧】http://www.douban.com/people/180693708/status/3460284121
