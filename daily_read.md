@@ -20854,3 +20854,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【100年前的今天，Oklahoma州发生震惊美国的种族大屠杀。超过300个黑人被杀，几十个社区被烧。史称Tulsa Race Massacre】https://m.weibo.cn/status/Ki5Qb7ZK6
 
 4. 【pride存在的意义在于纪念和解放。骄傲月日历的“分类”恰恰是反分类的，因为它消解了分类标准的单一性，性别、性取向和浪漫关系取向等等从不同的方向切分了性/别的多维世界，这些暂定的认同意味着所有人都可以告别某种身份并拥抱另一种身份，而不需要为其存在本身无法被理解而恐惧】http://www.douban.com/people/180693708/status/3460284121
+
+=======
+
+《每日文章精选 2021-06-03》 https://t.me/daily_read 
+
+1. 【我是一个农村长大的大专生，说说我所获得过的教育资源】http://www.douban.com/group/topic/228990756
+
+2. 【你所遭受的“招聘暴力”】http://www.douban.com/people/194190555/status/3454841313
+
+3. 【世界自行车日】https://m.weibo.cn/status/Kitk8pwA8
+
+4. 【大众舆论对男人和女人审美的区别，是对人与物的区别】http://www.douban.com/group/topic/228911731
+
+5. 【被领导故意撮合怎么办领导仿佛有那个大病】https://m.weibo.cn/status/KiuWHhpJw
+
+6. 【当众表白，一场毫无必要的表演】https://mp.weixin.qq.com/s/Oz3FpId0uI3ll5KcVECzvg
+
+7. 【联合国妇女署中国办公室“青海省农村妇女经济赋权”项目正在招聘】https://m.weibo.cn/status/KijoArNct
+
+8. 【台阶上摆满215双童鞋，无言的沉默抗议着加拿大历史的黑暗一面】https://mp.weixin.qq.com/s/QOa81wNlVS2B-z95iPQ_UA
+
+9. 【全球超五千名学者在疫情中呼吁劳动民主化——联名进行时】https://mp.weixin.qq.com/s/tURRgXEdfvAZQOcLX9_TgQ
+
+10. 【紫丝带妈妈群像：离婚后为何很难见孩子？】https://m.weibo.cn/status/KicqY7YUH
