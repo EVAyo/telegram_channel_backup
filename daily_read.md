@@ -20890,3 +20890,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【得州女高中生超燃演讲今天，得克萨斯州一位高中生在毕业典礼上的演讲火遍外网】https://m.weibo.cn/status/KiDdKuxzL
 
 4. 【运动场色情偷拍，东京奥运会能终结这场20年的梦魇吗】https://mp.weixin.qq.com/s/g5f5TzyrgKy4r6icXxE_3w
+
+=======
+
+《每日文章精选 2021-06-05》 https://t.me/daily_read 
+
+1. 【员工不加班被判赔偿企业1.8万元，这个案子太荒唐了】https://m.weibo.cn/status/KiNkZBzvB
+
+2. 【我在星巴克遇到了听障咖啡师】https://m.weibo.cn/status/KiJnlmBdJ
+
+3. 【听障人士叫救护车的方式】https://m.weibo.cn/status/KiFyiayYV
+
+4. 【被凝视的身体，被道德化的“苗条”：进食障碍背后的“苗条暴政”】https://mp.weixin.qq.com/s/H8FCpUvQl9YeiYsW_YA9kQ
+
+5. 【疫病大流行下的“撤侨”：全球化与民族主义的国际法】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485332&idx=1&sn=23b364ad1510d3c20f7475650d98378f
+
+6. 【那些被抹除的女性成就】https://m.weibo.cn/status/KiFRfgonM
+
+7. 【作为三胎家庭的老大来说一下我的感受】http://www.douban.com/group/topic/228762631
+
+8. 【圆桌｜应对种族主义，亚裔要更加拥抱“美国性”？】https://mp.weixin.qq.com/s?__biz=MzU4NzQ4OTYzMA==&mid=2247485365&idx=1&sn=8b82095c28ecdc05fb3e074a9037a05a
+
+9. 【那间发现215具儿童尸体的寄宿学校，曾是加拿大的噩梦|今日加政】https://mp.weixin.qq.com/s/dBzr4SavAB0ywx2UZC3edA
+
+10. 【感觉从男生对女生穿衣服上的态度 能看出很多东西】http://www.douban.com/group/topic/223936059
