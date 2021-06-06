@@ -20914,3 +20914,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【那间发现215具儿童尸体的寄宿学校，曾是加拿大的噩梦|今日加政】https://mp.weixin.qq.com/s/dBzr4SavAB0ywx2UZC3edA
 
 10. 【感觉从男生对女生穿衣服上的态度 能看出很多东西】http://www.douban.com/group/topic/223936059
+
+=======
+
+《每日文章精选 2021-06-06》 https://t.me/daily_read 
+
+1. 【跨男跨女伪音速成】https://m.weibo.cn/status/KiP6jvSAl
+
+2. 【大数据显示女生平均体育素养优于男生（上海），别再说女生不擅长体育啦】https://weibo.com/ttarticle/p/show?id=2309354644856655118425
+
+3. 【喵的科普：怀孕后身体会发生哪些变化】https://m.weibo.cn/status/KiKwmpMe2
+
+4. 【衡水中学的秘密其实真的很简单，什么高压学习刷题跑操穷人改变命运随便听听就好】http://www.douban.com/group/topic/229377500
+
+5. 【摸鱼的经验可能有很多条，但核心精髓是：进攻代替防守】https://www.douban.com/people/2540043/status/3465811984
+
+6. 【兰新线事故9名遇难者均为女性】https://m.weibo.cn/status/KiWfcqGnx
+
+7. 【讲座丨印度尼西亚左翼伊斯兰及其南亚起源】https://www.thepaper.cn/newsDetail_forward_12988650
+
+8. 【求助于鹅们，我完成了性别重置手术但是却无法修改学历信息】http://www.douban.com/group/topic/229264564
+
+9. 【疫情之下｜南非：全球“大隔离”下的种族隔离阴霾】https://www.thepaper.cn/newsDetail_forward_6787530
+
+10. 【成为程序员之前，他以为这辈子只能做推拿】https://www.douban.com/note/804456219
