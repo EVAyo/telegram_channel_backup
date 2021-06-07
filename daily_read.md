@@ -20938,3 +20938,33 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【疫情之下｜南非：全球“大隔离”下的种族隔离阴霾】https://www.thepaper.cn/newsDetail_forward_6787530
 
 10. 【成为程序员之前，他以为这辈子只能做推拿】https://www.douban.com/note/804456219
+
+=======
+
+《每日文章精选 2021-06-07》 https://t.me/daily_read 
+
+1. 【富士康厂区Les们的周末饭局】https://mp.weixin.qq.com/s/Z3DvokXov-Q-yGB4EDrS4A
+
+2. 【在东京奥运会和残奥会之前，LGBTQ 政党和人权组织呼吁日本制定法律，禁止基于性取向和性别认同的歧视】https://m.weibo.cn/status/Kj5aQAAMe
+
+3. 【小姐姐第一次去健身房锻炼，就被一群陌生人拍照嘲笑，这种感觉真的很难受...】https://m.weibo.cn/status/Kj3bvdnAG
+
+4. 【身材焦虑背后的讯息：进食障碍后的身心灵探索】https://mp.weixin.qq.com/s/2IPRux_n5jnoOA1HJH4wPQ
+
+5. 【祝福！11名全盲考生使用盲文试卷参加2021高考】https://mp.weixin.qq.com/s/3I-F4J5AxqruCzIBfYG-_A
+
+6. 【印度妇女的“月经小屋”设施全面升级】https://m.weibo.cn/status/Kj4OxoNH8
+
+7. 【户口制 ≈ 种姓制】https://m.weibo.cn/status/Kj4hsEG8M
+
+8. 【“北外徐某”们，听好了，这是她们反击的歌声！】https://mp.weixin.qq.com/s/ORRVCNjadMSK0n4uCxNDqQ
+
+9. 【生活中有什么很常见却很性别歧视的事情】https://m.weibo.cn/status/Kj2nCDjWT
+
+10. 【铁路施工工地9人遇难，全为女性，疑似涉及外包，媒体报道全网删光】http://www.douban.com/group/topic/229527062
+
+11. 【爱与生命白日谈 跨性别者“出柜”困难】https://m.weibo.cn/status/KiT1Vm64Z
+
+12. 【小伙伴投稿 投稿，大无语，抖音上看到的，30多岁没结婚被派出所喊去写证明】https://m.weibo.cn/status/KiVQp0baa
+
+13. 【兰新线事故9名遇难者均为女性】https://m.weibo.cn/status/KiWfcqGnx
