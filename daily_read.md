@@ -20968,3 +20968,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 12. 【小伙伴投稿 投稿，大无语，抖音上看到的，30多岁没结婚被派出所喊去写证明】https://m.weibo.cn/status/KiVQp0baa
 
 13. 【兰新线事故9名遇难者均为女性】https://m.weibo.cn/status/KiWfcqGnx
+
+=======
+
+《每日文章精选 2021-06-08》 https://t.me/daily_read 
+
+1. 【富士康厂区Les们的周末饭局】https://mp.weixin.qq.com/s/Z3DvokXov-Q-yGB4EDrS4A
+
+2. 【联合国开发计划署 《保障性少数群体平等就业权的法律与政策研究》报告正式发布!】https://m.weibo.cn/status/Kjexh8YJq
+
+3. 【你如何对抗身材焦虑】http://www.douban.com/people/58663850/status/3468748812
+
+4. 【跟妻子出柜后】https://mp.weixin.qq.com/s?__biz=MjM5NDQzNTM0MQ==&mid=2654195765&idx=1&sn=9c7a5a46f8b12f08dfb6d40280975313
+
+5. 【磨洋工学】https://m.weibo.cn/status/Kjczs2tlx
+
+6. 【不是女性逐渐沦为底层工人，女性劳动者一直都很多很多】https://www.douban.com/people/1416583/status/3468293602
+
+7. 【职场拒绝女性：女的干不了脏活累活。生活奴役女性：这种简单不动脑子的活女的干就行了，男的得干大事。 】https://www.douban.com/people/4597403/status/3468260624
+
+8. 【第一次听说家属工】https://m.weibo.cn/status/Kj3YW5azx
+
+9. 【兰新铁路事故遇难者都是女性】https://m.weibo.cn/status/Kj81Zcbzh
+
+10. 【在东京奥运会和残奥会之前，LGBTQ 政党和人权组织呼吁日本制定法律，禁止基于性取向和性别认同的歧视】https://m.weibo.cn/status/Kj5aQAAMe
