@@ -20840,3 +20840,13 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【跨性别女性与女孩一直都是性别解放的斗争中不可或缺的一部分】https://www.douban.com/note/798868554
 
 4. 【医学博士揭穿19个关于“怀孕”的谣言】https://m.weibo.cn/status/Kjf0a7Cxu
+
+=======
+
+《每日文章精选 2021-06-10》 https://t.me/daily_read 
+
+1. 【反男性凝视是反男性对女性的物化审视，反男性对女性审美的垄断】https://m.weibo.cn/status/KjyWzvj1Z
+
+2. 【跨性别者霏霏】https://mp.weixin.qq.com/s/uSnENexsqiSv0nV4aL56ZQ
+
+3. 【加拿大原住民寄宿学校：种族灭绝、真相与和解、引用政治】https://www.thepaper.cn/newsDetail_forward_13061595
