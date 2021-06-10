@@ -2356,3 +2356,9 @@ None
 =======
 
 大家有什么平权类的instagram/facebook账号推荐吗？
+
+=======
+
+国际社会对香港运动的援助究竟有多大？有没有朋友研究过？
+
+https://t.me/freedom_watch/3854
