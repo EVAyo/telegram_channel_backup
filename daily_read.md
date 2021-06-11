@@ -20850,3 +20850,33 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 2. 【跨性别者霏霏】https://mp.weixin.qq.com/s/uSnENexsqiSv0nV4aL56ZQ
 
 3. 【加拿大原住民寄宿学校：种族灭绝、真相与和解、引用政治】https://www.thepaper.cn/newsDetail_forward_13061595
+
+=======
+
+《每日文章精选 2021-06-11》 https://t.me/daily_read 
+
+1. 【拒绝了一些男生，最大的感觉是心累，接触累，结束累，考虑如何拒绝更累】https://www.douban.com/people/62526525/status/3472740347
+
+2. 【被写进法律的“性教育”，离走进课堂还有多远？】https://mp.weixin.qq.com/s/2eI_Znv9V8HTlcJZqZin7A
+
+3. 【访谈巴勒斯坦学者巴希尔：巴勒斯坦民族主义框架中包含犹太人】https://www.thepaper.cn/newsDetail_forward_13071699
+
+4. 【很多男性声称支持性别平等，但却没有行动，为什么？】https://m.weibo.cn/status/KjHfv1kdR
+
+5. 【Hawkeye Initiative】https://m.weibo.cn/status/KjI8qkE8p
+
+6. 【我的出柜故事其实很简单，我给我的父母发了短信，然后就出柜了】https://m.weibo.cn/status/KjF9if57k
+
+7. 【爱尔兰变装皇后】https://m.weibo.cn/status/KjE6lzPvJ
+
+8. 【女性生育的痛需要被看见】https://m.weibo.cn/status/KjzJaiiI3
+
+9. 【一个让你进步更快的动作！】http://www.douban.com/group/topic/230123891
+
+10. 【“让我难过的不是分手，而是世界上唯一欣赏过的男孩消失了】https://m.weibo.cn/status/KjBdyp1TR
+
+11. 【很多人都认为，既然已经被凝视了，那就不要做会被凝视的行为】https://photo.weibo.com/h5/repost/reppic_id/1022%3A2307966443383814043688becca10ec4ec9469
+
+12. 【拿妇女受家暴这件事来说，我们很多人没有接触过真正的受害者或者所谓的“底层女性”】https://www.douban.com/people/138076161/status/3471749590
+
+13. 【反男性凝视是反男性对女性的物化审视，反男性对女性审美的垄断】https://m.weibo.cn/status/KjyWzvj1Z
