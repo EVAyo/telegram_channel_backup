@@ -20880,3 +20880,23 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 12. 【拿妇女受家暴这件事来说，我们很多人没有接触过真正的受害者或者所谓的“底层女性”】https://www.douban.com/people/138076161/status/3471749590
 
 13. 【反男性凝视是反男性对女性的物化审视，反男性对女性审美的垄断】https://m.weibo.cn/status/KjyWzvj1Z
+
+=======
+
+《每日文章精选 2021-06-12》 https://t.me/daily_read 
+
+1. 【倾听陌生LGBTQ朋友们的私人秘密❤️】https://m.weibo.cn/status/KjO80BaNA
+
+2. 【25位富豪“0”纳税巴菲特领衔，知道真相的美国人眼泪掉下来：纳税不是你想逃，想逃就能逃】https://mp.weixin.qq.com/s/ToJNfqv0ghWmJEOVRqU58g
+
+3. 【我的焦虑和身材好坏无关】https://mp.weixin.qq.com/s/NxVY6LygTJelycrl1UxyQA
+
+4. 【今天三亚下大雨，一个顺丰的妹子穿着雨衣送快递过来】https://www.douban.com/people/120956421/status/3473534134
+
+5. 【我今天再次被我的心理咨询师震惊到了】https://m.weibo.cn/status/KjJRUvbvV
+
+6. 【像“升职加薪，迎娶白富美，走向人生巅峰”这种话术，就是赤裸裸地把性资源当做一种战利品】https://m.weibo.cn/status/KjKH3dvsI
+
+7. 【兄弟刊|FTM的我，上对了厕所是什么感受？】https://mp.weixin.qq.com/s/dGZ-Rf1d27JRhQS1D7x6hg
+
+8. 【出生在一个聋人家庭是什么样的体验？】https://m.weibo.cn/status/HyVyq6ETj
