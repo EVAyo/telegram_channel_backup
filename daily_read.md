@@ -20900,3 +20900,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 7. 【兄弟刊|FTM的我，上对了厕所是什么感受？】https://mp.weixin.qq.com/s/dGZ-Rf1d27JRhQS1D7x6hg
 
 8. 【出生在一个聋人家庭是什么样的体验？】https://m.weibo.cn/status/HyVyq6ETj
+
+=======
+
+《每日文章精选 2021-06-13》 https://t.me/daily_read 
+
+1. 【跨性别现身日：当我们说跨性别，我们真的说对了吗？】https://mp.weixin.qq.com/s/-McnqyfgHLevZKiZ_DESJA
+
+2. 【巷仔口社会学丨再访跨国灰姑娘：台湾的照顾与迁移体制】https://mp.weixin.qq.com/s?__biz=MjM5MzM3NDY4Mw==&mid=2651253047&idx=1&sn=4b616a2e0dc31acb959d712440ac7da9
+
+3. 【爱尔兰发行彩虹旗骄傲邮票】https://m.weibo.cn/status/KjWMckJk4
+
+4. 【衣柜藏着女性对自己身体的看法，以及希望别人怎么看待她】http://www.douban.com/group/topic/230428656
+
+5. 【“妈妈，这个姐姐怎么了？”】https://mp.weixin.qq.com/s/AagUr3yOrxT6PlfoC91ywA
