@@ -20944,3 +20944,19 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 12. 【我们之声 | 学习性别研究：在中途相遇的旅程】https://mp.weixin.qq.com/s/k5JXSJH8KKBpz67VdPMhTg
 
 13. 【跨性别现身日：当我们说跨性别，我们真的说对了吗？】https://mp.weixin.qq.com/s/-McnqyfgHLevZKiZ_DESJA
+
+=======
+
+《每日文章精选 2021-06-14》 https://t.me/daily_read 
+
+1. 【「各位兄弟」，「各位大哥」不是性别包容的问候语】https://mp.weixin.qq.com/s/S-F5AIU-ftE9KF-uov53Qg
+
+2. 【签下“忠诚协议”，就能有效惩罚出轨男吗？】https://mp.weixin.qq.com/s/Uc9hC2mLRFTKdpCk1wKdKA
+
+3. 【性别是一种表演？读一读酷酷的朱迪斯·巴特勒 | 三明治荐书】https://mp.weixin.qq.com/s/DvlXXrF-Qxqps8dEEsqRVw
+
+4. 【骄傲月分享 042020年6月14日，去年的今天，Sarah Hegazi自杀身亡】https://m.weibo.cn/status/Kk7m54CV8
+
+5. 【从家务之战谈女性的精神负荷】https://www.douban.com/note/693354261
+
+6. 【我的抑郁症，与女本柔弱无关】https://mp.weixin.qq.com/s/NXadDjSOYck-nYzbPWKCoA
