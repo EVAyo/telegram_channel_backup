@@ -2355,10 +2355,12 @@ None
 
 =======
 
-大家有什么平权类的instagram/facebook账号推荐吗？
-
-=======
-
 国际社会对香港运动的援助究竟有多大？有没有朋友研究过？
 
 https://t.me/freedom_watch/3854
+
+=======
+
+https://www.thepaper.cn/newsDetail_forward_11341827
+
+巴特勒的书我读不懂，有什么其它文章/书籍可以让学渣也能了解相关理论吗？
