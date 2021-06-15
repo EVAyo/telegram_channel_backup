@@ -20960,3 +20960,21 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 5. 【从家务之战谈女性的精神负荷】https://www.douban.com/note/693354261
 
 6. 【我的抑郁症，与女本柔弱无关】https://mp.weixin.qq.com/s/NXadDjSOYck-nYzbPWKCoA
+
+=======
+
+《每日文章精选 2021-06-15》 https://t.me/daily_read 
+
+1. 【这是一个非常强有力的叙事武器——将强势一方粉饰为弱势，粉饰为受害者】http://www.douban.com/people/60688052/status/3478441959
+
+2. 【一个女生，哪怕拒绝了一个男的千百次，都不足以让对方听到她的感受】https://www.douban.com/people/1038939/status/3478520732
+
+3. 【广州一项调查显示：93%女性赞同“如果没有合适的结婚对象，不结婚也挺好”】https://m.weibo.cn/status/KkiJU3SIx
+
+4. 【我一直反对骂各种事件里的女性受害者】https://www.douban.com/people/138076161/status/3478064193
+
+5. 【富士康厂区女工拉拉们的周末饭局】https://mp.weixin.qq.com/s?__biz=MzA4NTg3OTEzNg==&mid=2653090453&idx=1&sn=bacaff5cf3cc983b448b119c9db1c9cf
+
+6. 【男权思维是一种非常原始的思维方式，就是2分法，用一刀切来归类一切事物】https://www.douban.com/people/37616451/status/3477375837
+
+7. 【“媚男”话术的滥用：异性恋霸权与男性中心主义的再生产】https://m.weibo.cn/status/4647586890514632
