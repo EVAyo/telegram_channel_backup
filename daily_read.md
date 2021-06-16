@@ -20978,3 +20978,71 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 6. 【男权思维是一种非常原始的思维方式，就是2分法，用一刀切来归类一切事物】https://www.douban.com/people/37616451/status/3477375837
 
 7. 【“媚男”话术的滥用：异性恋霸权与男性中心主义的再生产】https://m.weibo.cn/status/4647586890514632
+
+=======
+
+《每日文章精选 2021-06-16》 https://t.me/daily_read 
+
+1. 【“追女生”这个”追”字用的就感觉根本不是什么合理美好的关系】https://www.douban.com/people/87014889/status/3479440507
+
+2. 【王思聪这个，跟前几天黄执中在微博上分享的好像啊】http://www.douban.com/group/topic/230905315
+
+3. 【孙一宁是不是拉拉，很重要吗？给你们讲一个拉拉被强奸致死的案子】http://www.douban.com/group/topic/230930171
+
+4. 【郭麒麟童年遭大叔性侵】https://m.weibo.cn/status/KksbW3LPZ
+
+5. 【凯拉·奈特利：我认识的每个女人都遭受过骚扰】https://m.weibo.cn/status/KkszYrZkk
+
+6. 【跨儿游戏阅读清单 by Zoyander Street】https://mp.weixin.qq.com/s/c6z21-APva7mjYM5qdVTMA
+
+7. 【我发现母女关系紧张和厌女文化有很强的关联】http://www.douban.com/group/topic/223695605
+
+8. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/174061812/status/3023847830
+
+9. 【向“易性症”开战】https://www.douban.com/note/771914159
+
+10. 【一点关于国内跨性别医疗的补遗（1）】https://www.douban.com/note/771281586
+
+11. 【中国跨性别者面临的实际困难概要（二更于20.8.18）（持续更新）】https://www.douban.com/note/770780546
+
+12. 【“身为家长，我们所不能做的那一件事，便是约束孩子的心灵” ｜保护跨性别青少年】https://www.douban.com/note/797098934
+
+13. 【事实核查 | 搭建预防吸毒过量的场所并没有鼓励吸毒，却可以拯救生命】https://mp.weixin.qq.com/s/Kp_UBGmMaNd9oyZmp8-h_Q
+
+14. 【从桶川杀人到战争历史：日本记者清水洁如何抵抗“后真相时代”？ | 专访】https://mp.weixin.qq.com/s/8D7XIGtXzbiBjGkpaUlfPQ
+
+15. 【评论|王思聪和网红女生开撕，不是霸道总裁变“舔狗”的故事】https://m.weibo.cn/status/KkrG666cS
+
+16. 【昨天“热闹”了一整天的事件，让我彻夜难眠，今天我想和大家说说，顺便给大家提个醒】https://m.weibo.cn/status/KkrhZbiBq
+
+17. 【巴勒斯坦工运简史】https://www.thepaper.cn/newsDetail_forward_13150810
+
+18. 【你所遭受的“招聘暴力”】http://www.douban.com/people/208131719/status/3472501795
+
+19. 【打工人看了又真实又窒息的聊天】http://www.douban.com/group/topic/222093637
+
+20. 【爱情是女性经受的最大骗局，没有之一】http://www.douban.com/group/topic/221846074
+
+=======
+
+《每日文章精选 2021-06-16》 https://t.me/daily_read 
+
+21. 【羞耻】https://www.douban.com/note/805321124
+
+22. 【从孙一宁和王思聪的聊天记录里我看到了什么】https://www.douban.com/note/805337169
+
+23. 【按理说看到美女严辞拒绝富豪追求的事实时，无数男性应该蜂拥而至向这位他们眼中难得的奇女子致敬】https://www.douban.com/people/1416583/status/3478716547
+
+24. 【看不懂女性的敷衍学的都是性别不平等的既得利益者男人应该学会识别拒绝的信号王思聪是恐怖追求者】https://m.weibo.cn/status/KkkxVvGRU
+
+25. 【原来现在强抢民女，叫舔狗了】https://www.douban.com/people/42719293/status/3478652306
+
+26. 【女性表达在社会上的缺失可以用失语群体理论解释】https://mp.weixin.qq.com/s/w45uOhTcBo_tPw_8xmDnxA
+
+27. 【我愿称之为国男经典四部曲，太熟悉了】https://m.weibo.cn/status/Kkl0fnTVb
+
+28. 【这是一个非常强有力的叙事武器——将强势一方粉饰为弱势，粉饰为受害者】http://www.douban.com/people/60688052/status/3478441959
+
+29. 【今天这个瓜很有意思】https://www.douban.com/people/1038939/status/3478520732
+
+30. 【广州一项调查显示：93%女性赞同“如果没有合适的结婚对象，不结婚也挺好”】https://m.weibo.cn/status/KkiJU3SIx
