@@ -21150,3 +21150,19 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 5. 【作为女性受到的身体束缚】http://www.douban.com/people/183738781/status/3480207384
 
 6. 【你所经历的语言虐待】https://www.douban.com/people/82310791/status/3480589885
+
+=======
+
+《每日文章精选 2021-06-18》 https://t.me/daily_read 
+
+1. 【男航天员是生活不能自理吗？】http://www.douban.com/group/topic/231285888
+
+2. 【女航天员在生活照料方面能发挥一定特长？国女好惨哦，就算成航天员脱离地球也不能摆脱保姆刻板印象】http://www.douban.com/people/173090143/status/3482127180
+
+3. 【让彩虹旗在校园飘扬：一个高校同志小组的十二年纪实】https://www.douban.com/people/200570048/status/3481714653
+
+4. 【中山大学事件里那个恶意满满的说话者真的很眼熟】https://www.douban.com/people/135351501/status/3481283759
+
+5. 【即便是艺术也要尊重一个最基本的宇宙准则：“挑衅”永远是向上的，而非向下】https://www.douban.com/people/2072047/status/3481444688
+
+6. 【人肉电池】http://www.douban.com/people/liangyuejnu/status/3481683729
