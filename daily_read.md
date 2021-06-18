@@ -21134,3 +21134,19 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 39. 【原来现在强抢民女，叫舔狗了】https://www.douban.com/people/42719293/status/3478652306
 
 40. 【女性表达在社会上的缺失可以用失语群体理论解释】https://mp.weixin.qq.com/s/w45uOhTcBo_tPw_8xmDnxA
+
+=======
+
+《每日文章精选 2021-06-18》 https://t.me/daily_read 
+
+1. 【工作日常】【蚂蚁金服的朋友给我吐槽，他的项目被赶着上架】https://www.douban.com/people/1601580/status/3481151457
+
+2. 【对性少数群体最好的尊重不是喊口号，而是当作普普通通的你我他】https://m.weibo.cn/status/KkBWzz3hs
+
+3. 【当“我们”作为“母狗”出现在朋友圈】https://mp.weixin.qq.com/s/2MROMA0zIfxxs-3v2HpYzg
+
+4. 【Body Positivity】https://m.weibo.cn/status/KkEelCsRB
+
+5. 【作为女性受到的身体束缚】http://www.douban.com/people/183738781/status/3480207384
+
+6. 【你所经历的语言虐待】https://www.douban.com/people/82310791/status/3480589885
