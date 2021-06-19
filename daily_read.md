@@ -21166,3 +21166,25 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 5. 【即便是艺术也要尊重一个最基本的宇宙准则：“挑衅”永远是向上的，而非向下】https://www.douban.com/people/2072047/status/3481444688
 
 6. 【人肉电池】http://www.douban.com/people/liangyuejnu/status/3481683729
+
+=======
+
+《每日文章精选 2021-06-19》 https://t.me/daily_read 
+
+1. 【最近在读《我在现场》】https://www.douban.com/people/138076161/status/3482903732
+
+2. 【驕傲月，肉家妻妻和幾位lgbtq+自由職業者做了一本兒童讀物，展現多元家庭🌈，好讚～（👇🔗】https://m.weibo.cn/status/KkKznjiPI
+
+3. 【大家有没有经历过非常心酸的小事】http://www.douban.com/group/topic/120103753
+
+4. 【维密公布新模特，遭国外男性集体抵制】https://www.douban.com/people/163883162/status/3482569729
+
+5. 【巴勒斯坦工运简史】https://www.thepaper.cn/newsDetail_forward_13150810
+
+6. 【聊聊计划生育】https://m.weibo.cn/status/KkPTDuW0Q
+
+7. 【都2020了，还搞性别刻板印象那一套有意思吗？人家想穿啥穿啥！】https://m.weibo.cn/status/KkOikgxQR
+
+8. 【别点开，你会爱上乃万】https://m.weibo.cn/status/KeeEGAw1S
+
+9. 【视野｜双灵（two-spirit）：从北美原住民文化看“性别”】https://site.douban.com/283412/widget/notes/192710953/note/607015581
