@@ -21188,3 +21188,37 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 8. 【别点开，你会爱上乃万】https://m.weibo.cn/status/KeeEGAw1S
 
 9. 【视野｜双灵（two-spirit）：从北美原住民文化看“性别”】https://site.douban.com/283412/widget/notes/192710953/note/607015581
+
+=======
+
+《每日文章精选 2021-06-20》 https://t.me/daily_read 
+
+1. 【投稿孙一宁王思聪有感，每次看到男人表白被拒杀人的新闻，以及下面的评论，我都很伤心】https://m.weibo.cn/status/Kl4d3aFnM
+
+2. 【离婚后去送外卖，别人都说我命苦，我却说：自己赚钱的感觉太好了】https://mp.weixin.qq.com/s/2Nid_d---XfO_8jXdEPssQ
+
+3. 【这就是男人眼中的家庭主妇啊】http://www.douban.com/group/topic/231410541
+
+4. 【荷珥萌谁会开心自己有舔狗啊？女性遇到这种情形只会害怕得要命，不知道什么时候自己就不得好死了】https://m.weibo.cn/status/Kl0FYEIyp
+
+5. 【哥伦比亚抗争：全面战争的阴霾下，草根运动登上历史舞台】https://www.thepaper.cn/newsDetail_forward_13180733
+
+6. 【作为女性，你都经历过哪些语言暴力？】https://www.douban.com/people/59755052/status/3483798639
+
+7. 【除了结婚，我们是否还有表达喜爱的其他方式？】https://www.douban.com/note/805658409
+
+8. 【韩国快递工会启动无限期总罢工 | 韩国快递员过劳死问题未能解决，快递工会持续无限期罢工】https://m.weibo.cn/status/KkqtjgAMF
+
+9. 【离异家庭曲折的带娃经历】http://www.douban.com/group/topic/227002740
+
+10. 【这个真的需要诶，至少我们编辑行业很需要】https://www.douban.com/people/4015441/status/3483448515
+
+11. 【不知道在惠什么民，既然是让环卫工人有娱乐消遣的机会，为什么要让他们穿着工作服来娱乐消遣】http://www.douban.com/people/53688182/status/3483122860
+
+12. 【消除性别歧视】https://m.weibo.cn/status/KfMqQfgJ6
+
+13. 【建筑与记忆｜一些关于重庆的影像记录，城市规划与原住民生活发展的不协调所带来的疏离感】http://www.douban.com/people/139998810/status/3483214910
+
+14. 【才知道直播的人是三班倒工作的，就和以前纺织厂挡车女工一样】http://www.douban.com/people/1271611/status/3483193520
+
+15. 【在腾讯实习，却拿不到对应的工资】http://www.douban.com/group/topic/228112502
