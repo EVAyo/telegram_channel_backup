@@ -21222,3 +21222,21 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 14. 【才知道直播的人是三班倒工作的，就和以前纺织厂挡车女工一样】http://www.douban.com/people/1271611/status/3483193520
 
 15. 【在腾讯实习，却拿不到对应的工资】http://www.douban.com/group/topic/228112502
+
+=======
+
+《每日文章精选 2021-06-20》 https://t.me/daily_read 
+
+1. 【寻找妇女之地：女性共居的生活实践】https://mp.weixin.qq.com/s/4zl0cC_Ob-gv-b7959pJLA
+
+2. 【短波实验丨韩国工伤运动史、三星劳工抗争与疫情下的劳权】https://www.thepaper.cn/newsDetail_forward_13197264
+
+3. 【有点酷】https://m.weibo.cn/status/KkWgV2lPe
+
+4. 【中山大学事件里那个恶意满满的说话者真的很眼熟】https://www.douban.com/people/135351501/status/3481283759
+
+5. 【顺性别男性和ftm（跨性别男性）交往是什么体验？——伴侣视角经历分享】https://zhuanlan.zhihu.com/p/376340148
+
+6. 【不久前的一件事让我彻底改变了对女权的看法】https://m.weibo.cn/status/Kl7evxDBA
+
+7. 【司机威胁乘客：要感恩，长沙货拉拉女孩就是不知道感恩】https://m.weibo.cn/status/Kl3bOlYDX
