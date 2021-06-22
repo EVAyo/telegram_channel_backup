@@ -2364,3 +2364,9 @@ https://t.me/freedom_watch/3854
 https://www.thepaper.cn/newsDetail_forward_11341827
 
 巴特勒的书我读不懂，有什么其它文章/书籍可以让学渣也能了解相关理论吗？
+
+=======
+
+大家怎么看这篇文章？
+
+https://telegra.ph/%E7%8E%8B%E6%B1%9F%E6%9D%BE%E5%AF%B9%E5%8D%8E%E4%BA%BA%E5%B7%9D%E7%B2%89%E6%88%90%E5%9B%A0%E7%9A%84%E4%B8%80%E7%A7%8D%E7%A4%BE%E4%BC%9A%E6%B0%91%E4%B8%BB%E4%B8%BB%E4%B9%89%E9%80%8F%E8%A7%86%E6%80%9D%E6%83%B342%E6%9C%9F%E8%A7%A3%E8%AF%BB%E5%B7%9D%E6%99%AE%E7%8E%B0%E8%B1%A1-06-22 | source
