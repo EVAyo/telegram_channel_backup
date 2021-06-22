@@ -21284,3 +21284,23 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【离异家庭曲折的带娃经历】http://www.douban.com/group/topic/227002740
 
 20. 【这个真的需要诶，至少我们编辑行业很需要】https://www.douban.com/people/4015441/status/3483448515
+
+=======
+
+《每日文章精选 2021-06-22》 https://t.me/daily_read 
+
+1. 【男人会看是因为环境认定女人的胸是可耻的】https://m.weibo.cn/status/KlmiV397R
+
+2. 【这些反人类设计，全国女孩都想say no】https://mp.weixin.qq.com/s/v_VUW5JnPnoAD_Q4Jz8Eig
+
+3. 【女同性恋骄傲旗帜】https://m.weibo.cn/status/KllFgBHle
+
+4. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/180693708/status/3486833730
+
+5. 【球场上的人文】http://www.douban.com/people/2711526/status/3486644263
+
+6. 【关于自闭症的function labels/功能标签的问题，我觉得这个角度是非常需要考虑的…】https://m.weibo.cn/status/KlkrFuWgK
+
+7. 【之前一次我在苏州打网约车，上车就拿着手机看行车路线，司机问我能不能走什么环线，说现在很堵车】https://www.douban.com/people/68848724/status/3485664230
+
+8. 【骂彩礼并不是不想和女人结婚，而是想娶个“便宜老婆”回家】http://www.douban.com/group/topic/206456636
