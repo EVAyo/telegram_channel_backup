@@ -21304,3 +21304,17 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 7. 【之前一次我在苏州打网约车，上车就拿着手机看行车路线，司机问我能不能走什么环线，说现在很堵车】https://www.douban.com/people/68848724/status/3485664230
 
 8. 【骂彩礼并不是不想和女人结婚，而是想娶个“便宜老婆”回家】http://www.douban.com/group/topic/206456636
+
+=======
+
+《每日文章精选 2021-06-23》 https://t.me/daily_read 
+
+1. 【几个生产的真相】http://www.douban.com/group/topic/231688822
+
+2. 【6.18 泰国学生组织Bad students到教育部前抗议学校对性少数的歧视】https://m.weibo.cn/status/Kldyj1s9j
+
+3. 【为什么以色列如此急于压制“保卫谢赫贾拉”运动？】https://www.thepaper.cn/newsDetail_forward_13227352
+
+4. 【印度女医生穿着纱丽健身撸铁，被批判“不尊重传统”，更多网友出来帮她反驳：穿着沙丽明明什么都可以做！】https://m.weibo.cn/status/KlnpOnh3V
+
+5. 【你所遭受的“招聘暴力”】http://www.douban.com/people/164092023/status/3478381316
