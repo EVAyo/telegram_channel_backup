@@ -21318,3 +21318,15 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 4. 【印度女医生穿着纱丽健身撸铁，被批判“不尊重传统”，更多网友出来帮她反驳：穿着沙丽明明什么都可以做！】https://m.weibo.cn/status/KlnpOnh3V
 
 5. 【你所遭受的“招聘暴力”】http://www.douban.com/people/164092023/status/3478381316
+
+=======
+
+《每日文章精选 2021-06-23》 https://t.me/daily_read 
+
+1. 【澎湃思想周报丨土耳其攻击库尔德人；呼吁疫苗国际主义_思想市场_澎湃新闻-The Paper】https://www.thepaper.cn/newsDetail_forward_13227352
+
+2. 【生活中具有讽刺意味的场景】http://www.douban.com/people/1893056/status/3488561741
+
+3. 【当代职场女性现状一览】http://www.douban.com/people/4015441/status/3488370484
+
+4. 【家暴犯从哪里来？父权社会养出来，宠出来，栽培起来，纵容出来的】https://m.weibo.cn/status/K0Ximqvu9
