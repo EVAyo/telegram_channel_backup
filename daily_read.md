@@ -21330,3 +21330,15 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【当代职场女性现状一览】http://www.douban.com/people/4015441/status/3488370484
 
 4. 【家暴犯从哪里来？父权社会养出来，宠出来，栽培起来，纵容出来的】https://m.weibo.cn/status/K0Ximqvu9
+
+=======
+
+《每日文章精选 2021-06-24》 https://t.me/daily_read 
+
+1. 【这个味儿太熟了，请想象：8个老板面带微笑说：“我们支持996】http://www.douban.com/people/163883162/status/3489567111
+
+2. 【HM，这几个动作平时在家里做做，真的很有效的】http://www.douban.com/people/135718342/status/3489212175
+
+3. 【性别议题的有趣之处在于，会很容易暴露出女性意见被忽略，情愿相信数据和同性之间的交流，也会忘记去问问在场女性的看法】https://www.douban.com/people/1153398/status/3489164493
+
+4. 【“女孩可以装女人，但不代表她们已经准备好去做一个女人可以做的事】https://m.weibo.cn/status/Klwl4EmeR
