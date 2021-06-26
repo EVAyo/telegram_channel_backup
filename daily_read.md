@@ -21345,28 +21345,44 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 =======
 
-《每日文章精选 2021-06-25》 https://t.me/daily_read 
+《每日文章精选 2021-06-26》 https://t.me/daily_read 
 
-1. 【2019年，女足世界杯上，公开出柜为LGBTQ的女运动员（包括教练和训练员）就有41位】https://m.weibo.cn/status/KlP0AtLsb
+1. 【大码妹子吐槽酒店中各种对胖人不友好的设计：马桶太小，浴巾也小，挡了前面就挡不住后面！】https://m.weibo.cn/status/KlQvf7nJE
 
-2. 【如何看待妈妈生育后怕胸部下垂拒绝给婴儿喂养母乳这件事？这个答案看得我很难受】http://www.douban.com/group/topic/232118060
+2. 【2019年，女足世界杯上，公开出柜为LGBTQ的女运动员（包括教练和训练员）就有41位】https://m.weibo.cn/status/KlP0AtLsb
 
-3. 【获得订单后直接点击收货及送达，骑手杨4小时抢了253单，然后没有提现账户内的金额，直接注销了众包账号】http://www.douban.com/people/4015441/status/3490702224
+3. 【如何看待妈妈生育后怕胸部下垂拒绝给婴儿喂养母乳这件事？这个答案看得我很难受】http://www.douban.com/group/topic/232118060
 
-4. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
+4. 【获得订单后直接点击收货及送达，骑手杨4小时抢了253单，然后没有提现账户内的金额，直接注销了众包账号】http://www.douban.com/people/4015441/status/3490702224
 
-5. 【警惕女性在正面公众事件中的缺席（优秀榜样无法被看见）；警惕男性在负面公众事件中的缺席（加害者隐身）】https://www.douban.com/people/2072047/status/3490523638
+5. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
 
-6. 【热搜都是高考男生巴拉巴拉……我还以为高考只有男的参加呢！女状元特别多，可惜不能上热搜请周知！】https://www.douban.com/people/35739811/status/3490389669
+6. 【警惕女性在正面公众事件中的缺席（优秀榜样无法被看见）；警惕男性在负面公众事件中的缺席（加害者隐身）】https://www.douban.com/people/2072047/status/3490523638
 
-7. 【“我羡慕他能离开小城，能去别的地方过自由的生活……于是前夫就慢慢变成了我投射自身理想的客体】https://m.weibo.cn/status/KlNmQjYbz
+7. 【热搜都是高考男生巴拉巴拉……我还以为高考只有男的参加呢！女状元特别多，可惜不能上热搜请周知！】https://www.douban.com/people/35739811/status/3490389669
 
-8. 【真的扼腕】https://m.weibo.cn/status/KlN82vZwx
+8. 【“我羡慕他能离开小城，能去别的地方过自由的生活……于是前夫就慢慢变成了我投射自身理想的客体】https://m.weibo.cn/status/KlNmQjYbz
 
-9. 【如何看待女性被灌输单身恐惧】https://m.weibo.cn/status/KlNhS5XQv
+9. 【真的扼腕】https://m.weibo.cn/status/KlN82vZwx
 
-10. 【LGBT+】【匈牙利通过法律，禁止向未成年人提供有关LGBT+群体的媒体内容】https://m.weibo.cn/status/KlI8FfzqJ
+10. 【如何看待女性被灌输单身恐惧】https://m.weibo.cn/status/KlNhS5XQv
 
-11. 【成为“疯女人”】https://m.weibo.cn/status/KlGNphqvD
+11. 【LGBT+】【匈牙利通过法律，禁止向未成年人提供有关LGBT+群体的媒体内容】https://m.weibo.cn/status/KlI8FfzqJ
 
-12. 【这个味儿太熟了，请想象：8个老板面带微笑说：“我们支持996】http://www.douban.com/people/163883162/status/3489567111
+12. 【成为“疯女人” source】https://m.weibo.cn/status/KlGNphqvD
+
+13. 【这个味儿太熟了，请想象：8个老板面带微笑说：“我们支持996】http://www.douban.com/people/163883162/status/3489567111
+
+14. 【HM，这几个动作平时在家里做做，真的很有效的】http://www.douban.com/people/135718342/status/3489212175
+
+15. 【昨天跟人一起吃饭，气氛很好，聊天也蛮开心】https://www.douban.com/people/1153398/status/3489164493
+
+16. 【“女孩可以装女人，但不代表她们已经准备好去做一个女人可以做的事】https://m.weibo.cn/status/Klwl4EmeR
+
+17. 【澎湃思想周报丨土耳其攻击库尔德人；呼吁疫苗国际主义_思想市场_澎湃新闻-The Paper】https://www.thepaper.cn/newsDetail_forward_13227352
+
+18. 【生活中具有讽刺意味的场景】http://www.douban.com/people/1893056/status/3488561741
+
+19. 【当代职场女性现状一览】http://www.douban.com/people/4015441/status/3488370484
+
+20. 【家暴犯从哪里来？父权社会养出来，宠出来，栽培起来，纵容出来的】https://m.weibo.cn/status/K0Ximqvu9
