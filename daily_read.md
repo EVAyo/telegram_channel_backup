@@ -21386,3 +21386,31 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【当代职场女性现状一览】http://www.douban.com/people/4015441/status/3488370484
 
 20. 【家暴犯从哪里来？父权社会养出来，宠出来，栽培起来，纵容出来的】https://m.weibo.cn/status/K0Ximqvu9
+
+=======
+
+《每日文章精选 2021-06-27》 https://t.me/daily_read 
+
+1. 【哎呀，美国版的女同性恋约会真人秀《Coming Out for Love》要来了，预计今年秋天开播】https://m.weibo.cn/status/Km0t9ptOY
+
+2. 【这位妈妈是真的爱女儿】https://m.weibo.cn/status/KlZB6sffM
+
+3. 【原来这些路标都是人工画出来的，连人形标志也是画的！】https://m.weibo.cn/status/Km79naAsR
+
+4. 【为什么听障人士看不懂新闻手语？】https://m.weibo.cn/status/Km6dWdbHm
+
+5. 【如何从性骚扰/性侵的创伤中恢复】https://m.weibo.cn/status/KlXaAk2HD
+
+6. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/180693708/status/3492610493
+
+7. 【你所知道的电影冷知识】http://www.douban.com/people/80620968/status/3492399516
+
+8. 【老实说，本双非院校毕业生根本分不清哪些是985哪些是211】https://www.douban.com/people/138076161/status/3492371571
+
+9. 【前两日公交车上所见风景】http://www.douban.com/people/50910458/status/3492255037
+
+10. 【车祸赔钱了吗？行为人控制了吗？保险买了吗？怎么善后的？就这么吃干抹净发新闻了？】http://www.douban.com/people/45307956/status/3491852998
+
+11. 【投稿】【微博的阴间推送？？？？？暗戳戳地影射什么呢？？咋这么恶毒？？？】https://m.weibo.cn/status/KlUijEnh5
+
+12. 【大码妹子吐槽酒店中各种对胖人不友好的设计：马桶太小，浴巾也小，挡了前面就挡不住后面！】https://m.weibo.cn/status/KlQvf7nJE
