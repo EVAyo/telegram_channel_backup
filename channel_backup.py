@@ -24,7 +24,7 @@ def getPosts(name, start):
 			content = content.replace('\n%s.  ' % d, '\n%s. ' % d)
 		yield post_id, content
 
-def loopImp():
+def run():
 	for name, start in channels.items():
 		os.system('mkdir %s > /dev/null 2>&1' % name)
 		posts = {}
@@ -37,18 +37,9 @@ def loopImp():
 			if original_start == start:
 				break
 		posts = sorted([(x, y) for (x, y) in posts.items()])
-		# Room of improvement: we can cache the old posts
-		# as posts more than 1 day old are not editable
 		posts = [y for (x, y) in posts]
 		with open('%s.md' % name, 'w') as f:
 			f.write('\n\n=======\n\n'.join(posts))
-	os.system('git add . > /dev/null 2>&1 && git commit -m commit > /dev/null 2>&1 && git push -u -f > /dev/null 2>&1')
 
-def loop():
-	loopImp()
-	threading.Timer(60 * 60 * 2, loop).start() 
-
-if not 'once' in sys.argv:
-	threading.Timer(1, loop).start()
-else:
-	loopImp()
+if __name__ == '__main__':
+    run()
