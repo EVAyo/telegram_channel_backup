@@ -21414,3 +21414,15 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 11. 【投稿】【微博的阴间推送？？？？？暗戳戳地影射什么呢？？咋这么恶毒？？？】https://m.weibo.cn/status/KlUijEnh5
 
 12. 【大码妹子吐槽酒店中各种对胖人不友好的设计：马桶太小，浴巾也小，挡了前面就挡不住后面！】https://m.weibo.cn/status/KlQvf7nJE
+
+=======
+
+《每日文章精选 2021-06-28》 https://t.me/daily_read 
+
+1. 【谢谢宇多田光gender non-binary(非二元性别者)冲！】https://m.weibo.cn/status/KmeUry7CQ
+
+2. 【合肥脑瘫考生高考文科603分 ，妈妈：为孩子感到骄傲】https://www.thepaper.cn/newsDetail_forward_13333474
+
+3. 【LGBTQ骄傲节】http://www.douban.com/people/180693708/status/3493897455
+
+4. 【《滚石》发布“50部必看LGBTQ”电影榜单】https://m.weibo.cn/status/KlZ4anYSC
