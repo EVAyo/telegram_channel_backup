@@ -21426,3 +21426,47 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 3. 【LGBTQ骄傲节】http://www.douban.com/people/180693708/status/3493897455
 
 4. 【《滚石》发布“50部必看LGBTQ”电影榜单】https://m.weibo.cn/status/KlZ4anYSC
+
+=======
+
+《每日文章精选 2021-06-29》 https://t.me/daily_read 
+
+1. 【高二学生工厂实习坠楼身亡】https://mp.weixin.qq.com/s/7zdmAoOuvVhrV2OIL_NdWw
+
+2. 【宇多田光正式出柜非二元性别（公开性别认同都叫出柜）】http://www.douban.com/group/topic/232685888
+
+3. 【谢谢宇多田光gender non-binary(非二元性别者)冲！】https://m.weibo.cn/status/KmeUry7CQ
+
+4. 【合肥脑瘫考生高考文科603分 ，妈妈：为孩子感到骄傲】https://www.thepaper.cn/newsDetail_forward_13333474
+
+5. 【LGBTQ骄傲节】http://www.douban.com/people/180693708/status/3493897455
+
+6. 【《滚石》发布“50部必看LGBTQ”电影榜单】https://m.weibo.cn/status/KlZ4anYSC
+
+7. 【哎呀，美国版的女同性恋约会真人秀《Coming Out for Love》要来了，预计今年秋天开播】https://m.weibo.cn/status/Km0t9ptOY
+
+8. 【阻止女孩子向上走的人太恶心了这位妈妈是真的爱女儿】https://m.weibo.cn/status/KlZB6sffM
+
+9. 【原来这些路标都是人工画出来的，连人形标志也是画的！】https://m.weibo.cn/status/Km79naAsR
+
+10. 【为什么听障人士看不懂新闻手语？】https://m.weibo.cn/status/Km6dWdbHm
+
+11. 【如何从性骚扰/性侵的创伤中恢复】https://m.weibo.cn/status/KlXaAk2HD
+
+12. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/180693708/status/3492610493
+
+13. 【你所知道的电影冷知识】http://www.douban.com/people/80620968/status/3492399516
+
+14. 【老实说，本双非院校毕业生根本分不清哪些是985哪些是211】https://www.douban.com/people/138076161/status/3492371571
+
+15. 【前两日公交车上所见风景】http://www.douban.com/people/50910458/status/3492255037
+
+16. 【车祸赔钱了吗？行为人控制了吗？保险买了吗？怎么善后的？就这么吃干抹净发新闻了？】http://www.douban.com/people/45307956/status/3491852998
+
+17. 【投稿】【微博的阴间推送？？？？？暗戳戳地影射什么呢？？咋这么恶毒？？？】https://m.weibo.cn/status/KlUijEnh5
+
+18. 【大码妹子吐槽酒店中各种对胖人不友好的设计：马桶太小，浴巾也小，挡了前面就挡不住后面！】https://m.weibo.cn/status/KlQvf7nJE
+
+19. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
+
+20. 【縱有遺憾但感恩，今宵多珍重】http://www.douban.com/people/TerryPrince/status/3488399969
