@@ -21514,3 +21514,47 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【车祸赔钱了吗？行为人控制了吗？保险买了吗？怎么善后的？就这么吃干抹净发新闻了？】http://www.douban.com/people/45307956/status/3491852998
 
 20. 【投稿】【微博的阴间推送？？？？？暗戳戳地影射什么呢？？咋这么恶毒？？？】https://m.weibo.cn/status/KlUijEnh5
+
+=======
+
+《每日文章精选 2021-06-30》 https://t.me/daily_read 
+
+1. 【普通人说话的时候可以用声音和语调来表达情绪，也就是通常人们说的语气】https://m.weibo.cn/status/KmBQnAcbv
+
+2. 【女性需要裤兜女性需要口袋】https://m.weibo.cn/status/KmDS0ceZf
+
+3. 【安徽截肢考生第一志愿清华大学计算机类】https://www.thepaper.cn/newsDetail_forward_13357033
+
+4. 【日本歌手宇多田光宣布自己是非二元性别】https://m.weibo.cn/status/Kmyipu3rg
+
+5. 【中山大学事件里那个恶意满满的说话者真的很眼熟】https://www.douban.com/people/200758347/status/3496429044
+
+6. 【BIG LESBIAN ENERGYhappypridemonth】https://m.weibo.cn/status/Kmptl6YoE
+
+7. 【高二学生工厂实习坠楼身亡】https://mp.weixin.qq.com/s/7zdmAoOuvVhrV2OIL_NdWw
+
+8. 【宇多田光正式出柜非二元性别（公开性别认同都叫出柜）】http://www.douban.com/group/topic/232685888
+
+9. 【谢谢宇多田光gender non-binary(非二元性别者)冲！】https://m.weibo.cn/status/KmeUry7CQ
+
+10. 【合肥脑瘫考生高考文科603分 ，妈妈：为孩子感到骄傲】https://www.thepaper.cn/newsDetail_forward_13333474
+
+11. 【LGBTQ骄傲节】http://www.douban.com/people/180693708/status/3493897455
+
+12. 【《滚石》发布“50部必看LGBTQ”电影榜单】https://m.weibo.cn/status/KlZ4anYSC
+
+13. 【哎呀，美国版的女同性恋约会真人秀《Coming Out for Love》要来了，预计今年秋天开播】https://m.weibo.cn/status/Km0t9ptOY
+
+14. 【阻止女孩子向上走的人太恶心了这位妈妈是真的爱女儿】https://m.weibo.cn/status/KlZB6sffM
+
+15. 【原来这些路标都是人工画出来的，连人形标志也是画的！】https://m.weibo.cn/status/Km79naAsR
+
+16. 【如何从性骚扰/性侵的创伤中恢复】https://m.weibo.cn/status/KlXaAk2HD
+
+17. 【你所知道的电影冷知识】http://www.douban.com/people/80620968/status/3492399516
+
+18. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
+
+19. 【縱有遺憾但感恩，今宵多珍重】http://www.douban.com/people/TerryPrince/status/3488399969
+
+20. 【关于自闭症的function labels/功能标签的问题，我觉得这个角度是非常需要考虑的…】https://m.weibo.cn/status/KlkrFuWgK
