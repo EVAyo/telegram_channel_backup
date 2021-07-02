@@ -21558,3 +21558,21 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【縱有遺憾但感恩，今宵多珍重】http://www.douban.com/people/TerryPrince/status/3488399969
 
 20. 【关于自闭症的function labels/功能标签的问题，我觉得这个角度是非常需要考虑的…】https://m.weibo.cn/status/KlkrFuWgK
+
+=======
+
+《每日文章精选 2021-07-02》 https://t.me/daily_read 
+
+1. 【“不是所有女人都有月经，也不是所有有月经的人都是女人】https://m.weibo.cn/status/KmS906k74
+
+2. 【娘炮日记】https://www.douban.com/note/768942994
+
+3. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/159794920/status/3498541155
+
+4. 【加强的表情来配合手势，是听障人士表达的一个重要组成部分。这不是什么演技，也不是什么给健全人取乐的“颜艺”】https://m.weibo.cn/status/KmBQnAcbv
+
+5. 【女性需要裤兜女性需要口袋】https://m.weibo.cn/status/KmDS0ceZf
+
+6. 【安徽截肢考生第一志愿清华大学计算机类】https://www.thepaper.cn/newsDetail_forward_13357033
+
+7. 【日本歌手宇多田光宣布自己是非二元性别】https://m.weibo.cn/status/Kmyipu3rg
