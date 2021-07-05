@@ -21603,4 +21603,44 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 
 =======
 
-sending
+《每日文章精选 2021-07-05》 https://t.me/daily_read 
+
+1. 【金宝国际幼儿园通州校区疑似虐童】https://m.weibo.cn/status/KnfgiznER
+
+2. 【你独自扛过哪些生活的难】http://www.douban.com/people/zhenshigushi1/status/3495289889
+
+3. 【什么是工贼？】https://zhuanlan.zhihu.com/p/386620031
+
+4. 【看到一篇让人震撼的回答】https://m.weibo.cn/status/KlZvAhxMg
+
+5. 【香港高院裁定房委会排斥同性配偶作为家庭成员的政策属于性取向歧视】https://m.weibo.cn/status/KmN7f6802
+
+6. 【西班牙拟允许16岁以上民众变性自由，实现性别自决】https://m.weibo.cn/status/Kn4lp5FVz
+
+7. 【冷知识：女同=喜欢女性的女性，会对女性产生浪漫情结和性欲望】https://m.weibo.cn/status/Kn51BFrFe
+
+8. 【人物｜孙文麟：走在红毯那一天 ——专访长沙同性恋婚姻维权案当事人】https://mp.weixin.qq.com/s?__biz=MzAxMzQ3MDI0Mg==&mid=2649701416&idx=1&sn=0d340ea790650381e3e1c9b0c385ae76
+
+9. 【我们是否需要性别中立的人称代词（gender-neutral pronouns）？】http://mp.weixin.qq.com/s/vBCKFHUsIujs6iCtM-dHIQ
+
+10. 【美国31岁运动员怀孕18周参加奥运选拔 参加七项全能项目】https://m.weibo.cn/status/KmUJi5Eqq
+
+11. 【“不是所有女人都有月经，也不是所有有月经的人都是女人】https://m.weibo.cn/status/KmS906k74
+
+12. 【娘炮日记】https://www.douban.com/note/768942994
+
+13. 【我们该如何认识并保护跨性别权利】http://www.douban.com/people/159794920/status/3498541155
+
+14. 【普通人说话的时候可以用声音和语调来表达情绪，也就是通常人们说的语气】https://m.weibo.cn/status/KmBQnAcbv
+
+15. 【安徽截肢考生第一志愿清华大学计算机类】https://www.thepaper.cn/newsDetail_forward_13357033
+
+16. 【日本歌手宇多田光宣布自己是非二元性别】https://m.weibo.cn/status/Kmyipu3rg
+
+17. 【BIG LESBIAN ENERGYhappypridemonth】https://m.weibo.cn/status/Kmptl6YoE
+
+18. 【合肥脑瘫考生高考文科603分 ，妈妈：为孩子感到骄傲】https://www.thepaper.cn/newsDetail_forward_13333474
+
+19. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
+
+20. 【关于自闭症的function labels/功能标签的问题，我觉得这个角度是非常需要考虑的…】https://m.weibo.cn/status/KlkrFuWgK
