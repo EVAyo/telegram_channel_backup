@@ -21644,3 +21644,33 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 19. 【暖心！55岁lo娘帮2000残疾人改鞋】https://m.weibo.cn/status/KlPiT949O
 
 20. 【关于自闭症的function labels/功能标签的问题，我觉得这个角度是非常需要考虑的…】https://m.weibo.cn/status/KlkrFuWgK
+
+=======
+
+《每日文章精选 2021-07-06》 https://t.me/daily_read 
+
+1. 【胖人不配拥有爱情吗？】https://m.weibo.cn/status/KnvFsdJ6E
+
+2. 【投稿：各大高校性少数社团公众号全体遭永封】https://m.weibo.cn/status/Knx5hAytE
+
+3. 【见过最无语的招聘要求打工人也太难了吧】https://m.weibo.cn/status/KnwTT6znz
+
+4. 【我真的巨烦默认单身女性参与任何活动目的都是脱单】https://www.douban.com/people/35333832/status/3504109598
+
+5. 【女生们，不要把性当成奖励他的礼物】https://www.douban.com/note/807050160
+
+6. 【媒体调查第三卫生间使用情况：数量不足认知度弱，利用率低】https://m.weibo.cn/status/KnuNJqrpw
+
+7. 【跳出双面夹击的男权规训，自己掌握解释权】https://m.weibo.cn/status/KnvfA4ECA
+
+8. 【女：麻烦你让让 男：你就是想勾引我】http://www.douban.com/group/topic/233591053
+
+9. 【从5岁到107岁，每天坚持练琴4小时的钢琴师】https://m.weibo.cn/status/Knrs3nC5i
+
+10. 【劳动法呢？】https://m.weibo.cn/status/KnrqX76Qx
+
+11. 【今天三亚下大雨，一个顺丰的妹子穿着雨衣送快递过来】https://www.douban.com/people/120956421/status/3473534134
+
+12. 【跨性别群体在非洲的历史（一）】https://m.weibo.cn/status/KnlZGnYMu
+
+13. 【巴勒斯坦是世界上精神疾病发病率最高的国家之一】https://m.weibo.cn/status/Kn9zYDc8i
