@@ -21706,3 +21706,27 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 13. 【第74届戛纳国际电影节】http://www.douban.com/people/busanmovie/status/3504619812
 
 14. 【胖人不配拥有爱情吗？】https://m.weibo.cn/status/KnvFsdJ6E
+
+=======
+
+《每日文章精选 2021-07-08》 https://t.me/daily_read 
+
+1. 【冰岛试行四天工作制大获成功外网今天上了趋势第一的新闻：冰岛试行四天工作制大获成功】https://m.weibo.cn/status/KnubMrlUx
+
+2. 【这就是女性执法者稀少的原因】http://www.douban.com/group/topic/233979699
+
+3. 【17岁少年工厂实习坠亡：生前遭遇“旷工开除”警告 | 深度报道】https://mp.weixin.qq.com/s?__biz=MzU2MzQzOTg1Nw==&mid=2247501113&idx=1&sn=9e005da684e71b6fb1a4bc0f1d41a546
+
+4. 【数据打脸:找个男人照顾你?儿子养老？大谬不然】http://www.douban.com/group/topic/174259587
+
+5. 【外卖骑手反抗霸王条款、教育行业频频暴雷、公共服务外包下的劳工之困难以破解｜行业剪报】http://mp.weixin.qq.com/s?__biz=MzkzOTEzOTY0OQ==&mid=2247485114&idx=1&sn=79425cbf1b09cd755288453200ab94b1
+
+6. 【前几天参加一场饭局，席间有位四十出头的大哥找我聊天】https://m.weibo.cn/status/KnGkVkTOX
+
+7. 【你可能永远看不到的数据，官网也永远不可能公布的数据，那就是，分娩致残率】https://m.weibo.cn/status/KnEVxovg1
+
+8. 【伊藤诗织不仅在前年的性侵案民事胜诉，今年也在网络诽谤案中胜诉】http://www.douban.com/people/waaangjieee/status/3505500657
+
+9. 【你们要的打工人表情包来了，还会动~~】https://m.weibo.cn/status/KkQZ2n1fQ
+
+10. 【枫叶国的儿童读物】https://m.weibo.cn/status/KnCaZgUbg
