@@ -21674,3 +21674,35 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 12. 【跨性别群体在非洲的历史（一）】https://m.weibo.cn/status/KnlZGnYMu
 
 13. 【巴勒斯坦是世界上精神疾病发病率最高的国家之一】https://m.weibo.cn/status/Kn9zYDc8i
+
+=======
+
+《每日文章精选 2021-07-07》 https://t.me/daily_read 
+
+1. 【数据打脸:找个男人照顾你?儿子养老？大谬不然】http://www.douban.com/group/topic/174259587
+
+2. 【17岁少年工厂实习坠亡：生前遭遇“旷工开除”警告 | 深度报道】https://mp.weixin.qq.com/s?__biz=MzU2MzQzOTg1Nw==&mid=2247501113&idx=1&sn=9e005da684e71b6fb1a4bc0f1d41a546
+
+3. 【外卖骑手反抗霸王条款、教育行业频频暴雷、公共服务外包下的劳工之困难以破解｜行业剪报】http://mp.weixin.qq.com/s?__biz=MzkzOTEzOTY0OQ==&mid=2247485114&idx=1&sn=79425cbf1b09cd755288453200ab94b1
+
+4. 【女性身上的所有特征品质和长处都会被用于“是否适合结婚”这一标准的衡量】https://m.weibo.cn/status/KnGkVkTOX
+
+5. 【你可能永远看不到的数据，官网也永远不可能公布的数据，那就是，分娩致残率】https://m.weibo.cn/status/KnEVxovg1
+
+6. 【伊藤诗织不仅在前年的性侵案民事胜诉，今年也在网络诽谤案中胜诉】http://www.douban.com/people/waaangjieee/status/3505500657
+
+7. 【你们要的打工人表情包来了，还会动~~】https://m.weibo.cn/status/KkQZ2n1fQ
+
+8. 【枫叶国的儿童读物】https://m.weibo.cn/status/KnCaZgUbg
+
+9. 【伊恩爷爷的这张图，每次看都会觉得充满希望】https://m.weibo.cn/status/KnyYPBtwN
+
+10. 【偏要🌈🌈🌈又有新的恐同事件未命名公众号各大高校性少数社团公众号全体遭永封】https://weibo.com/6032584361/KnDHGpQb7
+
+11. 【弦子被禁言一年】https://m.weibo.cn/status/KnFilloYz
+
+12. 【很多人今晚都睡不着】https://m.weibo.cn/status/KnBBVEzJu
+
+13. 【第74届戛纳国际电影节】http://www.douban.com/people/busanmovie/status/3504619812
+
+14. 【胖人不配拥有爱情吗？】https://m.weibo.cn/status/KnvFsdJ6E
