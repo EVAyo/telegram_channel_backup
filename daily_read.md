@@ -21730,3 +21730,45 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【你们要的打工人表情包来了，还会动~~】https://m.weibo.cn/status/KkQZ2n1fQ
 
 10. 【枫叶国的儿童读物】https://m.weibo.cn/status/KnCaZgUbg
+
+=======
+
+《每日文章精选 2021-07-09》 https://t.me/daily_read 
+
+1. 【女孩们，这才是你需要的xing教育】https://m.weibo.cn/status/KnVJ3jrBk
+
+2. 【每次听到“ta喜欢同性，好酷哦”的说法都会紧皱眉头，也对很多觉得抑郁很酷所以装作抑郁的人难以理解】https://m.weibo.cn/status/KnYZ7CW4c
+
+3. 【你独自扛过哪些生活的难】http://www.douban.com/people/3923668/status/3507453228
+
+4. 【我被职场性骚扰，并且反击了】http://www.douban.com/people/4015441/status/3507485079
+
+5. 【信仰爱情是死路，却是女性的自我保护】http://www.douban.com/group/topic/233320749
+
+6. 【男人的套话：结婚后肯定不一样啊】http://www.douban.com/group/topic/233440129
+
+7. 【当一个男号开始夸女人，我总忍不住先辨析他的动机是否真诚】https://m.weibo.cn/status/KnOh1txqJ
+
+8. 【70岁上海阿婆拿到中国美院书画双学位 ，曾在教室搭帐篷过夜】https://www.thepaper.cn/newsDetail_forward_13497662
+
+9. 【一些怼人的精彩瞬间合集】https://m.weibo.cn/status/4635624906688012
+
+10. 【我经常分享一些精彩回复本期主题：恐同如何回怼崆峒言论】https://m.weibo.cn/status/KnLvqh3kb
+
+11. 【🌈无论你是谁，你都值得拥有爱】https://m.weibo.cn/status/KnLADgvQm
+
+12. 【分享你最喜欢的电影人的被采访片段】http://www.douban.com/people/147233978/status/3504850325
+
+13. 【暖心！青岛外卖小哥帮崩溃程序员写代码】https://m.weibo.cn/status/KnO4NduqG
+
+14. 【冰岛试行四天工作制大获成功外网今天上了趋势第一的新闻：冰岛试行四天工作制大获成功】https://m.weibo.cn/status/KnubMrlUx
+
+15. 【这就是女性执法者稀少的原因】http://www.douban.com/group/topic/233979699
+
+16. 【17岁少年工厂实习坠亡：生前遭遇“旷工开除”警告 | 深度报道】https://mp.weixin.qq.com/s?__biz=MzU2MzQzOTg1Nw==&mid=2247501113&idx=1&sn=9e005da684e71b6fb1a4bc0f1d41a546
+
+17. 【数据打脸:找个男人照顾你?儿子养老？大谬不然】http://www.douban.com/group/topic/174259587
+
+18. 【外卖骑手反抗霸王条款、教育行业频频暴雷、公共服务外包下的劳工之困难以破解｜行业剪报】http://mp.weixin.qq.com/s?__biz=MzkzOTEzOTY0OQ==&mid=2247485114&idx=1&sn=79425cbf1b09cd755288453200ab94b1
+
+19. 【你可能永远看不到的数据，官网也永远不可能公布的数据，那就是，分娩致残率】https://m.weibo.cn/status/KnEVxovg1
