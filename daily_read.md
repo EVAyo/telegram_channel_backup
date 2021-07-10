@@ -21772,3 +21772,25 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 18. 【外卖骑手反抗霸王条款、教育行业频频暴雷、公共服务外包下的劳工之困难以破解｜行业剪报】http://mp.weixin.qq.com/s?__biz=MzkzOTEzOTY0OQ==&mid=2247485114&idx=1&sn=79425cbf1b09cd755288453200ab94b1
 
 19. 【你可能永远看不到的数据，官网也永远不可能公布的数据，那就是，分娩致残率】https://m.weibo.cn/status/KnEVxovg1
+
+=======
+
+《每日文章精选 2021-07-10》 https://t.me/daily_read 
+
+1. 【被骂哭的导盲犬主人说几乎每天被赶】https://m.weibo.cn/status/IFjNkwvEp
+
+2. 【试用期无理由辞退人都不用给工资的吗刚入职就被无故辞退了】https://m.weibo.cn/status/Ko4UkpBqM
+
+3. 【很多时候你自以为幽默亲切的谈话，在对方眼里已经是冒犯】http://www.douban.com/people/52854596/status/3508765300
+
+4. 【昨天听一个朋友讲自己的经历，想把它记下来】https://www.douban.com/people/2696818/status/3508691958
+
+5. 【保证书有用，还要法律、警察、监狱干嘛呢？】https://m.weibo.cn/status/Ko5xA1Hzn
+
+6. 【最近10年，中国社会在男女平等方面发生的一个最重要的变化就是女性在学校教育中的优势越来越明显】https://m.weibo.cn/status/Ko4YLqeod
+
+7. 【烟草烟雾会影响到血管功能，使皮下血液微循环减慢】https://m.weibo.cn/status/Ko41TwfkL
+
+8. 【你镜头下的城市午夜】http://www.douban.com/people/187848113/status/3506682552
+
+9. 【为什么女性配对同人这么少？】https://m.weibo.cn/status/Ko0IVzeqo
