@@ -21818,3 +21818,31 @@ https://mp.weixin.qq.com/s/R9YIi-_FTFZ1rHmHBBzyEA
 9. 【很多时候你自以为幽默亲切的谈话，在对方眼里已经是冒犯】http://www.douban.com/people/52854596/status/3508765300
 
 10. 【昨天听一个朋友讲自己的经历，想把它记下来】https://www.douban.com/people/2696818/status/3508691958
+
+=======
+
+《每日文章精选 2021-07-11》 https://t.me/daily_read 
+
+1. 【美军撤离后，阿富汗妇女扛起枪反击Taliban】https://t.me/weibo_read/61601
+
+2. 【祖传手艺会伤身？女生DIY会得病？单身人士过个性生活怎么了祖传手艺并不羞耻，为祖传手艺正名！】https://m.weibo.cn/status/Kj7z1rxVz
+
+3. 【早晨在校门口遇到两个建筑女工，她们被保安拦住不让进】https://www.douban.com/people/79449763/status/3509478942
+
+4. 【有种“正派”前男友，擅长亲密pua】http://www.douban.com/group/topic/204424545
+
+5. 【中国资本家今日风貌】http://www.douban.com/people/victorchen2018/status/3509889652
+
+6. 【美军撤离后阿富汗全线失守，极端宗教势力回潮，留下民众挣扎求生】https://zhuanlan.zhihu.com/p/388228810
+
+7. 【转自21级的新同学🥺】http://www.douban.com/people/180693708/status/3509449229
+
+8. 【基础教育平等本应该是最基本的平等】https://m.weibo.cn/status/Koa45dMQG
+
+9. 【微博人口普查底下的评论笑死我了】http://www.douban.com/group/topic/225554093
+
+10. 【金智英的父亲那一辈，许多人因为战争、疾病、饥饿而不幸丧命，能不能存活下来都是问题】https://m.weibo.cn/status/Ko9os6tux
+
+11. 【歧视源于无知】https://m.weibo.cn/status/Ko9zDjOFI
+
+12. 【每次出现暴力事件，当事人就会暗示：“这个女的有问题，我才会这样】https://m.weibo.cn/status/Ko5161HqT
